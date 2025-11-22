@@ -1,3 +1,192 @@
+###  Публикация: 1702276   (115807) от 24.02.2024
+
+Whiteabbey - Words That Form The Key (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115807.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Reality
+2. Dragonfire
+3. Hold Fast
+4. Just Hold Me (Maria Mena cover)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F3C4F498F205EF730F0777B4A334F46BF764245
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702366   (115808) от 24.02.2024
+
+Takida - The agony flame (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Third strike (3:07)
+02. The other side (4:11)
+03. Sacred spell (3:59)
+04. In time (4:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED85C32935F94B718D94EB21856F3F62D373428C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702285   (115809) от 24.02.2024
+
+Toxikull - Under The Southern Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Shadows
+02. Around The World
+03. Under The Southern Light
+04. Battle Dogs(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B565941B903DA769A1F6A5ECF64AF91E7932FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702296   (115810) от 24.02.2024
+
+Erika de Casier - Still (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right This Way (1:48)
+02. Home Alone (3:31)
+03. Lucky (3:25)
+04. The Princess (2:17)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B82DC5E0C96B804DCBB40DDD84A390296CB931D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702339   (115811) от 24.02.2024
+
+Dissolving of Prodigy - Time Ruins Also Beauty (1997) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Land of Bird's Spirit (07:38)
+02. My Numb Wings (11:04)
+03. Dazbog's Heart (07:34)
+04. Time Ruins Also Beauty (07:30)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 01:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A184EDE67567504E31E22693FF248B29CD07015
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702362   (115812) от 24.02.2024
+
+Mac Saturn - Hard to Sell (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mint Julep (3:30)
+02. Young In Paradise (3:16)
+03. Sleep (3:41)
+04. Ain't Like You (3:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1AB31E142D7BC89B97740BD41E32343CF829434
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702304   (115813) от 24.02.2024
+
+JJ Grey & Mofro - Olustee (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sea (4:45)
+02. Top Of The World (3:30)
+03. On A Breeze (4:35)
+04. Olustee (5:10)(   Читать дальше...   )Жанр: Southern Rock, Blues RockПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47751C6BCA168009E5BB4B15F04BE2E44359883
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702327   (115814) от 24.02.2024
 
 Anita O'Day - The Breakfast Show (1964) 2007, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -495,195 +684,6 @@ magnet:?xt=urn:btih:833DEA85ADEEF473EBB70C03D2E36B0DCEA26F30
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F45621430F6CB9143FD2D8D17B84876AF5FE1B9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702360   (115833) от 24.02.2024
-
-Artimus Pyle Band - Anthems Honoring The Music of Lynyrd Skynyrd (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Know A Little (3:28)
-02. Sweet Home Alabama (4:59)
-03. Simple Man (7:29)
-04. The Needle And The Spoon (4:14)(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18399090D9E112820B6F4016A22AE11E29B9E70C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702301   (115834) от 24.02.2024
-
-Katie Henry - Get Goin' (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Like Kerosene (3:30)
-02. Jump (3:58)
-03. A Doll's Heart (4:11)
-04. Clear Vision (3:39)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13CA1D8FB5FC0B4088BA6BC2D868092D9E562255
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702223   (115835) от 24.02.2024
-
-Cats Can Fly - Cats Can Fly (1986) Remaster, CCF Records, 2023 [FLAC|Lossless|WEB-DL|tracks] <AOR, Pop Rock, Synth-pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flippin' to the 'A' Side (03:42)
-02. Lies Are Gonna Get Ya (03:52)
-03. Cold Hands, Warm Heart (04:55)
-04. Crazy Fever (03:05)(   Читать дальше...   )Жанр: AOR, Pop Rock, Synth-popПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8804E6BEEB16308658E65588F8884EBF2F13EEF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702302   (115836) от 24.02.2024
-
-Arkado - Open Sea (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage
-02. Open Sea
-03. Running Through The Night
-04. I Gave My Heart(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92243B947B834F3258A686BF0B4D1F94AA04ACE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702363   (115837) от 24.02.2024
-
-Rosie Frater-Taylor - Featherweight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Alternatif, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give & Take (4:50)
-02. Falling Fast (4:33)
-03. No Scrubs (4:27)
-04. Stop Running (3:43)(   Читать дальше...   )Жанр: Rock, Alternatif, JazzПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627059973565E2F7DC4DB8058A6500075BD742FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702138   (115838) от 24.02.2024
-
-Philip Sayce - The Wolves Are Coming (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh! That Bitches Brew [00:03:29]
-02. Lady Love Divine [00:03:04]
-03. Babylon Is Burning [00:02:51]
-04. Your Love [00:03:18](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D649AB09F51EA8595C15F6F4967EFD79C9D3EF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702438   (115839) от 24.02.2024
-
-Counting Hours - The Wishing Tomb (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115839.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Unsung, Forlorn 02:10
-2. Timeless Ones 04:31
-3. Away I Flow 05:57
-4. All That Blooms (Needs to Die) 06:24(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:378DF692353816901DDB69C892BA6D3520033F53
 ```
 
 

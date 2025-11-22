@@ -1,3 +1,81 @@
+###  Публикация: 1664021   (186247) от 24.09.2023
+
+Billy's Band - В шляпе (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alco-jazz>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186247.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Старомоден
+2. Ты мерещишься мне
+3. Фонари
+4. Мама, забери...(   Читать дальше...   )Жанр: Rock, Alco-jazzПродолжительность: 00:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13DA94A03552E76CCE399ACED0957886CB769A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664022   (186258) от 24.09.2023
+
+Чёрный кролик - Снег (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186258.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Снег (feat. Алексей Юзленко, Олег Майоров, Анатолий Скляренко, Алексей Яшин, Игорь «Кэш» Лобанов, Иван Демьян, Тимур Валеев и группа Ключи, Андрей Гречаник, Вячеслав Ширинкин, Бранимир, Александр Старцев, Сергей Ревякин, Михаил Чебоненко, Александр Ряполов, Влад Демьян, Анатолий Иванов, Олег Балашов, Павел Пиковский, Роман Кузьмин, Павел Крахмалев, Денис Михайлов, (   Читать дальше...   )Жанр: RockПродолжительность: 00:23:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F25602611B816590EC76F6202E6B5527001694
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664122   (186266) от 24.09.2023
+
+ШАРЫ - Индиго (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Комиссар [00:02:30]
+02. Жабры [00:03:15]
+03. Снежная Африка [00:02:45]
+04. Индиго [00:03:12](   Читать дальше...   )Жанр: Alternative\\RockПродолжительность: 00:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80DBCA329B1BA353D51BCD27C3BF2FC4A95EC1AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664098   (186276) от 24.09.2023
 
 Nitrogenium - Игра Теней (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
@@ -609,87 +687,6 @@ Morokh - Insomnia (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EE73D1389C8A41B25E718B8847B33DF5FC506C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659503   (190219) от 11.09.2023
-
-Tears Of Mankind - Memoria (2011) [FLAC|Lossless|image + .cue] <Doom, Death, Dark Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:11)
-02. In The Embrace Of Eternal Sunshine (08:11)
-03. Deadly Desire (07:46)
-04. Passion Blackfathom Deeps (08:26)(   Читать дальше...   )Жанр: Doom, Death, Dark MetalПродолжительность: 01:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4CEFC5D8316EFEB59B2F2497AE4B93F6120E91C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658766   (190230) от 11.09.2023
-
-Tyler Durdenn - Пепел космоса (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хэйтер [00:04:56]
-02. Ад на земле [00:03:27]
-03. Диванный эксперт [00:05:53]
-04. Они уже здесь [00:04:44](   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06DDA08AD954A6C55BAE202BA9C551255FF27FFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658875   (190542) от 10.09.2023
-
-Бранимир (Александр Геннадиевич Паршиков) - Добрые песни 1-2 (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Dark Folk Rock, Dark Chanson>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В нашем маленьком городе [00:03:41]
-02. Шофёр [00:04:23]
-03. На побывку [00:04:18]
-04. Счастье [00:02:57](   Читать дальше...   )Жанр: Acoustic, Dark Folk Rock, Dark ChansonПродолжительность: 00:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DBD999358700E1725F694511EC277B025F207F7
 ```
 
 

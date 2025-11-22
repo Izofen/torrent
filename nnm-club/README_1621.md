@@ -1,3 +1,57 @@
+###  Публикация: 1751279   (42501) от 24.09.2024
+
+VA - Calm Horizons 2: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pier-O - Coral Reef (5:44)
+02. Dellasollounge - Son of Ulysses (2:14)
+03. Fake and True - Sleep Therapy 2 (11:57)
+04. Matt Sour - The Green Lady (2:43)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50DF85C9ADB0A52DA84E0938D0AF40845C1B9B7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751334   (42502) от 24.09.2024
+
+VA - Powermix Vol. 3 (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beathoven - Intro
+02. Sylvester - Do you wanna funk
+03. Miquel Brown - So many men so little time
+04. Buckbeats - Daydream(   Читать дальше...   )Жанр: Electronic, Italo-Disco, DiscoПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D17B862170852CE2BB0B0D680E79CD469FD92D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751335   (42503) от 24.09.2024
 
 Мадемуазель / Mademoiselle (1966) BDRip [H.264] [EN / RU Sub]
@@ -618,57 +672,6 @@ magnet:?xt=urn:btih:90E99E0F3555029D1D4CBF1983E88E1321DA831B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF082FD96DF87B7B33CB5E5B71EAD370DE0E0943
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751316   (42527) от 24.09.2024
-
-FanControl V204 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42527.jpg" />
-</div>
-
-
-###  Подробнее
-
-FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2AB511E963E69D1023746A12B368F819FB12E57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751382   (42528) от 24.09.2024
-
-VA - Electronic Afterimages (2024) [MP3|320 Kbps] <Electronic, Synthwave, Retrowave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42528.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lost In Material - Modlight - (04:58)
- 002. Transparent Sound - Slang City - (08:01)
- 003. Ayala - Ubiquity - (05:28)
- 004. Karmahacker - A Broken Dub - (07:35)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 11:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEBC4D0C8A4C246FD4783B61A58C6AFA8C5E682A
 ```
 
 

@@ -225,6 +225,39 @@ magnet:?xt=urn:btih:57F95E7449F48BEA48F471747A9DE5C0ADB27A55
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586472   (135570) от 22.12.2012
+
+Sviatoslav Richter in Prague [FLAC|Lossless]<Classical, Sonata, Fantasy, Variations, Etude>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: classical, pianoПродолжительность: 01:03:17
+
+Composer: Franz Schubert (1797-1828)
+Composer: Franz Liszt (1811-1886)
+Performer: Sviatoslav Richter - piano
+
+Tracklist:
+Piano Sonata No. 21 in B flat major, D. 960:
+01. Molto moderato    (25:50)
+02. Andante sostenuto    (09:57)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592480   (135632) от 22.12.2012
 
 Yoko Fujita & Keiko Ogura - Stradivarius On Gold CD (2010) [FLAC|Lossless]<Violin, Instrumental>
@@ -697,33 +730,6 @@ VA - Winter Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E7458F4F8C871F04C4F9F40296ECEF02243B67C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589725   (147865) от 15.12.2012
-
-Galina Vishnevskaya, Mstislav Rostropovich/Галина Вишневская, Мстислав Ростропович - Rachmaninov & Glinka Songs (1976/2006) [FLAC|Lossless]<Опера, вокал>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_147865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Памяти Галины Павловны Вишневской и Мстислава Леопольдовича Ростропович1. Rachmaninov - 'Noc pecal'na' (The Night is mournful), op.26 no.12 (1906)
- 2. Rachmaninov - 'Ne poi, krasavica' (Oh, never sing to me again), op.4 np.4 (1890?)
- 3. Rachmaninov - 'Muzyka' (Music), op.34 no.8 (1912)
- 4. Rachmaninov - 'Vesennaja voda' (Spring Waters), op.14 no.11 (1896)(   Читать дальше...   )Жанр: Опера, вокалПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D682CB6716ADEF6604A405AEF3B8F254683E9A
 ```
 
 

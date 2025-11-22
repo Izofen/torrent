@@ -1,3 +1,54 @@
+###  Публикация: 1751316   (42527) от 24.09.2024
+
+FanControl V204 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42527.jpg" />
+</div>
+
+
+###  Подробнее
+
+FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2AB511E963E69D1023746A12B368F819FB12E57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751382   (42528) от 24.09.2024
+
+VA - Electronic Afterimages (2024) [MP3|320 Kbps] <Electronic, Synthwave, Retrowave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42528.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lost In Material - Modlight - (04:58)
+ 002. Transparent Sound - Slang City - (08:01)
+ 003. Ayala - Ubiquity - (05:28)
+ 004. Karmahacker - A Broken Dub - (07:35)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 11:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEBC4D0C8A4C246FD4783B61A58C6AFA8C5E682A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751358   (42529) от 24.09.2024
 
 Молодой Франкенштейн / Young Frankenstein (1974) BDRip [H.264]
@@ -587,60 +638,6 @@ magnet:?xt=urn:btih:82A2D58F6648E8068B82141EDD24108D213942F3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C578C29F428386475DAFBCDE2DA4A4DE481C4CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751375   (42553) от 24.09.2024
-
-VA - Galactic Synthwave (2024) [MP3|320 Kbps] <Synthetic, Space, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42553.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Unusual Cosmic Process - Stellar
-002. Pulsarius - Journey Trough The Lost Galaxy
-003. Voyage - Alone
-004. R/Code - Parallax(   Читать дальше...   )Жанр: Synthetic, Space, ElectronicПродолжительность: 11:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E852C82090F46EFB8FEA11283F0CAC741A2C0D78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751272   (42554) от 24.09.2024
-
-VA - My Live In Blue (2024) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42554.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Vincent - Piece By Piece [03:03]
-002. Olivier Philippson - Valse De Melody [01:46]
-003. Alecks Waiters - Wicked On Pole [01:51]
-004. Philippe Detrie, Clara De Gail - Trois Dans Le Lit [03:11](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 12:22:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4395EF9D121BA62466DFEEF1A004E09E7C7BC88
 ```
 
 

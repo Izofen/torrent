@@ -1,3 +1,192 @@
+###  Публикация: 1730774   (107825) от 17.06.2024
+
+autoKratz - Animal (2009) 15th Anniversary Edition, 2024, Bad Life[FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electroclash>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Keep Walking (2024 Rewerk) [00:04:52]
+02. Stalker (2024 Rewerk) [00:04:48]
+03. Always More (Yuksek Remix) [00:04:33]
+04. Swastika Eyes [00:04:07]Жанр: Synthpop, ElectroclashПродолжительность: 2 CD, 01:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F34435EDFB372B0F03062947E9F095879D31385
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730787   (107826) от 17.06.2024
+
+VA - Nothing But... Pure Dance, Vol. 23 (2024) [MP3|320 Kbps] <Pop Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Angel - Hong Kong Elvis (The Mike Angel Edit) (03:10)
+ 02. Dimitris Karipidis, Wassup Diki - Your Eyes (04:34)
+ 03. Derry Kost - Take Control (02:09)
+ 04. John Bounce - I Feel Love (04:16)(   Читать дальше...   )Жанр: Pop DanceПродолжительность: 01:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25789C1B51E1E96ECCE7979F0E528BED37FEB8F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730753   (107827) от 17.06.2024
+
+Vesperian Sorrow - Awaken the Greylight (2024) [MP3|320 Kbps] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As The Pillars Were Raised (06:26)
+ 02. Antediluvian Proceeding The Unshaping (05:52)
+ 03. An Epistle To The Prime Vivified (05:06)
+ 04. Traverse The Vorthonian Passage (05:14)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF238AB5406E734110343A935E8CDC92E85F3F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730772   (107828) от 17.06.2024
+
+Merging Cluster - Peak of Ephemeral Light (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107828.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dysrationalia (10:02)
+2. Peak of Ephemeral Light (6:08)
+3. Subjective Doubles Syndrome (10:10)
+4. Gift Undeserved (8:37)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D763DA4BC4B77C26F5C596D3393BA4A0F30D63B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730755   (107829) от 17.06.2024
+
+The Human Element - River (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Size of an Ocean (6:07)
+02. No Twist, No Turn (5:47)
+03. Passing Phase (4:38)
+04. I Had a Ghost (5:36)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF3F7687FE420C0227CF9049B387944971AF144
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730707   (107830) от 17.06.2024
+
+Questing Beast - Birth (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Comet's Tale (4:03)
+02. At Crater's Edge (4:20)
+03. Sow (0:57)
+04. Growth (5:22)(   Читать дальше...   )Жанр: Heavy Metal, Progressive MetalПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF6F63468694963F1FD3C5849266C32E3FFE922
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730689   (107831) от 17.06.2024
+
+Birdstone - The Great Anticipation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyes on the Ceiling (6:40)
+02. Instant Shutdown (6:13)
+03. Alcyon (6:13)
+04. The Devil (5:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B25BED542DAB2CBA3841F66D0C124D7F5337FE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730741   (107832) от 17.06.2024
 
 John Pena - Life, Legacy & Music, Pt. 2 (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Jazz>
@@ -496,188 +685,6 @@ Toxikk Deception - License To Murder (2022) [MP3|320 Kbps] <EBM, Dark Electro, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88F9B99364DEC9957B914409D1C6A1796BF86D7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730618   (107851) от 16.06.2024
-
-Speedtest от Ookla 5.4.2 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Speedtest - это приложение предназначено для определения параметров сетевого соединения. Например, с помощью данной программы можно проверить скорость отдачи и приёма, а также ping сетевого соединения, и всё это в режиме реального времени. Функционал Speedtest позволяет делиться результатами, отсылать их на электронную почту или с помощью встраивающих ссылок. С данным (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 10.06.2024Разработчик: OoklaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8356FA405695F61CB39AA6F3E2EC2AEB94CF58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730497   (107852) от 16.06.2024
-
-µ-Ziq - Grush (2024) [FLAC|Lossless|WEB-DL|tracks] <IDM, Electro, House, Techno>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reticulum A [00:04:29]
-02. Hyper Daddy [00:05:25]
-03. Fogou [00:02:45]
-04. Magic Pony Ride, Pt. 4 [00:02:48](   Читать дальше...   )Жанр: IDM, Electro, House, TechnoПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA18839B020C2CD5AF6CBD7CC06B801B17836AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730508   (107853) от 16.06.2024
-
-НХЛ. Финал Кубока Стэнли 2024. 4-й матч. Флорида Пантерз - Эдмонтон Ойлерз (15.06.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107853.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 июня 2024, воскресенье. 03:00 МСК. Кубок Стэнли. 4-й матч. Стадион: Роджерс Плэйс (Эдмонтон, Канада), 18 347 зрителей (98% при вместимости 18 641)
-Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Крис Руни (Бостон, США); Линейный: Девин Берг (Китченер, Канада); Линейный: Райан Дейзи (Мансфилд, США)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1888F68221E0B326B808D36088457D5B4B03CD82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730528   (107854) от 16.06.2024
-
-Первая передача на НТВ. Автомобильная передача (16.06.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Померкший ближний свет: стоит купить новые фары или попробовать бюджетную альтернативу? Как с тусклым светом борются профессионалы? Выгодный вариант ремонта, или Как своими руками привести в порядок переднюю оптику.
-Перелом на ровном месте: девушка получила тяжелейшую травму ноги после того, как в нее влетел юный самокатчик. Какие страховки предусмотрены в кикшеринговых (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C38C6952F1DA4F3A1C00C5F23423572EFD02345
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730635   (107855) от 16.06.2024
-
-Mantus - Mantus (1980) LP [MP3|320 Kbps] <Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boogie To The Bop (6:34)
-02. Slidin' To The Music (5:30)
-03. Can't You Feel It (5:06)
-04. All Nite, That's Right (6:36)(   Читать дальше...   )Жанр: Funk Soul, DiscoПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:214C222152DDB506ED59FCB9B3F74D7741A43CE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730489   (107856) от 16.06.2024
-
-НХЛ. Финал Кубока Стэнли 2024. 4-й матч. Эдмонтон Ойлерз - Флорида Пантерз (15.06.2024) IPTVRip [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок Стэнли 2024. Финал.4-й матч.Эдмонтон Ойлерз - Флорида Пантерз.16 июня 2024, воскресенье. 03:00 МСК
-Стадион: Роджерс Плэйс (Эдмонтон, Канада), вместимость: 18641
-Финал. 4-й матч. Эдмонтон Ойлерз (Эдмонтон) — Флорида Пантерз (Санрайз)
-Главный судья: Жан Эбер (Монктон, Канада)Телекомпания: Setanta SportЖанр: Спорт, хоккейЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFCCD53D74C44D6D6234B7A5B2F6C26D67C1267
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730541   (107857) от 16.06.2024
-
-40 Octaves Below - MetaVersUs Remixed (2023) [MP3|320 Kbps] <Dark Electro, EBM, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Precursor (40 Octaves Below Remix) [00:02:48]
-02 - The Rabid (DI Auger Remix) [00:06:31]
-03 - Serketre (Moris Blak Remix) [00:03:46]
-04 - Splintered (MXMS Remix) [00:05:40](   Читать дальше...   )Жанр: Dark Electro, EBM, IndustrialПродолжительность: 01:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DECCA12074C64BED336B0A8CCC1033D23E453801
 ```
 
 

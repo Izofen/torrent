@@ -1,3 +1,53 @@
+###  Публикация: 1785232   (69388) от 15.03.2025
+
+Шрифты - Pepper Type - MyFonts - Shtozer [TTF, EOT, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей 80 стилей.
+Разработчик: Pepper TypeФормат: TTF, EOT, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AEC6CBE741F579892D14392DDFE28E08C7FE806
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785223   (69389) от 15.03.2025
+
+Шрифты - Pepper Type - MyFonts - Golca [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей 16 стилей.
+Разработчик: Pepper TypeФормат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2B54C7385A8F38902B69AFAEC1C8E2A50DFBC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785321   (69390) от 15.03.2025
 
 W.A. Production - Detroubler 1.0.0 VST, VST 3, AAX RePack by BUBBiX [En]
@@ -624,60 +674,6 @@ Art Pepper - Timeless (1952, 1953) 2002, Savoy Jazz [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1AD28F0C4A7DF4560928EEAA218A1410A39E4A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785070   (69414) от 14.03.2025
-
-VA - Rewind - 29 Italo Disco Classics (1997) 2CD [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scotch - Disco Band (4:07)
-02. Righeira - Vamos A La Playa (5:09)
-03. Valerie Dore - The Night (6:17)
-04. Ryan Paris - Dolce Vita (7:31)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7DA615F00DFCD0D2C58CE47C7A91565A3C3497
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785039   (69415) от 14.03.2025
-
-Дайте танк (!) - Хрупко (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69415.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Конец
-2. М
-3. Фамилия
-4. Просьба(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7463351DEC58BF6844298C8B91095BA8216FA376
 ```
 
 

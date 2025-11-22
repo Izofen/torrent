@@ -1,3 +1,186 @@
+###  Публикация: 1722161   (109723) от 10.05.2024
+
+Crownshift - Crownshift (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stellar Halo (5:18)
+02. Rule The Show (4:33)
+03. A World Beyond Reach (4:09)
+04. If You Dare (4:50)(   Читать дальше...   )Жанр: Melodic Death Metal, Power MetalПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1F48978FD3B27BBC4599A7266F8A48CCC8374D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722089   (109724) от 10.05.2024
+
+Тревожный звонок / On the Line (2023) WEB-DLRip [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рабочий день телефонистки Агнес идет не по плану, когда она случайно перехватывает звонок и узнает о похищении женщины. В панике Агнес сообщает полиции о происшествии, но не может отпустить ситуацию — тогда девушка начинает собственное расследование.Производство: ВеликобританияЖанр: триллер, драма, детективРежиссер: Оливер ПирнАктеры: Виктория Люси, Ройс Пирресон, Харриет Уолтер, Джоанн Роджерс, Томас Блисс, Салли Гик, Ричард Хип, Крис Доннелли, Шинах Гован, Мелисса ТомПеревод: Дублированный (Akimbo Production) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:15:28Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722087   (109725) от 10.05.2024
+
+Тревожный звонок / On the Line (2023) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рабочий день телефонистки Агнес идет не по плану, когда она случайно перехватывает звонок и узнает о похищении женщины. В панике Агнес сообщает полиции о происшествии, но не может отпустить ситуацию — тогда девушка начинает собственное расследование.Производство: ВеликобританияЖанр: триллер, драма, детективРежиссер: Оливер ПирнАктеры: Виктория Люси, Ройс Пирресон, Харриет Уолтер, Джоанн Роджерс, Томас Блисс, Салли Гик, Ричард Хип, Крис Доннелли, Шинах Гован, Мелисса ТомПеревод: Дублированный (Akimbo Production) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:15:28Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722283   (109726) от 10.05.2024
+
+Demersal - Demersal (2024) [FLAC|Lossless|WEB-DL|tracks] <Emotional Hardcore, Screamo>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flakkende Som Tusinde Lys [00:01:17]
+02. Bedrager [00:02:02]
+03. Lys I Natten [00:01:53]
+04. Something [00:04:37](   Читать дальше...   )Жанр: Emotional Hardcore, ScreamoПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B05DF5BC9E42E10AB35C94760A37FA1AD98A250
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722139   (109727) от 10.05.2024
+
+VA - Junk Boat Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Day - Brain Stew (3:13)
+02. All Time Low - Sleepwalking (3:07)
+03. Paramore - Running Out of Time (3:12)
+04. MIKE SHINODA - In My Head (2:52)(   Читать дальше...   )Жанр: RockПродолжительность: 01:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA4EFAE6092AD68C70FF3D4A3DF41C67239877F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722045   (109728) от 10.05.2024
+
+Mick Clarke - Winter Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Sun [00:03:02]
+02. Just Dropped In [00:04:13]
+03. I Like It Like That [00:02:20]
+04. River's Invitation [00:03:49](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8ABADC3ADD46D1BC90D2724727790379AF12C58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722218   (109729) от 10.05.2024
+
+Эдi - Сомачувствия (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сома [00:04:00]
+02. Ядра золотые [00:03:29]
+03. Деньги [00:03:12]
+04. Откровенные тайны [00:03:24](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B49AE5E60A77083E49F98B4D5FAD21D05AAF099
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722219   (109730) от 10.05.2024
 
 Похороны Друзей - Кардиосклеп (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop, Indie Rock>
@@ -502,195 +685,6 @@ The Treatment - Wake Up The Neighbourhood (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B6384778E3152E5C4CFE350E70DCE0BCE47249A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722343   (109749) от 10.05.2024
-
-The Treatment - Wake Up The Neighbourhood (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Wake Up This Town (3:07)
-02. Back To The 1970's (3:20)
-03. When Thunder And Lightning Strikes (4:14)
-04. This Fire Still Burns (3:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CA6F3BE851BFF232B36A77A72971EE54E48607
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722336   (109750) от 10.05.2024
-
-Jazztick - Super Jazztikong Country (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:22)
-02. Title theme (2:10)
-03. Simian Segue (2:52)
-04. Snakey Chantey (2:55)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7DA1246CED99D7E6376909704C8553A2AE6384
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722165   (109751) от 10.05.2024
-
-VA - Acid Jazz Beats & Breaks Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vito Lalinga (Vi Mode Inc. Project) - Bua (4:09)
-02. S-Tone Inc. - Get Freaky Now (feat. Marlon) (Acid Jazz Mix) (5:25)
-03. The Funk Soul Brothers - Love Jazz Funk Bla Bla Bla (3:50)
-04. Ltj Xperience - Best Life (7:39)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817FEAB98020F214DF0B54CB10159E00CADC0480
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722243   (109752) от 10.05.2024
-
-Всеволод Гаршин | Сказки и рассказы для детей. 5 класс (2008) [MP3, Вячеслав Герасимов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Школьная программа.
-Всеволод Михайлович Гаршин (1855–1888) русский писатель, поэт, художественный критик.
-В сборник вошли аллегорический рассказ «Красный цветок», «Сказка о жабе и розе», басни-притчи «То, чего не было» и «Attalea princeps», в которых животные и растения ведут себя подобно людям, и «народный» рассказ «Сигнал».
-Несмотря на жанровое разнообразие, (   Читать дальше...   )Жанр: Русская литература для детей, классика, рассказ, сказкаИздательство: Студия «АРДИС»Продолжительность: 02:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FEE0179C7A53ECDF2F22B9FF47383C4AC9D0B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722158   (109753) от 10.05.2024
-
-VA - Modern Funk (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ltj Xperience - Don't Let The System  Get You Down (Regrooved Mix) (7:33)
-02. Les Jeux Sont Funk - Take Me To The Top (5:29)
-03. Bebo Best - Uncle T Boogie (3:27)
-04. Lainz - Sfrombolus (Gaudi Cosmic Remix) (6:05)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 02:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD80059502420E9162837565684B41CD72C7A5BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722163   (109754) от 10.05.2024
-
-VA - Smooth Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P. A. Jeron - Habit (4:14)
-02. Alixia Mistral - D. D. D . (4:28)
-03. Anduze - Getting You Off (After Sex Version) (4:40)
-04. Paolo Sessa - Out Of My Mind (4:02)(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 01:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8600AA82B5349BECFD7222C05FF1011C61B21013
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722138   (109755) от 10.05.2024
-
-VA - Global Rock Fusion (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poppyheads - Out of Time (2:50)
-02. Dr. Sin - Have You Ever Seen the Rain (4:11)
-03. Mother Mother - Normalize (Sped Up) (3:51)
-04. Taking Dawn - Take Me Away (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 01:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C84BB426B6DDBD681E2BB50983DC12F0630C19E
 ```
 
 

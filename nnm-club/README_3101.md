@@ -1,3 +1,203 @@
+###  Публикация: 478750   (98749) от 06.04.2012
+
+VA - TMP: Vanilla Dreams - 065 (24.03.2012) [MP3|320 kbps]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98749.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Emma Hewitt - Colours (Jerome Isma-Ae Remix)
+002. Eximinds - Forever Love (Original Mix)
+003. Ilya Bezlepkin feat. Monique - Hold On (Original Mix)
+004. Dennis Sheperd & Alan Morris feat. Sue McLaren - I Die (Album Extended Mix)
+005. Danyella & Tiff Lacey - Memories (Original Mix)
+006. George Acosta feat. Emma Lock - Never Fear (ATB Remix)
+007. Faruk Sabanci feat. Antonia Lucas - No Way Out (Original Vocal Mix)
+008. John O' Callaghan feat. Cathy Burton - Perfection (Shogun Remix)
+009. Foyle & Zo - Simple Things
+010. Exostate - Without Warning (Myon & Shane 54 Monster Mix)24.03.2012Жанр: Vocal TranceПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA0FDD1C60B406F3AE44D2D89AAFB51A94DDA19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478709   (98750) от 06.04.2012
+
+[Wallpapers] Cars HD Wallpapers (06.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F5D1FFA479B9449B596BE6149D148E3969B09C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478825   (98751) от 06.04.2012
+
+VA - April Club Party (2012) [MP3|160-320 кб/с]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98751.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. El Ray - Безлимитная любовь (Dj Denis Rublev & Dj Natasha Baccardi remix) (6:19)
+2. Леона Аврелина & Shaplin - Цунами (3:38)
+3. Vlad Bostan (Darwin) feat D.I.P Project - А Кто Я Для Тебя (DJ Vit Remiх) (4:09)
+4. Ilya Voice - Солнце Моё (Stereo People Radio Mix) (4:27)
+5. David Tort & Norman Doray - Chase The Sun (Original Mix) (3:46)
+6. Инфинити - Ты мой герой (club remix) (3:45)
+7. Смысловые Галлюцинации - Вечно молодой (Nejtrino radio mix) (4:03)
+8. Junior Caldera feat. Billy Bryan - What You Get (Original Radio Mix) (3:08)
+9. Alexey Romeo feat. JWell - Расправь Мои Крылья (Extented Mix) (6:40)
+10. Javi Reina & Syntheticsax - Oig (DJ V1t & Fast Food remix) (5:17)2012Жанр: ClubПродолжительность: 08:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9B00BAE462A7DD1D419DCEB184E188B9652500
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477669   (98753) от 06.04.2012
+
+Altar of Plagues - 6 альбомов (2006-2011) [MP3|128 - 320 кб/с]<Black Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neptune is Dead (18:44)
+ 02. Feather and Bone (11:42)
+ 03. When the Sun Drowns in the Ocean (08:17)
+ 04. All Life Converges to Some Center (13:15)2006-2011Жанр: Black MetalПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478800   (98763) от 06.04.2012
+
+Журнал | СтройПодряд №11 [апрель 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельный иллюстрированный рекламно-информационный журнал, на страницах которого Вы найдете статьи и интервью о строительстве и обустройстве дома, наглядные идеи по дизайну интерьера, полезные рекомендации и советы по выбору материалов и инструментов, пошаговые инструкции по ремонту, уходу за домом и участком, а также много полезной информации о новинках рынка, товарах и услугах по ремонту и строительству.апрель 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E5E80518A1ACD9FBCBD50BB2C16E47EE901517
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478831   (98768) от 06.04.2012
+
+VA - The Chillout Lounge (2012) [MP3|320 kbps]<Chillout | Downtempo | Lounge>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Rio Sound System - Over & Over
+02 Rafael Lopez - Gypsy Drums
+03 Court Out - My World (feat Mary Lee - d&b mix)
+04 Smokey Tone - Luna Generosa
+05 Losing Genius - Changing World
+06 Uru Mystic Quartet - After Hours
+07 Diego Clamente - Glimpse Of Home
+08 Iboshim Sounds - Sunset On The Water
+09 Brothers Moreno - Time Tracking
+10 Modern Science - Sax Control(   Читать дальше...   )2012Жанр: Chillout | Downtempo | LoungeПродолжительность: 04:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F60EFD72478EA1DA5C8ACB5CE11196392E059F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479032   (98769) от 06.04.2012
+
+Журнал | АиФ. Спецвыпуск. Здоровье №3 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весна - это время, когда каждая женщина начинает с особым интересом и пристрастием разглядывать себя в зеркале. Хочется быть ещё более ухоженной, красивой, желанной. А что для этого необходимо? "АиФ" знает ответы на все вопросы и всегда старается помогать читателям.
+Сегодняшний спецвыпуск полностью посвящён вопросам ухода за собой. В нём вы найдёте ответы самых именитых врачей-косметологов на вопросы читателей "Аргументов и фактов".
+Что нужно для того, чтобы встретить весну во всеоружии? Подробности читайте в этом номере!2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F094B9CEB9C21A1123041FA8E34158CB1D81979A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478706   (98770) от 06.04.2012
 
 [Wallpapers] Computer Desktop Wallpapers Collection (06.04.12)
@@ -522,195 +722,6 @@ magnet:?xt=urn:btih:0AB3FC1EB44CFE4186286C62B0A11114176969DC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED07577EAA4D376DBA2B972775530E3EA48DC967
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479679   (98816) от 07.04.2012
-
-[Wallpapers] Desktop Wallpapers №5
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98816.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №5
-Название: Desktop Wallpapers №5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0467081298E42C9E6F930623C1E5B3E49DFAE429
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479466   (98819) от 07.04.2012
-
-[Wallpapers] Best Wallpapers (07.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C871BB0F09C4A26B020C6354F348C7AC498522
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478461   (98820) от 07.04.2012
-
-Various Artists - Tranceffect 18 (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tomas Heredia- Hurricane (Radio Edit)
- 02. Max Graham feat. Susana-Down To Nothing ({am} Extended Mix)
- 03. Solarstone & Haris C-Ultraviolet (Haris C Mix)
- 04. Meridian vs. Arctic Moon vs. ReOrder-Smile In Biscay Bay (LarSson & Lucas Comes Mashup)
- 05. Running Man & Ahmed Romel-Azure (Running Man Edit)
- 06. John OCallaghan-Psychic Sensor (Indecent Noise Remix)
- 07. Talla 2XLC-Salvation (Club Mix)
- 08. Keelin Temple vs Heatbeat-Iridescent (Reach & Height Rosary Mashup)
- 09. Skylight-Autumn Wonderland (Aero 21 Remix)
- 10.  7 Baltic-Hidden Life (Original Mix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B83DE5352DEAD7699A1ED299127BA658B8211D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479700   (98822) от 07.04.2012
-
-[Wallpapers] Anime Wallpaper (08.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D16F16A6A4501B465E48D27681373BF7B345D02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479752   (98823) от 07.04.2012
-
-[Wallpapers] Desktop Wallpapers №13
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98823.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №13
-Название: Desktop Wallpapers №13
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9909F1F839812D790DD84E5C174CB3C78A832968
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479432   (98825) от 07.04.2012
-
-[Wallpapers] HD Wallpapers №7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98825.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers №7
-Название: HD Wallpapers №7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C50C6C589C26B526D2F36B1F66904B0ED4BE0EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479459   (98826) от 07.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (07.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785824954076D2B64F5101F049765558BF11A591
 ```
 
 

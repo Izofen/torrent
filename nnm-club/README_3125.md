@@ -1,3 +1,192 @@
+###  Публикация: 485635   (100102) от 21.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (21.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B29D6C787DB0320228B9AF50F01D0A56DC1CEDC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486232   (100103) от 21.04.2012
+
+[Wallpapers]45 Wonderful Planes
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100103.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers]45 Wonderful Planes
+Название: 45 Wonderful Planes
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpegВремя раздачи: до 5 скачавших
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6016503E29F8C4981DAB037E4CFEFAE3E8797625
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486107   (100105) от 21.04.2012
+
+VA - TMP: Trance Harmony 064 (2012) [MP3|320 kbps]<Trance, Uplifting Trance, Dream Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix)
+02. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix)
+03. Super8 - Cre8 (Mike Saint-Jules Remix)
+04. Squarz Kamel - Crystal (Original Mix)
+05. Steve Allen - Dont Leave Me (Pro-gtr Remix)
+06. Cressida & Natalie Paris - Easy To Forget (Club Mix)
+07. Arty vs. Imogen Heap - Seek Zara (SHato & Paul Rockseek Mashup)
+08. Stana - Sonya
+09. Straight Up - The Sky Is Not The Limit (Original Mix)
+10. Blue Tente feat. Aelyn - You're Not Mine (Balearic Mix)2012Жанр: Trance, Uplifting Trance, Dream TranceПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18814D2D27C521860E98F901759D1A6567C42B4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485637   (100107) от 21.04.2012
+
+[Wallpapers] Space Wallpapers (21.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0613C7B7B222EE86E52B321F7EA328D8F2C67EB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485682   (100113) от 21.04.2012
+
+[Wallpapers] Wallpapers Fantasy №8 (Pavel)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола 50 шт
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:452E2E47C78DCC06DD357AC3A242E747775FD85C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486025   (100115) от 21.04.2012
+
+[Wallpapers]Супер коллекция обоев
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100115.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers]Супер коллекция обоев
+Название: Супер коллекция обоев
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050/2560х1920
+Расширение (тип) файлов: jpegВремя раздачи: до 5 скачавших
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A52E1E916D414F14975113AA68929AAA77D560
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486052   (100120) от 21.04.2012
+
+[Wallpapers]Texture Wallpapers
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100120.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers]Texture Wallpapers
+Название: Texture Wallpapers
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080/8542х5627
+Расширение (тип) файлов: jpegВремя раздачи: до 5 скачавших
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23971B4C11F7A3F47355AC3C1333167047240859
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485841   (100121) от 21.04.2012
 
 VA - Chill Out Room XVI [3CD] (2012) [MP3|320 кб/с]<Trance>
@@ -497,192 +686,6 @@ magnet:?xt=urn:btih:CB2AE6516D9CA3903E0C582A9204022127513910
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:864157A5CEAA9B8792414FF7E483C1CB6AB17529
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486285   (100181) от 22.04.2012
-
-Журнал | Автомир [Украина] №17 [апрель 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100181.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Автомир» — первый еженедельный автомобильный журнал, который предоставляет самую разнообразную информацию из мира автомобилей: от репортажей с международных автосалонов до сравнительных тестов автомобильных шин и масел различных фирм.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C58B7FC2CF4692B508B5502CCFC2819CD6C45D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484211   (100193) от 22.04.2012
-
-VA - Клубные Новинки Vol.61 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sebastian Brandt - Mana (Original Mix)
-02. Rafael Frost - Channel 4 (Original Mix)
-03. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix)
-04. Armin Van Buuren & Orjan Nilsen - Belter (Original Mix)
-05. Phunk Investigation - Smash (Original Mix)
-06. Morgan Page feat. Nadia Ali - Carry Me (Extended Mix)
-07. Kachu MX - Alien Bubble (Original Mix)
-08. suGar, Eva Kade, Evil T - All Around (Blood Groove & Kikis Remix)
-09. Matula feat Goldsound - Wonderful World (Gaga Remix)
-10. Chris Online feat. Alray - Once Again (Horny United Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35CE40D0589331F0BB4357B7BC9DA246667A8E06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486208   (100199) от 22.04.2012
-
-Журнал | Yes! №159 [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yes! – авторитетный советчик, чье мнение очень важно для его молодой и активной аудитории. Журнал говорит на одном языке со своими читателями обо всех важных для них проблемах.март 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B660186F3FA93BDB18E5328A4413E8F69120937
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485943   (100204) от 22.04.2012
-
-[Wallpapers] Чарующая природа
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка высококачественных обоев на тему "Чарующая природа"
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF4EF3175F8A3B444A35B512EBEE4845EDC0C6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486030   (100206) от 22.04.2012
-
-Lorraine Feather - Tales of the Unusual (2012) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hole in the Map (5:21)
-02. Off the Grid Girl (6:13)
-03. Where is Everybody (4:58)
-04. The Usual Suspects (4:17)
-05. Five (4:13)
-06. Sweet Miriam (3:49)
-07. Out There (4:43)
-08. Get a Room (4:29)
-09. Cowbirds (7:01)
-10. I Took Your Hand (Fellini's Waltz) (3:31)(   Читать дальше...   )2012Жанр: Vocal JazzПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486071   (100208) от 22.04.2012
-
-Журнал | Домой. Строительство и ремонт №14 [2012 апрель] [JPEG]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специализированный рекламный журнал2012 апрельФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00286710143056BD9EBADC3DA8F2AA4A07BFF75C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485908   (100213) от 22.04.2012
-
-Godgory - Resurrection (1999) [MP3|320 кб/с]<Doom Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Resurrection (7:06)Жанр: Doom DeathПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:855750DC3BD7EC20D860101C3403D68D3353DC59
 ```
 
 

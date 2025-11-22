@@ -1,3 +1,215 @@
+###  Публикация: 467123   (97098) от 18.03.2012
+
+VA - Nope is Dope vol.12 2CD (2012) [MP3|~256 кб/с]<House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wally Lopez - Coolest
+02. Franky Rizardo & Skitzofrenix - Patulego
+03. Dave Rose & Will Clarke Ft. Mr Eyez - If Yo Ready
+04. Hardsoul Ft. Baggi Begovic - Survival
+05. Myomi Ft. Amber Jolene - Sun In My Eyes (Keith & Supabeatz Remix)
+06. The 2 Bears - Work (Franky Rizardo Remix)
+07. Skitzofrenix - Droppin That
+08. John Dahlback - Are You Nervous (Rene Amesz Rework)
+09. Olav Basoski - The Rain
+10. Oliver Twizt - Love Trip(   Читать дальше...   )CD 1: (Mixed by Firebeatz)
+Продолжительность: 01:03:01
+Битрейт: ~258 кб/с
+
+01. Firebeatz - Funky Shit
+02. Hardwell - Cobra
+03. House Republic - Nuggetz (Richard Grey Original Mix)
+04. Marcel Woods - Inside Me (Bassjackers Remix)
+05. Nicky Romero - Toulouse
+06. Bingo Players - Rattle(   Читать дальше...   )2012Жанр: HouseПродолжительность: 02:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:736E77EE49D200D9A80C2A0F7135CB3626A5563F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469766   (97099) от 18.03.2012
+
+VA - Звездная Вечеринка. Зарубежные Новинки (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97099.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roxette - Sleeping In My Car (Dj Favorite Delicious Remix)
+002. The Disco Boys - Around The World
+003. Medina - Lyser i morke
+004. Hardcore vibes - Global Deejays
+005. Justin Timberlake - Like I Love You (Extended Club Mix II
+006. No Mercy - Where Do You Go (Johan K & Eddie Mono Horny Bootleg Edit)
+007. Milena & Murzin Denis - Touch Me (Radio Version)
+008. Geri Holliwell - Let Me Love You More
+009. Tom Boxer Vs Tematik & Kerim Muravey & Алие Дживан - Я Улетаю
+010. The Anarchist - Battlescarz (original mix)2012Жанр: Pop,DanceПродолжительность: 06:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD10AB963DCFB371341C81A273E56C21ECA7C37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469448   (97100) от 18.03.2012
+
+Kaspersky World 1.3.2.99 [Multi / Rus]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaspersky World – это комплексное решение для работы с антивирусными продуктами Лаборатории Касперского. Позволяет загружать ключи, сбрасывать триал и т. д.Название программы: Kaspersky WorldЯзык интерфейса: Multi / Rus
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470003   (97102) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 97
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97102.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 97
+Название: Desktop Wallpapers Pack 97
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C22393C5DFC35DB6B7768342036B2884D5D4889
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469917   (97103) от 18.03.2012
+
+VA - Soul of Ibiza Volume 27 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97103.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kyau & Albert - A Night Like This (Original Mix) (6:03)
+2. DNS Project feat. Madelin Zero - Another Day (Original Mix) (6:25)
+3. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix) (6:11)
+4. Beat Service feat. Neev Kennedy - But I Did (Xtigma Remix) (6:33)
+5. Eco feat. Radmila - Change The World (6:04)
+6. Richard Durand - Chopstick (8:21)
+7. Matt Darey & Kate Louise Smith - Crown Of Thorns (Aurosonic Progressive Mix) (6:47)
+8. Ralphie B - Delphi (Original Mix) (8:29)
+9. Billy Gillies - Digital Sundown (Paul Todd Remix) (8:44)
+10. Solarstone feat. Bill Mcgrudy - Electric Love (Piotro Microprog Love Mix) (9:16)2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61EE60C83C869E3DCDF08A227A192AB16611CDE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470023   (97104) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 102
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97104.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 102
+Название: Desktop Wallpapers Pack 102
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C29AC0F2FEEEAA082CCEA9CF9857391FC8AA286
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469665   (97105) от 18.03.2012
+
+Пятерка кладоискателей / Treasure Buddies (2010) DVD9
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепная Пятерка и ее новые друзья, должны приложить все силы к тому, чтобы перехитрить коварную кошку, разгадать сложные загадки и проникнуть в таинственную гробницу. И все это — ради величайшего сокровища животного мира.Жанр: Комедия, Приключения, СемейныйРежиссер: Роберт ВинсАктеры: Ричард Риле, Эдвард Херрманн, Мэйсон Кук, Адам Алекси-Маль ,Таккер Албрицци ,Филд Кейт, Мэтт Галлини ,Кейтлин МехерПеревод: ДублированныйЯзык субтитров: английский, русский, украинский, латвийский, литовский, эстонскийПродолжительность: 01:29:04
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470128   (97107) от 18.03.2012
 
 Журнал | Любимая дача №4 [2012] [PDF]
@@ -525,211 +737,6 @@ Mike Rowland - The Magical Elfin Collection (Edition 2004) (1989)
 Тип рипа: image+.cueТрек лист:
 01.  And So To Dream [09:52]
  02. Solace (2) [09:46](   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469385   (97138) от 18.03.2012
-
-VA - TOP 30 Клубные РУССКИЕ Новинки (17.03.2012) [MP3|128-320 кб/с]<Dubstep, Drum & Bass, Trance, Electro-House, Club House, Dance, Club, Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Smash & Винтаж - Москва (DMC Style Dubstep Remix)
- 02. Gasym vs Just Born Genius - Normally do it will be normal 2012 ( Dj Najim Hassas Saxo Remix ) Ver. 3.0 Mastering
- 03. Kishe - Город (Marahovsky Remix)
- 04. Lerika - Небо и Земля (KrissMorris Remix)
- 05. Maksim - Vesna (Cursed dubstep rmx 2012)
- 06. Potap i Nastya Kamenskih Chumachechaya Vesna Slava Inside remix
- 07. RiDer MC 77 prod Aeroport Dj Amor Remix
- 08. Sandrique feat. Siatria - Закрой Глаза remix
- 09. Ёлка – Около тебя (Andry Makarov Club Remix)
- 10. Алиса Логина & Dj Anton Liss - Если Захочешь (Radio Edit)17.03.2012Жанр: Dubstep, Drum & Bass, Trance, Electro-House, Club House, Dance, Club, PopПродолжительность: 03:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82975586F62B749EB433A8D14891ABBCA0DD6D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469424   (97139) от 18.03.2012
-
-VA - Русская Супер 200-ка (2012) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97139.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mainstream One - Я С Тобой
-002. Milena Murzin Denis - Touch Me (Radio Version)
-003. Salvatore Djs Staya - Не Уходи (Radio Edit)
-004. Mmdance - Ломай Себя Полностью
-005. Vlad Bostan - Задыхаюсь
-006. София Ротару - Мы Будем Вместе
-007. Ваня Романов Feat. Jordan - Я Для Тебя Живу
-008. Roma Kenga - Ты Будешь Счастливой (Mexx Beat Remix)
-009. Группа Элемент - Она Такая
-010. Поющие Трусы - Спортивный Интерес(   Читать дальше...   )2012Жанр: PopПродолжительность: 12:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FBC9F53D30E37D2245A7EE6734CBCD767E37164
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470156   (97140) от 18.03.2012
-
-[Wallpapers] Best Wallpapers Pack 3
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97140.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Best Wallpapers Pack 3
-Название: Best Wallpapers Pack 3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87EE6E05322C72E0B5CA21F313C9CACD9BF434FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469835   (97142) от 18.03.2012
-
-Матерiалы для исторiи русскаго флота (1865-1904) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материалы для истории русского флота — многотомное издание документов, журналов, официальной и частной переписки, относящихся к деятельности русского флота с 1702 по 1801 годы. Всего с 1867 по 1904 год было издано 17 томов «Материалов...». Общий объём издания составил 12 000 листов in quarto, которые и предлагаются в раздаче. Инициатива создания этого собрания принадлежала (   Читать дальше...   )Жанр: История, военная история, энциклопедии, раритетФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C2A561368674A4F05E6E9477DB1E0BEEF8722D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469780   (97144) от 18.03.2012
-
-Дейл Фурутани | Убить сегуна [2008] [RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97144.jpg" />
-</div>
-
-
-###  Подробнее
-
-...Эдо.
-Новая столица Японии, не успевшей еще зализать кровавые раны жестокой гражданской войны.
-Твердыня клана Токугава, силой и хитростью вырвавшего власть из рук наследников Тоетоми Хидэеси.
-Здесь все еще нельзя доверять никому - ни другу, ни врагу, ибо каждый способен прятать в рукаве кинжал или пузырек с ядом.
-И теперь гибель, похоже, угрожает самому сегуну.
-Его люди убеждены - наемный убийца просто промахнулся, застрелив стоящего рядом с Токугавой Иэясу советника.
-И только ронин Мацуяма Кадзэ, всей душой ненавидящий клан Токугава и его приспешников, догадывается, как и почему произошло это преступление...2008Жанр: Исторический романФормат: RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A492934128F39F577AEB04E4367485B8A58EAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469668   (97145) от 18.03.2012
-
-Ruthie Foster - Let It Burn (2012) [MP3|~245 кб/с (V0)]<Blues, Gospel, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97145.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Welcome Home Foster
-2 Set Fire to the Rain Adkins, Fraser T. Smith
-3 This Time Hidalgo, Perez, Perez
-4 You Don't Miss Your Water Bell
-5 Everlasting Light Auerbach, Carney
-6 Lord Remember Me Foster
-7 Ring of Fire Carter, Kilgore
-8 Aim for the Heart Foster, Tiven, Tiven
-9 It Makes No Difference Robertson
-10 Long Time Gone Crosby(   Читать дальше...   )Жанр: Blues, Gospel, SoulПродолжительность: 00:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BCFDBE51B42D3EDC608C159D43261AD78E1ADFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469836   (97146) от 18.03.2012
-
-Mozilla SeaMonkey 2.8 Final [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97146.jpg" />
-</div>
-
-
-###  Подробнее
-
-SeaMonkey — проект, основанный на добрых традициях Mozilla Suite. Классическая Mozilla развивалась много лет, обрела свой круг преданных фанатов, но так и не дошла до широких масс, выдвинув на эту роль красивый современный браузер Mozilla Firefox. За основу SeaMonkey взята Mozilla Suite, как проверенный годами продукт, обладающий колоссальной стабильностью и выверенным кодом. К этой основе было добавлено множество функций, ставших привычными для пользователей Mozilla Firefox и Mozilla Thunderbird. В состав SeaMonkey входит несколько компонентов.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash

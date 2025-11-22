@@ -1,3 +1,54 @@
+###  Публикация: 1796610   (66944) от 11.05.2025
+
+Believer - Sanity Obscure (1990) Released 1991, R/C Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive, Technical Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanity Obscure
+02. Wisdom's Call
+03. Nonpoint
+04. Idols of Ignorance(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4698C29E334DD4E360F1CC314FF5D8395B6BECA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796450   (66945) от 11.05.2025
+
+Корни / Frewaka (2024) WEBRip [H.264/1080p] [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66945.jpg" />
+</div>
+
+
+###  Подробнее
+
+После самоубийства матери, с которой она не общалась, Ши получает предложение подработать сиделкой у пожилой женщины в сельской местности. Та живет в большом доме поодаль от деревни, постоянно твердит, что за ней могут прийти некие они, и заставляет Ши соблюдать множество нелепых правил. Но вскоре девушке начинает казаться, что её подопечная не страдает деменцией (   Читать дальше...   )Производство: Ирландия / Cine4, DoubleBand Films, Fís Éireann / Screen IrelandЖанр: ужасыРежиссер: Эйслинн КларкАктеры: Клэр Моннелли, Бридь Ни Няхьтинь, Александра Быстржицкая, Клер Баррет, Шарлотта Брэдли, Тара Бретнэк, Grace Collender, Пидар Кокс, Jim Cunningham, Дороти Даффи и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:43:34Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796609   (66946) от 11.05.2025
 
 Keiko Lee - Voices (2002) Sony Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -615,60 +666,6 @@ magnet:?xt=urn:btih:77AE2520805015F0F905C6650A0CE06174C9B766
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796502   (66970) от 10.05.2025
-
-Praetor - The Spiral of Addiction (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Spiral of Addiction (05:11)
-02 - Carefully Selected (03:13)
-03 - People Pleaser (03:58)
-04 - Full Moon Rising (03:36)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB3B40B306F7FE04C916B72EF4350E2CB04F3E9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796452   (66971) от 10.05.2025
-
-Evan Christopher - Django a la Creole (2008) Lejazzetal [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Douce Ambience [5:22]
-02. Farewell Blues [4:08]
-03. Dinette [4:13]
-04. I Know That You Know [5:25](   Читать дальше...   )Жанр: SwingПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3755DF1C3718146D6A12DD0CE2CD256F375343
 ```
 
 

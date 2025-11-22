@@ -1,3 +1,57 @@
+###  Публикация: 1805081   (65514) от 04.07.2025
+
+Транкор - Разные вещи (2025) [MP3|320 Kbps] <Rapcore, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Разные вещи [00:03:03]
+02. Мало [00:03:07]
+03. Говорят [00:02:05]
+04. Атманов Угол [00:04:11](   Читать дальше...   )Жанр: Rapcore, Nu-MetalПродолжительность: 00:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD2BE59A37061FC3D2774608B053EF21E553247
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805247   (65515) от 04.07.2025
+
+Tim Morse - Transformation (20th Anniversary Edition) (2025) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Present Moment - Remastered 2025 (06:17)
+ 02 - To Set Sail - Remastered 2025 (07:12)
+ 03 - Prelude - Remastered 2025 (03:26)
+ 04 - Goodbye - Remastered 2025 (05:25)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4DECA80F7EB95424A793F0D507DBAA3FCA8894A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805117   (65516) от 04.07.2025
 
 Анатолий Некрасов | Пригласи любовь в свой дом (2024) [MP3, Игорь Демидов]
@@ -627,60 +681,6 @@ magnet:?xt=urn:btih:62AE8D2A0848D2C30412782C838DD278AC4B804D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE5A199756F020C3204656C93C4A8A936B835C01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804921   (65540) от 03.07.2025
-
-Neil Young And The Chrome Hearts - Talkin to the Trees (2025) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock, Roots Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Family Life [2:50]
-02 - Dark Mirage [5:40]
-03 - First Fire of Winter [4:44]
-04 - Silver Eagle [3:18](   Читать дальше...   )Жанр: Rock, Country Rock, Roots Rock, Folk RockПродолжительность: 00:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B7E49D9F876A4CCA5870B1CF6BCC7446A2D3ABB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805034   (65541) от 03.07.2025
-
-VA - Afro Funky Mix (Summer 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jestofunk - Fluid (6:34)
-02.  Funk Mediterraneo - Tribe Secret (4:10)
-03.  Vito Lalinga (Vi Mode Inc. Project) - Afro Bahia (5:24)
-04.  Yuri Piccolotto - Save Our Souls (6:29)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CEA927C96E19089DF7FAE824190396718C480FF
 ```
 
 

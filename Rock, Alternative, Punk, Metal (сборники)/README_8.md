@@ -646,55 +646,55 @@ magnet:?xt=urn:btih:D91EB310981E342E54B11F827A90AF8410FA399A
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830246   (202382) от 26.10.2025
+###  Публикация: 1628128   (199526) от 21.04.2023
 
-Ronnie James Dio - Voice Of Rock - Compilation (1960-2011) [MP3|320 Kbps] <Heavy metal, Hard rock>
+VA - Rock Ballads (2023) [MP3|320 Kbps] <Rock>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202382.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199526.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Walking Alone (& Ronnie Dio & The Prophets) ❂ Ronnie Dio & The Prophets 1961
-02. Long Live Rock 'n' Roll (& Rainbow) ❂ Long Live Rock 'n' Roll 1978
-03. Bible Black (& Heaven & Hell) ❂ The Devil You Know 2009
-04. Sitting In A Dream (& Roger Glover) ❂ The Butterfly Ball & The Grasshopper's Feast 1974(   Читать дальше...   )Жанр: Heavy metal, Hard rockПродолжительность: 10:11:42
+01. Seether - Broken (4:18)
+02. Metallica - Nothing Else Matters (Remastered 2021) (6:28)
+03. Five Finger Death Punch - Times Like These (3:29)
+04. Three Days Grace - Lifetime (2:56)(   Читать дальше...   )Жанр: RockПродолжительность: 05:04:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06E21F92122C44F0A28C80721DC7B505CD7E9BA6
+magnet:?xt=urn:btih:08109D66CF80AC0C9691E8BF4E4337494C72194C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614345   (202500) от 22.02.2023
+###  Публикация: 1626027   (199869) от 13.04.2023
 
-VA - Rock Hits 150 v2 (2023) [MP3|320 Kbps] <Rock, Metal>
+VA - Rock Covers (2023) [MP3|320 Kbps] <Rock, Alternative>
 
 >>Неофициальные сборники
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199869.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Cheap Trick - Mighty Wings From Top Gun
-002. Gotthard - Hush
-003. ACDC - Hells Bells
-004. Scorpions - Peacemaker(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 09:48:27
+01. Florence + The Machine - Just A Girl (From The Original Series “Yellowjackets”)
+02. Daughtry - Separate Ways (Worlds Apart)
+03. Måneskin - If I Can Dream (From The Original Motion Picture Soundtrack ELVIS)
+04. Guns N' Roses - Knockin' On Heaven's Door(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 06:24:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A0A1D37EC42EB2EB744BFBD16E472A6C89AD060
+magnet:?xt=urn:btih:4FBE1DB82B8112898D17AAC1D8DA43990B89CC69
 ```
 
 

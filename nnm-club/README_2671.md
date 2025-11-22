@@ -1,3 +1,57 @@
+###  Публикация: 1781468   (70194) от 23.02.2025
+
+Robert Hurst - One For Namesake (1994) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incognegro [5:40]
+02. Chilin' at the Sloat [8:55]
+03. Jill of All Trades [5:31]
+04. Thad's Blue Plaid [7:32](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8656744A3F532F7EC62EC7F11C542D5A86AD0FF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781461   (70195) от 23.02.2025
+
+Kenny Garrett - Pursuance: The Music Of John Coltrane (1996) Warner [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Countdown [3:43]
+02. Equinox [7:39]
+03. Liberia [7:33]
+04. Dear Lord [5:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F7FC66B5F06059931CA6468773F9D3931E3087
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781431   (70196) от 23.02.2025
 
 НХЛ 2024-2025. Вашингтон Кэпиталз - Питтсбург Пингвинз (22.02.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
@@ -600,57 +654,6 @@ VA - Rock Metaphysical Melodies (2025) [MP3|320 Kbps] <Metal, Hard-Rock, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9BA31E434763E276023E9999D3322D24F79CC19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740719   (70220) от 23.02.2025
-
-ЗакЛинания - Экзорцизм (2018) [MP3|320 Kbps] <Punk, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - ПодСказка 3:03
-02 - С тобой 4:01
-03 - Хватит 2:07
-04 - Смотри на небо 3:46(   Читать дальше...   )Жанр: Punk, RockПродолжительность: 00:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4756D8693CABB698912634A6E812437ED5CD0E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781441   (70221) от 23.02.2025
-
-Шрифты - Zetafonts - Codec Pro [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Codec Pro — новейшее воплощение семейства Codec, разработанное в 2017 году Франческо Кановаро, Козимо Лоренцо Панчини и Андреа Тартарелли в качестве исследования тонкостей и вариаций на тему геометрического дизайна без засечек. Оригинальный шрифт был полностью переработан и расширен, чтобы включать широкий диапазон из одиннадцати весов, от волосяного тонкого до объемного (   Читать дальше...   )Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF8350EBB7F4E21ED271BC3DD229582D52A2004
 ```
 
 

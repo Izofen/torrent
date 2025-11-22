@@ -1,3 +1,192 @@
+###  Публикация: 1762269   (102936) от 24.11.2024
+
+The End - Within Dividia (2004) Deluxe Edition, 2024, Relapse Records[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Math Rock, Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. These Walls (2024 Remaster) [00:04:41]
+02. Fetesque (2024 Remaster) [00:03:55]
+03. The Sense of Reverence (2024 Remaster) [00:03:04]
+04. The Scent 0f Elegance (2024 Remaster) [00:03:13](   Читать дальше...   )Жанр: Math Rock, HardcoreПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C76C9C16317C63D2D24897B29A395672887E23E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762109   (102937) от 24.11.2024
+
+Zombie Death Stench - Here I Die... Zombified (2007) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quietus 01:26
+02. The Fog 03:43
+03. Death 1 04:56
+04. Dessicate 05:04(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F91F2190585CD62B44224C7A15FF0E9974E8B59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762329   (102938) от 24.11.2024
+
+Venduzor - Covered By The Blood (2010) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning in Hell 05:42
+02. Covered by the Blood 05:59
+03. Hidup Penuh Penindasan 04:59
+04. Rotten Dead Bodies 05:44(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA69C85A7C10B1A4419405E71D71B6585E985A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762074   (102939) от 24.11.2024
+
+Shardless - Fairytales... Out Of The Dark (2008) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thrust
+02. Through the Stars
+03. Fairytales... Out of the Dark
+04. Black Empire(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13387DBF837EDF868D3C45A61C227710734190CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762051   (102940) от 24.11.2024
+
+Master's Hammer - (Slagry) Šlágry (1995) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Šavlový tanec 03:28 instrumental
+02. Ach, synku, synku 07:54
+03. Půjdem spolu do Betléma 03:41
+04. Indiánská píseň hrůzy 05:17(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6595FEAB70050B34B6F0A9E9BA5CACE54F0A438
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762108   (102941) от 24.11.2024
+
+Fleshbomb - Reincarnated In Abomination (2014) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude to Demolition (Intro) instrumental 00:50
+02. Compulsive Clitoridectomy 03:34
+03. Reincarnated in Abomination 03:03
+04. Abdominal Self-Mutilation 03:07(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111984B0B436428D45DD014E6BB5522FBAFDD05C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762072   (102942) от 24.11.2024
+
+Seven Tears - In Every Frozen Tear (2007) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twist Of Fate
+02. Faded Memory
+03. Hollow Ground
+04. Reflections(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53C2EB5F98A035AEC5BD9C04134D955FCFD7492
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761898   (102943) от 24.11.2024
 
 The Soup Dragons - Lovegod (1990) [FLAC|Lossless|tracks + .cue] <Rock, Indie Rock>
@@ -494,191 +683,6 @@ Lost in Hollywood - The Beauty of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D4696B1299538FF3B65C223A27B6790BE8637F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762205   (102962) от 24.11.2024
-
-Wolfheart - Draconian Darkness (2024) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102962.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ancient Cold
-2. Evenfall
-3. Burning Sky
-4. Death Leads The Way(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD98328FA574C9488E4F179020F85799A0D0C1C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762083   (102963) от 24.11.2024
-
-Deep As Ocean - Dance With Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance With Death [00:00:57]
-02. Dark Place [00:03:16]
-03. Minefield [00:03:45]
-04. Lunar [00:00:52](   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D103F184BAF2982B00D91581F8F93BC7C518ADB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762293   (102964) от 24.11.2024
-
-Своя игра (24.11.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102964.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:416AFA2BB0A1DFCE5E117A411D5EB742252AA73C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762211   (102965) от 24.11.2024
-
-Первая передача на НТВ. Автомобильная передача (24.11.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как инспекторы ГИБДД оформили аварию со слов и проигнорировали то, что ДТП попало на запись сразу двух камер наблюдения?
- Автомобильный коврик: как его обслуживать, чтобы долго служил?
- Приставы годами не могут продать машину должника, который за это время успел скончаться.Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:25:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDA70E3F9C6621E5CBF9CCCBF511026B16BD8D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762173   (102966) от 24.11.2024
-
-PJ Harvey - To Bring You My Love (1995) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Bring You My Love (5:34)
-02. Meet Ze Monsta (3:29)
-03. Working for the Man (4:49)
-04. C'mon Billy (2:51)(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FECBD1124413DEB889D51F95D021F11FBDA45A66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762054   (102967) от 24.11.2024
-
-Интоксикация - The Best 1996-2002 (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сарацины / Saracens
-02. Умереть молодым / To die young
-03. Если не закон / If not the law
-04. Рай или тюрьма / Heaven or prison(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19FD84BBD35770393A46D249811360D099860448
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762080   (102968) от 24.11.2024
-
-Aeon Gods - King Of Gods (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun-God [00:04:00]
-02. King Of Gods [00:04:25]
-03. Aeon Gods [00:05:23]
-04. Babylon Burning [00:05:00](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD30B040E380C4FD5808D59C9F248ADDF5B578DF
 ```
 
 

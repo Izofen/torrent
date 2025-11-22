@@ -1,3 +1,57 @@
+###  Публикация: 1795552   (67048) от 05.05.2025
+
+Augury - Concealed (2004) Released, 2022, The Artisan Era [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67048.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Beatus (04:05)
+A2. ...Ever Know Peace Again (03:35)
+A3. Cosmic Migration (05:56)
+A4. Nocebo (05:22)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19E8C4B783D9087F942D866A93BBF0DF7C8B740
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795573   (67049) от 05.05.2025
+
+Augury - Illusive Golden Age (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67049.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Illusive Golden Age (05:50)
+A2. The Living Vault (06:10)
+B1. Carrion Tide (05:04)
+B2. Mater dolorosa (06:54)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D630BFAD5104F13A26E08EC4358F0DCEB58F6AD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795567   (67050) от 05.05.2025
 
 His Kingdom Suffers - Lord Have Mercy (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal, Deathcore>
@@ -628,57 +682,6 @@ Ricky Byrd - NYC Made (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C307F0E633F1029CDA898E09FD0222C3DFFEEA09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795386   (67074) от 04.05.2025
-
-The Gliding Faces - Veritas (2025) [MP3|320 Kbps] <Electropop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Things I Can't Explain [00:04:11]
-02. Wake Me Up Tonight [00:04:11]
-03. It's On Me [00:03:56]
-04. Runway [00:04:23](   Читать дальше...   )Жанр: ElectropopПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F84501F958667804F90A9E98B182975EC862BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794505   (67075) от 04.05.2025
-
-Берлинская неотложка / Krank: Berlin / Berlin ER (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67075.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того как её личная жизнь рушится, Паркер, желая начать всё с чистого листа, берёт на себя управление отделением неотложной помощи в непростой и суматошной больнице Берлина. Борясь с сопротивлением персонала и обветшалой системой, она должна объединить свою разношёрстную команду, чтобы спасать жизни.Производство: Германия / Violet Pictures, Apple TV+, Real Film BerlinЖанр: драмаРежиссер: Fabian Möhrke, Alex SchaadАктеры: Хейли Луиз Джонс, Славко Попадич, Safak Sengül, Aram Tafreshian, Самира Бройер, Berit Künnecke, Хэвиланд Стиллвелл, Simona Theoharova, Бернхард Шюц, Бенни Раджайпур и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-нет
 ```
 
 

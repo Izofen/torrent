@@ -1,3 +1,30 @@
+###  Публикация: 1815350   (5316) от 29.08.2025
+
+Dragonsfire - Rebirth of the Beast (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - We Ride (04:36)
+ 02 - Speak of War (04:10)
+ 03 - Hungry Beast (2025 Version) (04:59)
+ 04 - Preacher (04:28)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BEFDB2C4B0D72C925C47E4146D734F22592039
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815338   (5317) от 29.08.2025
 
 Rising Steel - Legion Of The Grave (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
@@ -640,30 +667,6 @@ magnet:?xt=urn:btih:3D2C0290CD9F0F4596C3AE2DDFB97553F6B52D1F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D91745B7FA89BC912C735E2CD6F8D6F6784FBE5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815317   (5342) от 29.08.2025
-
-Super Bomberman R 2 (2023) [Switch] [EUR] 16.1.0, Atmosphere 1.5.5 [License] [Ru/Multi]
-
->>Консольные Игры
->>Switch
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последний выпуск серии игр о партийных битвах SUPER BOMBERMAN R! С новыми приключениями и режимами игры, он имеет самый большой объем контента в истории серии! Помимо хорошо известных режимов "Стандарт", "Гран-при" и "Битва 64", добавлен новый режим битвы под названием "Замок", в котором игроки делятся на сторону Атаки и сторону (   Читать дальше...   )Тип издания: LicenseРазработчик: Konami, HexaDrive Inc.Жанр: Экшены, Казуальные игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B55FC884C767C3D8588D7041AB842DC30578CC
 ```
 
 

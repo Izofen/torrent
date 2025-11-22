@@ -1,3 +1,54 @@
+###  Публикация: 1788104   (68660) от 28.03.2025
+
+Firefox Browser 136.0.4 Portable by PortableApps [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772294777BA47FE7C4DD7F9C027E42DB33011663
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788135   (68661) от 28.03.2025
+
+VA - I Love ZYX Italo Disco Collection 11 (2011) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colonna - A Secret From My Heart
+02. Trick - Don't Cry Roxanna
+03. Silent Circle - Time For Love (Super Action Mix)
+04. Marco Rochowski - The Journey(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3717FD991860E38707A47E06D770E4B3925219C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788055   (68662) от 28.03.2025
 
 VA - I Love ZYX Italo Disco Collection 10 (2009) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
@@ -616,59 +667,6 @@ VA - Ibiza Springtime 2025 (Dancing In The Sunset) (2025) [MP3|320 Kbps] <Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B15825F92D598C2E6DC536108C01ECF7B2F04A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787779   (68686) от 27.03.2025
-
-Шрифты - Creative Market - Gatsby Gilmour - Art Deco Font - 290806347 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gatsby Gilmour — изысканный шрифт в стиле ар-деко, воплощающий в себе вневременной гламур и смелую эстетику 1920-х годов.
-
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159329F6184D82939A64774864462E0C7DD8E092
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787789   (68687) от 27.03.2025
-
-VA - Amsterdam Session 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleksey Litunov - Zero Two (Reprise) (06:32)
-02. Cryalta Generation - In The Air (06:03)
-03. CJ Stereogun - Cassiopeia (07:02)
-04. DJ 5L45H - Lumin4 (07:48)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FFA0E51BAA4CB4CD5EF2E8F3C7871159219DB90
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1790965   (67958) от 11.04.2025
+
+Allison August - August Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afraid of Love (3:16)
+02. Dashboard Madonna (4:38)
+03. I Won't Say No (3:50)
+04. What Would Mama Say (4:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7EBBF7107485F25F680724F8CDCDE8930AE6DD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790985   (67959) от 11.04.2025
+
+Cynthia Perkins - Blue Winter (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backwards Going Forwards (3:04)
+02. I’m Getting ‘long Alright (4:35)
+03. Blue Winter (4:00)
+04. Whinnie Widow Brown (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE59FC1AB2F7609A7B1E4E198619E0E2342C001
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790929   (67960) от 11.04.2025
 
 Headcrasher - Nothing Will Remain (1989) 2 x CD, Reissue, , 2017, Punishment 18 Records, Special Edition [FLAC|Lossless|image + .cue] <Thrash, Speed Metal>
@@ -602,54 +656,6 @@ magnet:?xt=urn:btih:53A3DE5286952E7675E745AF2CCDDBE357C4AE84
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE24D7E261071AF96D429B45F8086947074CED47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790870   (67984) от 11.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Mexican Knitted Flowers Seamless Pattern [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67984.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 Бесшовных цветочных узоров - Мексиканский трикотаж.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A664FB15A1FCDAB659DDB4864BC2C555B7BE583
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790877   (67985) от 11.04.2025
-
-Текстуры - DizzyArtStudio - Creative Fabrica - Maroon Iridescent Leopard Print Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Леопардовые текстуры.Формат: JPGРазрешение файлов: 3600 x 3601 - 3601 x 3601
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB9C211DC013DF659429EDFAB4856403DBD5231C
 ```
 
 

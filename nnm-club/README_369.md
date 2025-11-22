@@ -1,3 +1,30 @@
+###  Публикация: 1809667   (9745) от 31.07.2025
+
+VA - Bossa Nova Summer Beach Relax 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sarah Jane Morris - Missing (4:18)
+02.  Banda Brasileira - Dreams (4:50)
+03.  Soulstance - A Distant Look (2:41)
+04.  Christian Lisi - Diamonds (Bossa Version) (3:45)(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 01:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3AB38527314D297EE9703BEE7168B34BCDFCAD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809510   (9746) от 31.07.2025
 
 Rick Astley - Whenever You Need Somebody (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
@@ -613,30 +640,6 @@ magnet:?xt=urn:btih:2929889D24B9CC3606A2936AB54BA89C0E291E54
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C551DF16F9F4B208376C1511ACA67734FC2ECC56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809634   (9771) от 31.07.2025
-
-FreeVimager 9.9.26 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Графические редакторы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_9771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрое и бесплатное приложение для просмотра и редактирования изображений для Windows. FreeVimager позволяет открывать графические файлы форматов: JPEG, BMP, GIF, TIFF (многостраничный), PNG, PCX и EMF, имеет несколько полезных функций обработки картинок (поворот, изменение размера, настройка яркости, контрастности и цветности, наложение фильтров, удаление эффекта (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6EDE718B7671C11F08DBE1A42D60CF11FAEAB0
 ```
 
 

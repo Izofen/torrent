@@ -25,6 +25,33 @@ magnet:?xt=urn:btih:70FFFC67633FF4A86EE84C1539844084680E260B
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589201   (189668) от 11.11.2022
+
+VA - Compilation Part 10 (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_189668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elise Legrow - Feel Alright
+02. Trixie Whitley - Breathe You in My Dreams
+03. Ingrid Kup - Song of Hope
+04. Elise Legrow - Drinking in the Day(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7DE10639C7DACCF5185E1582A57E302339CF05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588748   (191024) от 06.11.2022
 
 VA - Dance Remixes 2022 Formentera Edition (2022) [MP3|320 Kbps] <Euro Dance, Club, House, Synthpop>
@@ -483,6 +510,168 @@ magnet:?xt=urn:btih:410F365820A21785CB21DFB3D671B0B981C9B504
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627418   (199537) от 19.04.2023
+
+VA - Весна на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miley Cyrus - Flowers (3:20)
+02. Мари Краймбрери - Иначе Всё Это Зря (2:58)
+03. Lost Frequencies feat. Elley Duhe & X Ambassadors - Back To You (2:37)
+04. Звонкий - Простые Слова (2:53)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1755F71BDB43AE093A487E18A37017F60AC8BF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627341   (199675) от 18.04.2023
+
+VA - Retro Vintage Best Vibes (2023) [MP3|320 Kbps] <Synthpop, Disco, New Wave, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul McCartney - Coming Up (Live At Glasgow / 1979 / Remastered 2011)
+02. Bon Jovi - Livin' On A Prayer
+03. Patti LaBelle - On My Own
+04. Kenny Loggins - Footloose (From "Footloose" Soundtrack)(   Читать дальше...   )Жанр: Synthpop, Disco, New Wave, R&BПродолжительность: 02:35:07 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13D9C57C2F8A7F842B0EA44C79B34A79AB4629E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626256   (199880) от 13.04.2023
+
+VA - Hits of Active Rest (2023) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_199880.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dean Lewis - How Do I Say Goodbye (2:43)
+002. David Kushner - Mr. Forgettable (3:07)
+003. Conan Gray - Heather (3:18)
+004. Burna Boy - For My Hand (feat. Ed Sheeran) (2:39)(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:911B81C53ABD96C8C775D0FFD9675C3B4B711C53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623724   (200245) от 05.04.2023
+
+VA - 90er - 100 Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200245.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pet Shop Boys - Go West (2003 Remaster)
+002. Cher - Believe
+003. Blur - Song 2 (2012 Remaster)
+004. Rod Stewart - Rhythm of My Heart(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 06:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64FACE9FC51E5AFE3C66C2A6176E0EDEC7D98AEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622935   (200519) от 30.03.2023
+
+VA - Disco-Rock Dancing 70-80's (2023) [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_200519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - Rock Me (1975) (3:07)
+02. Amanda Lear - Rockin' Rollin' (1978) (3:07)
+03. Amy Holland - Anytime You Want Me (1983) (3:24)
+04. Angel 'o - Secrets Of The Night (1980) (5:05)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 06:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCC3BA506E6AF47E7B1867133867BE8F7CFA509
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619873   (201107) от 18.03.2023
+
+VA - Back To 90S: Hot Remixes (2023) [MP3|320 Kbps] <Nu-Disco, Indie Dance, Euro-Disco, Synth-Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_201107.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chain Reaction - Dance Freak
+002. Marianne Faithfull - Sex With Strangers
+003. Jesse Gould - Out Of Work
+004. Strawberry Station - Future Funk(   Читать дальше...   )Жанр: Nu-Disco, Indie Dance, Euro-Disco, Synth-PopПродолжительность: 12:06:31 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07102C9616F29E1708F030DDF2E36B184DB9184D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1829678   (201786) от 26.10.2025
 
 Sofia Bellini - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
@@ -505,195 +694,6 @@ Sofia Bellini - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Italodisco, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B7D8E25852555CACAED546E2096AA692382ABB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829263   (202006) от 25.10.2025
-
-Novi - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic, Pop Rock, Vocal, Pop Ballad, Other, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_202006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Forbidden to Love
- 02 - Echoes of the Dusk
- 03 - Need You Stay
- 04 - Stay With Me(   Читать дальше...   )Жанр: Electronic, Pop Rock, Vocal, Pop Ballad, Other, SunoaiПродолжительность: 01:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D6D314C4AC0906323C798D281C579539AB57768
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615636   (202187) от 26.02.2023
-
-VA - Fantastic 90s (2023) 3CD, Compilation, Box Set [MP3|320 Kbps] <Dance, Disco, New Wave, Synthpop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_202187.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Take That - Pray
-02. Backstreet Boys - I Want It That Way
-03. Christina Aguilera - Genie In a Bottle(   Читать дальше...   )Жанр: Dance, Disco, New Wave, SynthpopПродолжительность: 01:22:11 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2058FB018E2195CF5B8FAE7BCFF23E64323D3AF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599683   (203930) от 17.01.2023
-
-VA - Новогодние песни Vol.1 (2022) MP3 [320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wham - Last Christmas (04:23)
-02. Верка Сердючка - Новогодняя (02:22)
-03. София Ротару  - Белая Зима (03:37)
-04. Abba - Happy New Year (Ayur Tsyrenov Remix) (04:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 17:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE0F49F8B1734AEE55334F8461A56D27FEF1B9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602521   (204404) от 06.01.2023
-
-VA - Зима на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Красавцы Love Radio - Танцуем! (3:11)
-02. TSOY - Покажу Паранойю (3:06)
-03. Anna Asti - Ночью На Кухне (3:52)
-04. Alma - Summer Really Hurt Us (2:48)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03778C83F5CD52240B91744E378F2CEAE1294A46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584295   (205126) от 18.10.2022
-
-VA - Pop 2 Remix NNM (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_205126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lizzo - 2 Be Loved (Am I Ready) (PNAU Remix) (3:42)
-02. Sam Smith - Unholy (feat. Kim Petras) (Disclosure Remix) (5:02)
-03. Elton John - Hold Me Closer (Joel Corry Remix) (4:08)
-04. James Hype - Ferrari - Oliver Heldens Remix (3:08)(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1617CFF83DC9D22DB6DD8E4F18436B6C2A1705F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830918   (205740) от 27.10.2025
-
-Romantic Dreams - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Let Him Go
- 02 - Better for You
- 03 - Our Love Song
- 04 - Diamond in the Dust(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B25FC1C35ACAFD5448E6D8E9F48A4C820F758DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654373   (205857) от 20.08.2023
-
-VA - German Top 100 Single Charts 18.08.2023 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_205857.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kontra K feat. Lana Del Rey - Summertime (3:15)
-002. Udo Lindenberg & Apache 207 - Komet (2:47)
-003. Luca-Dante Spadafora, Niklas Dee, Octavian, Peter Plate & Ulf Leo Sommer - Mädchen auf dem Pferd (2:37)
-004. Sira, Bausa & badchieff - 9 bis 9 (2:11)(   Читать дальше...   )Жанр: PopПродолжительность: 04:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F8F5D6CA43F91B48E1ED9F0B9AEA9640423461
 ```
 
 

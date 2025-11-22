@@ -1,3 +1,57 @@
+###  Публикация: 1808080   (65020) от 22.07.2025
+
+Bleeding Hands - Lost Integrity (2015) [FLAC|Lossless|image + .cue] <Melodic Thrash, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Believe What You Know
+02 - Grim Reaper
+03 - Like A Freakshow
+04 - Discipline Haunts Me(   Читать дальше...   )Жанр: Melodic Thrash, Groove MetalПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C50A842C2D3E67AC84F90316AA6EED5C1FC6C7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808129   (65021) от 22.07.2025
+
+Evan Arview - Deeper Still (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Movin' (3:13)
+02.  Learning How To Say Goodbye (Album Version) (5:03)
+03.  Nothing To Fear (4:39)
+04.  True (4:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8161FCB23BB0EABF199B00A0E82C4FFB6F7BC51A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808144   (65022) от 22.07.2025
 
 Huckleberry - Lets Get Drunk And Huck (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
@@ -632,54 +686,6 @@ Bryan Ferry - Boys And Girls (1985) 1st German Press [APE|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09E35676629DEB9CF7D590DC8B295CF08FF5063E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808059   (65046) от 22.07.2025
-
-Алексей Широков | СССР 2010 (Книга 8) И вновь продолжается бой!  (2025) [MP3, Дмитрий Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65046.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента попадания Семёна «Чобота» Чеботарёва в реальность альтернативного Советского Союза прошло два года. И за этот период очень много изменилось в жизни хулигана и раздолбая, обернувшись такими событиями, представить который он раньше категорически не мог. Нашёлся родной дед, генерал-майор Калинин, Семён запустил и успешно развил целый ряд кооперативов. в конце (   Читать дальше...   )Жанр: Альтернативная история, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1A694258FD5CE34B5815D628AF3CD32EB55C44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807876   (65047) от 22.07.2025
-
-The Unarchiver - Unzip RAR ZIP 3.4.0 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unarchiver - Unzip RAR ZIP - простое в использовании приложение, которое позволяет распаковывать десятки форматов архивов, такие как: Rar, Zip, 7z, Tar, Xz, Iso, Lha, bz2, Lzh, cab, cpio, jar, exe, pkg, dms, tbz, swf, Gzip, Bzip2. Также может сжимать и шифровать любые типы файлов, чтобы сделать личные данные более безопасными.Тип издания: macOS SoftwareРазработчик: © 2025 qing qing yuПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5BD30235E9B060BC313A163018AE177A43F6E3
 ```
 
 

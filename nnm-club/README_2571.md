@@ -1,3 +1,54 @@
+###  Публикация: 1792708   (67594) от 20.04.2025
+
+Военная тайна с Игорем Прокопенко (19.04.2025) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67594.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D138249351224FCB08FF5E15D2F732AF704630AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792711   (67595) от 20.04.2025
+
+Saori Yano - Best (2007) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Lee [1:55]
+02. Suna to Skirt [6:56]
+03. Crazy He Calls Me [7:56]
+04. Rizlla [5:33](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD0E3ACD4295D43439576FFB701197C01755694
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792395   (67596) от 20.04.2025
 
 Ори!Зона! - 20 лет спустя (2025) [MP3|320 Kbps] <Chanson>
@@ -592,60 +643,6 @@ magnet:?xt=urn:btih:5202F28C38A0917E167279C626D770DDA6AAB479
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA8E957BD18A06C8BB2E1A4EC66B1C50C9CA3BFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792779   (67620) от 20.04.2025
-
-Ally Venable - Money & Power (2025) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Brown Liquor (3:48)
-02.  Maybe Some Day (3:19)
-03.  Money & Power (3:28)
-04.  Do You Cry (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DDA058783434EC3B6E92AAA479CE5AA44151FA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792775   (67621) от 20.04.2025
-
-Slipknot - Slipknot (1999) Japan, Reissue, 2000, Roadrunner Records [DSD128|image|Vinyl-Rip] <Nu metal, Alternative metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67621.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1-742617000027
-A2-(Sic)
-A3-Eyeless
-A4-Wait And Bleed(   Читать дальше...   )Жанр: Nu metal, Alternative metalПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3140B3F7A4037C94DF41D59CCA3C56E4A69F95EF
 ```
 
 

@@ -1,3 +1,186 @@
+###  Публикация: 1759540   (103274) от 09.11.2024
+
+VA - Sun Sand & Spirit, Vol. 2 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania - Breath of Desert (Original Mix) (6:48)
+02. Tibetania - Healing Winds (Original Mix) (7:08)
+03. Tamer ElDerini - Heaven (Original Mix) (5:29)
+04. Leon Music - Sultana (Original Mix) (8:55)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8342F8C68280A9C240C413C63ABB262E449DBB05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759604   (103275) от 09.11.2024
+
+Charlotte Wessels (ex-Delain) - Studio Albums (3 releases) (2021-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Йоханна Шарлотта Вессельс - голландская певица и автор песен.
+Наиболее известна как бывшая вокалистка симфоник-метал группы Delain.2021 - Tales From Six Feet Under
+2022 - Tales from Six Feet Under, Vol. II
+2024 - The ObsessionЖанр: Symphonic Metal/RockПродолжительность: 02:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4FBC966A24D92838D548AB9ED4C5824E8971222
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759602   (103276) от 09.11.2024
+
+Skillet - Revolution (2024) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Showtime
+02. Unpopular
+03. All That Matters
+04. Not Afraid(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE7D2DFB5BA88ECA3F862410A413518AE600BC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759651   (103277) от 09.11.2024
+
+VA - Techno Club Vol. 73 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Zaloxx - Signal Of Eternity (Extended Mix) [06:02]
+02. Talla 2XLC & Fragma - Toca's Miracle (Extended Mix) [07:02]
+03. Chapter XJ - Never Forget (Madwave Extended Remix) [06:30]
+04. Talla 2XLC & Jens Lissat - The Future (Extended Mix) [06:32](   Читать дальше...   )Жанр: TranceПродолжительность: 03:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F600BBA7250F023C099CA8CC020056B6EA4AA001
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759565   (103278) от 09.11.2024
+
+PhotoDirector v19.8.0 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103278.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoDirector - функциональный, но весьма простой в управлении фоторедактор предлагающий пользователям обширный набор инструментов с интуитивной навигацией. Полный контроль над цветовой палитрой с помощью кривых, коррекция баланса белого, указание места фокуса, зоны размытия, использование эффектов и фильтров, устранение дефектов кожи, "вырезание" лишних (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 09.11.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6E0D77E674E5616FDC20BD1FDEA02EBDCB1BA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759648   (103279) от 09.11.2024
+
+Марта Фомина | Самостоятельные люди (1969) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Случалось ли вам, ребята, провести лето в городе? Наверно, многие в ответ на это удивлённо спросят: а что интересного летом в городе? Жарко, пыльно, скучно ... Вот так же думали сначала и герои первой повести "Летопись нашего двора" - четверо мальчишек. Целыми днями они сидели на лавочке и ждали, не случится ли с ними само собой что-нибудь необыкновенное. (   Читать дальше...   )Жанр: ПовестьИздательство: Московский рабочийФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B6B0C3FECDCA48BB3B5EE2F9212C1F3784A7BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759636   (103280) от 09.11.2024
+
+Карат - Точка во вселенной (2007) [FLAC|Lossless|image + .cue] <Pop, Electronic>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ветер
+02. Прости меня
+03. Прошлая любовь
+04. Ветер любви(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B912882D8A012B218575251FCDC0CB852FFE0DA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759610   (103281) от 09.11.2024
 
 Минтранс: Тест-драйв GEELY PREFACE 2024  (09.11.2024) WEBRip [H.264/720p]
@@ -486,190 +669,6 @@ Fans Of The Dark - Video (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75CC84AA0325E8E61AD95FFBD09D4C51EAFD46C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759315   (103300) от 07.11.2024
-
-TMG - TMG II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crash Down Love (4:28)
-02. BABYMETAL - Eternal Flames (3:05)
-03. Lisa - The Story Of Love (5:00)
-04. Color In The World (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:900628847DE93CF4C1DC97CF3C11E9D46C21C178
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759319   (103301) от 07.11.2024
-
-Turbulence - Binary Dream (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Static Mind (1:31)
-02. Theta (5:04)
-03. Time Bridge (Instrumental) (1:53)
-04. Manifestations (Instrumental) (6:28)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF758AFCE5DF6C073FF094A1E72C790889A09635
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759212   (103302) от 07.11.2024
-
-Citizen Vicious - Studio Albums (3 releases) (2015-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash 'n' Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Citizen Vicious - канадская метал-группа из г. Лонгёй в провинции Квебек, основана в 2005 году.2015 - Loud Mean Fast Dirty
-2018 - Headbanger Assault
-2024 - Longueuil (EP)Жанр: Thrash 'n' RollПродолжительность: 01:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C3817970ACB6B91E28AEE4736512060D685D6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759314   (103303) от 07.11.2024
-
-Steelcity - Reverence (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Ain't Dreamin 'Bout You (4:21)
-02. Hammers Fallin' (4:14)
-03. No Angel (4:43)
-04. Dizzy (4:09)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA84814FF17DD4B87E02CD9AF9EF2159AA51C31E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759310   (103304) от 07.11.2024
-
-Cleanbreak - We Are The Fire (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warrior's Anthem (3:34)
-02. Never Gone (2:56)
-03. Unbreakable (3:19)
-04. Can't Lose Hope (4:13)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F7A1D090D48D83BC7645BFD22B902607FAF8F4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759273   (103305) от 07.11.2024
-
-НХЛ 2024-2025. Нэшвилл Предаторз - Вашингтон Кэпиталз (06.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103305.jpg" />
-</div>
-
-
-###  Подробнее
-
-7 ноября 2024 г. 03:00 по московскому времени. Стадион: Capital One Arena (Вашингтон, США), 17 177 зрителей (92% от вместимости 18 573)
-Главный судья: Келли Сазерленд (Ричмонд, Канада); Главный судья: Майкл Маркович (Скарборо, Канада); Линейный судья: Брэд Ковачик (Вудсток, Канада); Линия: Трэвис Гаврилец (Trail, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0037B6FB360778FE65D435EBE5A29B434DEE7AC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759189   (103306) от 07.11.2024
-
-Журнал | Квантик №9 (сентябрь 2024) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103306.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
-В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B95072483A0D89D9FBEF57CDF033AFF7DBA140C
 ```
 
 

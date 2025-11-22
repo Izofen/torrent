@@ -1,3 +1,193 @@
+###  Публикация: 475170   (97967) от 29.03.2012
+
+VA - L.O.V.E. Vol. 5 (2012) [MP3|320 kbps]<Chillout | Lounge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATB - Believe In Me (Airplay Mix)
+02. DJ Shah featuring Aruna - Now Or Never (acoustic Version)
+03. Faib - Out Of Space
+04. Idenline - Hearts Lullaby
+05. Poets of the Fall - Where Do We Draw the Line
+06. Roberto Sol - One Future (Chill Mix)
+07. Blue In Green - Rainy Streets (Original Mix)
+08. Simon Le Grec - We Will Be Free
+09. Fenena Mijas (feat. Sandrina Middleton) - All I've Got (Hotel Balearic Mix)
+10. 702 - You Don't Know (ENiGMA Dubz Mix)(   Читать дальше...   )2012Жанр: Chillout | LoungeПродолжительность: 04:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9440095099ADB9FD5E323FFC6F9CF667650C99B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474971   (97968) от 29.03.2012
+
+VA - Весенняя Дискотека Non-Stop (2012) [MP3|192-256 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97968.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dj Boyko & Katy Queen - Out Of My Mind (Radio Mix) (3:24)
+2. DJ Цветкоff & Оля Милакса - Белая ночь (Dj Amor remix) (5:51)
+3. Sebastian Brandt - Ashes (8:29)
+4. Armin van Buuren feat. Jessie Morgan - Love Too Hard (Ron Hagen & Al-Exander remix) (7:19)
+5. Maria Maria - Ты Обо Мне Не Вспоминай (Erikbsk Remix) (3:23)
+6. Арина И Размер Project - Делаю Шаг (Extended Version) (6:15)
+7. MaXimA - Так тихо (Fidel Wicked radio edit) (2:58)
+8. Klaas - Changes (Radio Edit) (3:23)
+9. DJ Haipa & Rafaelle feat. Aelyn - Мне бы (Alex Menco club mix) (5:34)
+10. Pixie Lott feat. Pusha T - What Do You Take Me For (Bimbo Jones Radio Edit) (3:08)2012Жанр: PopПродолжительность: 07:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA163CF1169D85880B02B7029B60AE6F0319951
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475224   (97969) от 29.03.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (30.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E215071817712B9356EE36D50AA8EBCBEC8ECCE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474782   (97971) от 29.03.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 13
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97971.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Girls Desktop Wallpapers Pack 13 
+Название:  Girls Desktop Wallpapers Pack 13 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1900х1200 - 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49CD339A5A47823560372EAC900492AEEF1447F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475129   (97972) от 29.03.2012
+
+Захват / Угон / Carjacked (2011) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодую женщину с ребёнком в её же собственной машине берёт в заложницы грабитель банка.Жанр: триллерРежиссер: Джон БонитоВ ролях: Мария Белло, Стивен Дорфф, Джоанна Кэссиди, Катрин Дент, Гэри Граббс, Кристен Керр, Тим Гриффин, Дэвид Дженсен, Молли МакКуин, Анджелл БруксПеревод: многоголосый закадровыйПродолжительность: 01:29:26
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474726   (97974) от 29.03.2012
+
+[EN] В бездну / Into the Abyss (2011) BDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм Вернера Херцога о заключенных, ожидающих смертной казни.Жанр: ДокументальныйРежиссер: Вернер ХерцогАктеры: Вернер ХерцогПеревод: ОтсутствуетПродолжительность: 01:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1705D7FE271DA7CF12B501515A4F9CC63CA2791A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475234   (97980) от 29.03.2012
+
+[Wallpapers] Sexy Women Wallpaper (30.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A78DFDD898D41A98E74FDEFA9E22D58ADEE1A26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475132   (97981) от 29.03.2012
 
 Захват / Угон / Carjacked (2011) [1080p] Blu-ray
@@ -497,211 +687,6 @@ magnet:?xt=urn:btih:6B8D24CBF874E3655D750B04E700F834908390C6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0051DAB79291B63494F5388657F01DEE01B22560
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474935   (98016) от 29.03.2012
-
-Джон Ле Карре | Убийство по-джентльменски [2009] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Джордж Смайли
-Оригинальное название:2009Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF1459E5F763DCB5C01AED78EEEF0EA4DDFAEF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474934   (98017) от 29.03.2012
-
-VA - Magic of Instrumental music (2012) [MP3|256 kbps]<Instrumental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.Taylor - Ima Wa Shiwasekai
-02. N.Mouskuri - Recuerdes De La Alhambra
-03. R.Coniff - Those Were The Days
-04. E.Simoni - Pan Serenade
-05. B.Stenberg - Allegretto
-06. The Ventures - Mexico
-07. E.Schimseheimer - Bamboleo
-08. F.Duval - Kalinas Melodie
-09. S.Preux - Phytandros
-10. Aimable - La Moskova(   Читать дальше...   )2012Жанр: InstrumentalПродолжительность: 05:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B25DDB69680F107623791E3B5429B43872EFA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475156   (98018) от 29.03.2012
-
-VA - Хиты Радио Record 20 50/50 (2012) [MP3|160-320 kbps]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98018.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Temple One feat. Neev Kennedy - Love The Fear (Tom Fall remix)
-002 Винтаж - Амстердам (feat. Владимир Пресняков)
-003 Tiesto - Maximal Crazy (original mix)
-004 DJ Цветкоff & Оля Милакса - Белая ночь (Dj Amor remix)
-005 Starkillers, Dmitry KO - Disco Fans (Butterfly Terrace mix)
-006 Serebro - Мама люба
-007 Analog People vs. Feel Good Prod. - Feel Good Vibe (Dj Shum & Dj Oleg Petroff Mashizz)
-008 Вера Брежнева - Реальная жизнь (DJ Vengerov remix)
-009 Duck Sauce - Big Bad Wolf (original mix)
-010 MM Dance - Отдыхаем (Dj Alfred extended mix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 049:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9883889610884C7331ED6EB6955FE669AD8D9F13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475029   (98021) от 29.03.2012
-
-Опасная банда / De Bende van Oss / The Gangs of OSS (2011) [720p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Йоханна хочет порвать с преступным прошлым, которое ее окружает. Но когда ее муж освобождается из тюрьмы, все возвращается на круги своя. Йоханне все труднее и труднее уйти от зверств, совершаемых бандой Oss, и чем дальше, тем глубже она погружается в обман, проституцию и убийства.Жанр: Драма, криминалРежиссер: Андре ван ДаренАктеры: Матиас Скунартс, Сильвия Хукс, Джульетт Ван Арденн, Дан Шурманс, Пьер Бокма, Беня Бружнинг, Дэннис Оверем, Фрэнк ЛаммерсПеревод: Одноголосый закадровый (любительский)Продолжительность: 01:51:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474946   (98022) от 29.03.2012
-
-Я, Франциск Скорина... (1969) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историко-биографический фильм о белорусском издателе и просветителе Франциске (Георгие) Скорине, жившем в первой половине XVI века, основателе первой белорусской типографии в Вильнюсе, авторе фундаментальных исследований в области лингвистики.Жанр: Биографическая повестьРежиссер: Борис СтепановАктеры: Олег Янковский, Николай Гриценко, Гедиминас Карка, Гунта Виркава, Янис Грантыньш, Ростислав Янковский, Борис Гитин, Стефания Станюта, Владимир Золотухин, Тамара Муженко, Арнольд Помазан, Здислав СтоммаПродолжительность: 01:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6726A6CEAE5BBC71EBDA7FD5E60638E8AC0F315
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474104   (98024) от 30.03.2012
-
-VA - Клубные Новинки Vol.55 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guy Mantzur - Epics (David Granha Remix)
-02. DJ Yellow, Yota - I Can't Resist You (DJ Yellow's Sleep No More Drum Edit)
-03. Alexander Popov - When The Sun (Eximinds Remix)
-04. Daniele Sorrenti - A Bailar (DJ Chick Remix)
-05. Beat Service feat. Gemma Pavlovic - Masquerade (Sunn Jellie Remix)
-06. Arkadi & William Daniel - Skypark (Original Mix)
-07. D&S - Tomato (Original Mix)
-08. Max Graham feat. Susana - Down To Nothing (Original Mix)
-09. Masaya (CH) - Again (Nhar Remix)
-10. Madonna - Girl Gone Wild (Offer Nissim Club Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF7DD5EBF539A713BCEE88D3850E045157C62C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475347   (98025) от 30.03.2012
-
-VA - 538 Hitzone 59 2CD (2011) [MP3|320 кб/с]<Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98025.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Время звучания 01:08:02
----------------------------------
-01 - Lucenzo ft. Don Omar - Danza Kuduro
-02 - Maroon 5 ft. Christina Aquilera - Moves Like Jagger
-03 - Katy Perry - Last Friday Night
-04 - James Morrison - Slave To The Music
-05 - Snow Patrol - Called Out In The Dark
-06 - Alexis Jordan - Hush Hush
-07 - Krystl - Fool For You
-08 - Onerepublic - Good Life(   Читать дальше...   )2011Жанр: DanceПродолжительность: 02:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB832AB57CFDAF07201FA38FB5372EF58ABC523
 ```
 
 

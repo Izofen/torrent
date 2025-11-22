@@ -1,3 +1,190 @@
+###  Публикация: 1715567   (111517) от 12.04.2024
+
+Ирина Киреева | Я с тобой. Добрые сказки (2008) [MP3, Инна Гомес и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Для самых маленьких.
+«Как хорошо быть маленьким!» – часто говорят взрослые. «Но это совсем непросто...», – поправили бы их дети. И, правда, расти – дело трудное. И хотя вокруг полно взрослых, малыш каждый день остается один на один со своими страхами и проказами, со своим любопытством, а главное – со своими чувствами, ведь и они растут так быстро, что (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: Продюсерский центр «Вимбо»Продолжительность: 01:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBFA581B5CC500E550E4EAE514A2B214842BB9FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715616   (111518) от 12.04.2024
+
+Harry Orlove - Mildly Popular (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down South In New Orleans (4:19)
+02. Deep Ellum Blues (6:38)
+03. Looking for Trouble (6:16)
+04. Hello Walls (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A652BF6445428CB45FBC1861917F3B4AF990E3DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715405   (111519) от 12.04.2024
+
+Anita O'Day - 1945 - 1950 (2002) Classics [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them There Eyes [2:41]
+02. Memories of You [3:01]
+03. How Come? [2:44]
+04. I Can't Believe That You're in Love With Me [2:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D376DE00CD343CC5C5F9789E2443A4471B113DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715406   (111520) от 12.04.2024
+
+Anita O'Day - 1950 - 1952 (2003) Classics [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tennessee Waltz [3:01]
+02. Yeah Boo [2:18]
+03. Something I Dreamed Last Night [3:11]
+04. If I Could Steal You From Somebody Else [2:29](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886F5F9580CF7217F863E6DE31E4092359413199
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715425   (111521) от 12.04.2024
+
+The Regime - The Regime (1998) Compilation [APE|Lossless|image + .cue] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skitzophrenia
+02. Cum & Go
+03. Relentless
+04. Kill & Be Killed(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 01:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583B77E75BA749D8A2506F97E9A3D27753794685
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715463   (111522) от 12.04.2024
+
+Unkreated - Apoptosi (2023) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tetradimension
+02. Enemy
+03. Inducendo l'apoptosi umana
+04. The fortress of Masada(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:31:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42DC11432CC7D4A6E1EFAA4E512F2CF1865D7C74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715408   (111523) от 12.04.2024
+
+James Carter - Layin' In The Cut (2000) Atlantic [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Layin' in the Cut [6:58]
+02. Motown Mash [7:23]
+03. Requiem for Hartford Ave. [5:58]
+04. Terminal B [6:44](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4865C89CDBD6CCB342BB65C9F1DA1D8031EF421
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715579   (111524) от 12.04.2024
 
 Хоккей. НХЛ 2023-2024. Детройт Ред Уингз - Питтсбург Пингвинз (11.04.2024) WEB-DLRip [H.264/720p-LQ] [hand made 60fps] [EN]
@@ -492,184 +679,6 @@ magnet:?xt=urn:btih:C95B04651E43682F2ED532AE50E048FA9EC098E8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D4963D4E27D349E3E52A86C569FDC976EA5961F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715337   (111543) от 12.04.2024
-
-VA - Relaxing Evening Jazz Chill out Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Dearest (3:52)
-02. eJazz Artistry - You're Makin' Me High (4:48)
-03. Kool&Klean - A Sky Full of Stars (4:41)
-04. Chillaxonic - Ineffable (5:22)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92DEC832A16EC86C247DF07BAC6DE45814A7AB15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714622   (111544) от 12.04.2024
-
-Monocast - Детства край (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дропшот [00:04:18]
-02. В поисках мечты [00:04:14]
-03. После поцелуя неба [00:03:37]
-04. Циклон [00:04:38](   Читать дальше...   )Жанр: Alternative Metal, Modern MetalПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD227C4733AD627DC5EE8EABAA29A22D23871D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715589   (111545) от 12.04.2024
-
-Соль Сванетии / Джим Швантэ (1930) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из лучших и самых загадочных картин Калатозова, определившая стиль режиссера.
-Знаменитая теперь во всем мире "Соль Сванетии" была смонтирована Михаилом Константиновичем в 1929 году из двух его незаконченных работ: художественного фильма "Слепая" и видового фильма о Сванетии (высокогорной долине на северо-западе Грузии). Фильм рассказывает (   Читать дальше...   )Производство: СССР, Трест Госкинпром ГрузииЖанр: документальный, исторический, немое киноРежиссер: Михаил КалатозовСубтитры: русские (интертитры)Продолжительность: 00:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A19FC200702A5FB9CBCB29B58CB9D74FB277F6EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715404   (111546) от 12.04.2024
-
-Александр Амфитеатров | О борьбе с проституцией (2017) [MP3, Сергей Рыжков]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111546.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Опять газеты полны разговорами о борьбѣ съ развитіемъ проституціи, объ уничтоженіи торга бѣлыми невольницами, о правилахъ для одиночекъ, квартирныхъ хозяекъ, объ охранѣ отъ разврата малолѣтнихъ и т. д. Собираются и ожидаются съѣзды, слагается союзъ „защиты женщинъ“, готовятся проекты, сочиняются рѣчи, пишутся статьи. Сколько хорошихъ (   Читать дальше...   )Жанр: ПублицистикаИздательство: ЛитРес: чтецПродолжительность: 02:29:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EDAA4D4907C237B2DF830D11B4C7417F31C2A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715635   (111547) от 12.04.2024
-
-Vivaldi 6.6.3271.61 include standalone [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFF776D6338285A5CC9096112B8EB3074DD05162
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715433   (111548) от 12.04.2024
-
-Игуана с огненным языком / L iguana dalla lingua di fuoco (1971) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111548.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Дублине в своём доме жестоко убита молодая женщина, в лицо которой маньяк плеснул кислоту, после чего перерезал горло бритвой. Её обезображенное тело было обнаружено в багажнике лимузина, принадлежащего швейцарскому послу Собески. Посол, бывший любовником погибшей женщины, отказывается сотрудничать с полицией, ссылаясь на дипломатическую неприкосновенность. Бывший (   Читать дальше...   )Производство: Италия, Франция, Германия / Les Films Corona, Oceania Produzioni Internazionali Cinematografiche, Terra FilmkunstЖанр: детектив, триллерРежиссер: Риккардо ФредаАктеры: Луиджи Пистилли, Дагмар Лассандер, Антон Диффринг, Артур О’Салливан, Вернер Похат, Доминик БосчероПеревод: любительский одноголосыйЯзык озвучки: русский, английский, итальянскийСубтитры: английскиеПродолжительность: 01:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2CCBAE171FC33470FE368031150BED3B5B25AD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714645   (111549) от 12.04.2024
-
-Carter The Unstoppable Sex Machine - 1992_ The Love Album (1992) Remaster, 2023, Chrysalis Records [MP3|320 Kbps] <Synth-pop, Indie Rock, Alternative Rock>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-01 - CD 01 - 1992 The Love Album
-02 - CD 02 - B-Sides & Live
-03 - CD 03 - 1992 The Live Album - Pyramid Stage, GlastonburyЖанр: Synth-pop, Indie Rock, Alternative RockПродолжительность: 3 CD, 02:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635657F719755F7BFCB8EE01AEDED99A0FC50175
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1772448   (71780) от 11.01.2025
+
+The Smoothies - Winter Chill (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daily Steps [00:03:34]
+02. Deep Waters [00:03:24]
+03. Borrowed Life [00:03:03]
+04. Always Blessed [00:03:24](   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99314E72CF98E748E52A9CE8C48B792BB72B8B65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772473   (71781) от 11.01.2025
+
+VA - Nipper's Greatest Hits - The 60's Volume 2 (1988) [OGG Vorbis|480 Kbps] <Rock, Folk, World, & Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Browns - The Old Lamplighter
+02. Hank Locklin - Please Help Me, I'm Falling
+03. Floyd Cramer - On The Rebound
+04. Jimmy Elledge - Funny How Time Slips Away(   Читать дальше...   )Жанр: Rock, Folk, World, & CountryПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED17BC25639FED3355637B9F79FB83A20B506CBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772687   (71782) от 11.01.2025
 
 BlackSun - Karma Somnium (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Power Metal>
@@ -624,57 +678,6 @@ magnet:?xt=urn:btih:6ABEB48FA6D39921B7D180874623CC5F6DF5E361
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E24B5FC223C04A2D1F233BD17721B16EFF917F08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771899   (71806) от 08.01.2025
-
-John Skelley - Dusk 'Til Dawn (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dusk 'Til Dawn Blues (3:29)
-02.  Midnight Confessions (4:41)
-03.  River's Edge Blues (3:58)
-04.  Ladies Man (4:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5708763E06A1A105D4D50D458953AA70364F1FC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771894   (71807) от 08.01.2025
-
-Федор Достоевский | Идиот (2009) [MP3, Александр Васильев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федор Михайлович Достоевский – великий русский классик и психолог. В его произведениях неподражаемо реалистично раскрываются ключевые стереотипные характеры общества. Видимо, это общество не только русское, ибо не имел бы всемирного признания гений Достоевского. В романе, пятом по счету написания, Федор Михайлович представляет читателю своеобразное видение явления (   Читать дальше...   )Жанр: Русская классика, романИздательство: Вира-МПродолжительность: 25:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF4BDFC2A386A211226C192A48BDCA3548DB206
 ```
 
 

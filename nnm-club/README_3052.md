@@ -1,3 +1,200 @@
+###  Публикация: 467246   (96569) от 13.03.2012
+
+Carol Welsman - Memories Of You: Carol Welsman sings Benny Goodman and Peggy Lee (2009) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Be That Way (3:49)
+02. Why Don't You Do Right (2:45)
+03. Moonglow (3:29)
+04. Stompin' At The Savoy (3:10)
+05. As Time Goes By (5:47)
+06. When You're Smiling (4:50)
+07. Johnny Guitar (4:11)
+08. Fever (4:02)
+09. Goody Goody (2:54)
+10. The Very Thought Of You (3:09)(   Читать дальше...   )2009Жанр: Vocal JazzПродолжительность: 01:00:51
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466527   (96575) от 13.03.2012
+
+Девушка и волки / La jeune fille et les loups / The Maiden and the Wolves (2008) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начало 20-го века. Мэр французской деревушки Эмиль Гарсин мечтает проложить на живописных альпийских просторах железную дорогу и построить там горнолыжный курорт. Но его корыстным и амбициозным планам мешают полоумный горец Джузеппе и стая диких волков, приводящих в ужас жителей окрестностей. И только юная Анжель готова пойти на все, чтобы спасти этих красивых и отважных зверей…Жанр: Драма, семейныйРежиссер: Жилль ЛегранАктеры: Летиция Каста, Жан-Поль Рув, Стефано Аккорси, Миглен Миртчев, Мишель Галабрю, Патрик Шенэ, Лоран Дойч, Дидье Бенюро, Юрбен Канселье, Лоран ГамелонПеревод: Многоголосый закадровыйПродолжительность: 01:50:24
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467326   (96576) от 13.03.2012
+
+VA - Ibiza Chill Session (2011) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Persia Beatz - Princess Of Persia (Miracle mixxx) (04:52)
+02. Pascal Dubois - Beach Pearl On Ibiza (White Waves cut) (04:57)
+03. Skysurfer - Circling Elements (feat Lovay - Down By The Sea mix) (05:09)
+04. Kosta Rodrigez - Gale In The Waterglass (My Love) (feat Amy - Anthony Island remix) (04:41)
+05. Cafe Americaine - Bring Back Silence (Cool & Lazy Afternoon cut) (04:48)
+06. Jazz Connection - Tranquility Station (Smooth Evening cut) (04:29)
+07. Frank Borell - Why Do We Always Fall In Love (feat Oliver - No Question mix) (05:34)
+08. Thermodynamics - Visions Of Astronauts (Blue Planet mix) (06:37)
+09. Pascal Dubois - Jetset To LA (Arline mix) (04:21)
+10. Kid Coconutz - Cinematic Grooves (Afroelectric mix) (05:44)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5177113EF7049B3D7349D80261EBD12C251BAF1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467552   (96580) от 14.03.2012
+
+VA - 538 Dance Smash 2011 vol.1 (2011) [MP3|320 кб/с]<Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 martin solveig and dragonette - hello 03:11
+02 tim berg, oliver ingrosso and otto knows - itrack 03:06
+03 david guetta featuring rihanna - who's that chick 03:18
+04 duck sauce - barbra streisand 02:43
+05 roger sanchez and far east movement featuring kanobby 02:30
+06 eric prydz - niton (the reason) 03:02
+07 alex gaudino - i'm in love 02:46
+08 joshua khane - love don't cost a thing 03:34
+09 sander van doorn featuring carol lee - love is darkne 03:18
+10 dominik de le=n featuring burhan g - everything chang 03:00(   Читать дальше...   )2011Жанр: DanceПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C88FDCB9DB163D2B6A87A3E1C896001186F5652
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467803   (96584) от 14.03.2012
+
+Журнал | Это вкусно! №1 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96584.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале «Это вкусно!» вы найдете изысканные блюда для любителей приготовить что-то необычное и быстрые рецепты для тех, кто не любит долго стоять у плиты, десерты для сладкоежек и низкокалорийные блюда для желающих сбросить несколько лишних килограммов.	”2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B72FE1C89769E35D107E6E997F5F9CF211EBD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467616   (96585) от 14.03.2012
+
+Настоящие Афeристы Выпуск 4 (2012) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наши эксперты рассказывают, как избежать самых невероятных видов мошенничества. Ответственного за доставку обманом заставляют расстаться с развозным товаром.Жанр: ТелепередачаПродолжительность: 00:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F585C292D1636073972662F0B6F99CA6C59C4010
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467910   (96586) от 14.03.2012
+
+Минобороны описало концепции информационной войны
+
+>>Поговорим
+>>Новости
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96586.jpg" />
+</div>
+
+
+###  Подробнее
+
+CNews обнаружил на сервере Министерства обороны РФ документ, описывающий военную деятельность в информационном пространстве. Документ датирован 2011-м годом, но, по словам самих военных, базируется на Президентской доктрине инфобезопасности, подписанной ещё в далёком сентябре двухтысячного.
+Военные отмечают, что создания концепции потребовала серьёзная угроза, исходящая из глобального информационного пространства. Часть позиций документа унаследована из XX века, к таким относятся, например, радиолокационная разведка и иные традиционные направления военного искусства. Но куда больший интерес для непрофессионала представляют близкие к нашему времени информационные войны и элементы "массированной психологической обработки населения для дестабилизации общества и государства, а также принуждения государства к принятию решений в интересах противоборствующей стороны".
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466932   (96589) от 14.03.2012
 
 Adam Nitti - Liquid Blue (1995) [FLAC|Lossless]<Fusion>
@@ -525,219 +722,6 @@ magnet:?xt=urn:btih:BF2139B8314781CA2C7C97B82EDEC090C22DC850
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2DD22FEDC5E5F2CB5941727975F5127CE2FE061
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466377   (96657) от 14.03.2012
-
-Программа / The Program (1993) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм описывает игровой сезон университетской команды по американскому футболу ESU Timberwolves. Новый тренер команды - Sam Winters (James Caan), второй год подряд упускает шанс попасть в финал кубка университетской лиги. На него давят болельщики,пресса и жители городка, где тренируется команда. Следующий сезон не должен повториться так же неудачно. Но получиться ли это? Особенно если некоторые игроки, ключевых позиций, начинают злоупотреблять наркотиками, стероидами и алкоголем.Яркая и оторванная университетская жизнь мешает сосредоточиться на играх.Тренер проводит некоторую селекционную работу по набору новых талантливых игроков и это начинает давать свои плоды...Фильм насыщен очень красивыми игровыми моментами и драматическими событиями, как на поле, так и в жизни героев этой команды.Жанр: Драма, спортРежиссер: Дэвид С. Ворд / David S. WardАктеры: Джеймс Каан, Хелли Берри, Омар Эппс, Крейг Шеффер, Кристи СвонсонПеревод: Одноголосый закадровыйПродолжительность: 01:52:18
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468020   (96659) от 15.03.2012
-
-VA - Big Air Vol. 2 (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3D Mode - New Dawn (Solaris Vibe Rmix) (8:49)
-02. Dualism - I Beg You (Mind Spin Remix) (8:46)
-03. Etic - The Pulse (7:28)
-04. Mental Broadcast & Minimal Criminal - Out of Range (9:24)
-05. Nitrodrop - Saw Great (8:37)
-06. Shanko - Slow Light (8:42)
-07. Sonic Sense - Future Shock (7:42)
-08. Soulscape - Up Side Down (9:14)
-09. Tectum - Harmonic Form (6:25)
-10. Zonka & Pakman & Subsistence - Outside Surface (8:01)Жанр: Psychedelic / ProgressiveПродолжительность: 01:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB177899AA773197268E6F077183848136E1542
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468023   (96662) от 15.03.2012
-
-VA - GO GOA!!! ( Speed It Up Release 2 ) (2012) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96662.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Продолжительность - 01:19:02
-
- 01. Mute - Doing His Magic (Static Movement Remix) [07:19]
- 02. Copycat - Experience [07:28]
- 03. Sideform - Chameleon [06:31]
- 04. Dropkick - Frog On [07:11]
- 05. Twina - Man Becomes What He Thinks About [06:34]
- 06. E-Clip - Chandra (ManMachine Remix) [07:39]
- 07. Mindwave & I-Drop - Stoli Drops [07:35](   Читать дальше...   )Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08CB628F1E6173D1D3C373E5AD69FA65600D5A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468270   (96664) от 15.03.2012
-
-VA - Зарубежные Звезды Радио Станций (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96664.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pitbull feat. Ne - Yo & Afrojack & Nayer - Give me everything
-002. Pyrotense - Take This (original mix)
-003. Sasha Lopez Feat. Broono & Ale Blake - Weekend (Radio Version)
-004. Ryan & Radu - Top Of The World (Radio Edit)
-005. Helfye - Sexe
-006. Offbeat Orchestra feat. Sunstroke Project - Epic sax
-007. Pitbull feat. Chris Brown - International love (UK Pop radio edit)
-008. Selena Gomez - Love You Like A Love Song live
-009. Picco - Mi Cafe (PH Electro Remix)
-010. Jack of Sound - Kaylees Nightmare (original mix)(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D71C317A06B82C1928AE33300EFCBEB9AEB5E1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467850   (96665) от 15.03.2012
-
-VA - Seasons of Seduction vol.1 (2012) [MP3|320 кб/с]<Electro-House, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.L&M Project - Story (Original Mix)
-02.Prljavo Kazaliste - Korak po korak (VanDerSaint Remix)
-03.Lpk - Special ( Original Mix )
-04.Knife Party - Internet Friends
-05.The Moogs - Madhatter (Titanoz_Remix)
-06.Rihanna - We Found Love (DJ Newklear Mashup Extended Mix)
-07.Eddy Wata - Senorita (Ramy BlaZin Remix)
-08.Glee Cast - Last Christmas (Ramy BlaZin Remix)
-09.Felguk Vs. Dirtyloud - Nudge (Original Mix)
-10.Chuckie - Who Is Ready To Jump (Dada Life Remix)(   Читать дальше...   )2012Жанр: Electro-House, HouseПродолжительность: 02:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70667A5351983F635E4859C01A4A9891BFE80F9C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468036   (96675) от 15.03.2012
-
-VA - 538 Dance Smash 2011 vol.3 (2011) [MP3|320 кб/с]<Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - LMFAO feat. Lauren Bennett & Goonrock  - Party Rock Anthem
-02 - Bingo Players - Cry (Just A Little)
-03 - Alexandra Stan  - Mr. Saxobeat
-04 - Snoop Dogg vs. David Guetta  - Sweat
-05 - Sander Van Doorn - Koko
-06 - Kate Ryan  - Lovelife
-07 - Swedish House Maffia - Save The World
-08 - Elena  - Disco Romancing
-09 - Martin Solveig feat. Kele  - Ready 2 Go
-10 - Ferry Corsten - Feel It(   Читать дальше...   )2011Жанр: DanceПродолжительность: 01:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F053E05630659E6D81C732502D005A38D1193CD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467833   (96676) от 15.03.2012
-
-Сайт посольства России в Израиле взломан арабскими хакерами
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вечером 12 марта группой, именующей себя "Армией хакеров" (TheHackersArmy), был взломан сайт посольства Российской Федерации в Израиле.На первой странице сайта russianembassy.org.il размещен текст о "преступлениях" Израиля, составители которого призывают оказать поддержку палестинскому народу. Фоном звучит антиизраильский рэп.По состоянию на утро вторника, 13 марта, работа сайта посольства РФ не восстановлена.На момент публикации данного сообщения, неизвестно в точности, какой ущерб нанесен. Через сайт посольства можно было получить доступ к консульской информации.Пресс-служба посольства заявляет, что хакерам не удалось получить доступ к базам данным посольства и консульства РФ в Израиле. По словам представителя посольства, эти базы находятся на российских серверах и не имели отношения к сайту russianembassy.org.il. "Взломали не нас, а израильского провайдера, который обеспечивал поддержку сайта посольства", – сообщил редакции NEWSru.co.il пресс-секретарь посольства РФ Антон Черменский.Так (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

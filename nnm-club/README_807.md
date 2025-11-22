@@ -1,3 +1,54 @@
+###  Публикация: 1791031   (21308) от 15.04.2025
+
+VA - Охота! 87 (2019) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ДЗЁМГИ - Паломники планет (4:02)
+02. Большой Лебовски - Летняя (3:07)
+03. НЭмо - Kirov-Reportin (3:33)
+04. SOAB - Kilometer (3:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:589F70B0A64193DD428A8AD947EB726EF86FE748
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791671   (21309) от 15.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Winter Night Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с текстурой зимней ночи.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFACA9EC1285B97C40C8A547DD393179CACCCACE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791645   (21310) от 15.04.2025
 
 Dave Stewart - Compilation (2025) [MP3|320 Kbps] <Rock, Pop rock, Soft Rock>
@@ -587,57 +638,6 @@ magnet:?xt=urn:btih:34E2BEF838818098E40B6FD28799E10DE4F5F25E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:161B7683F2AB2F1697487150D7A84A1747CC59EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791740   (21334) от 15.04.2025
-
-Scaler Music - Scaler 3 v1.0.5 Standalone, VSTi, VSTi 3, AAX (x64) Update Only [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scaler 3 это уникальный и вдохновляющий MIDI-процессор, который делает поиск аккордов и прогрессий интуитивным и интересным! Благодаря определению нот, выбору гамм и предложению аккордов, Scaler 3 является всеобъемлющим, но в тоже время простым в использовании инструментом, который поможет каждому создавать лучшую музыку. Первый в своем роде, Scaler 3 может определять (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB7B7D3DD27D7BAAF8FA3F2FBEE19BB5BD0C9301
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791720   (21335) от 15.04.2025
-
-Backstreet Boys - Compilation (1996-2019) [MP3|320 Kbps] <Pop, Dance, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We've Got It Goin' On (Backstreet Boys 1996)
-02. Larger Than Life (Millennium 1999)
-03. Incomplete (Never Gone 2005)
-04. The Call (Black & Blue 2000)(   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 02:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3644ED3AC56A7DD836F4B182AC9BFB7112F4171
 ```
 
 

@@ -1,3 +1,54 @@
+###  Публикация: 1760872   (37143) от 16.11.2024
+
+Джокер: Безумие на двоих / Joker: Folie a Deux (2024) WEB-DL [H.265/2160p] [4K, SDR, 8-bit]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Находясь на принудительном лечении в больнице Аркхем, несостоявшийся комик Артур Флек встречает любовь всей своей жизни — Харли Квинн.Производство: США, Канада / Warner Bros., Village Roadshow Pictures, Bron CreativeЖанр: драма, мюзикл, криминал, триллерРежиссер: Тодд ФиллипсАктеры: Хоакин Феникс, Леди Гага, Брендан Глисон, Кэтрин Кинер, Зази Битц, Стив Куган, Гарри Лоути, Ли Гилл, Кен Люн, Джейкоб ЛофлендПеревод: Дублированный (Jaskier), Профессиональный многоголосый (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 02:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505778D1E1227768C83640358C967C3AE66B21B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438424   (37144) от 16.11.2024
+
+VA - Best of the Best, 1 Song Only (1955-2024) Remaster SMRP, Russia, 2024, De-Noised [MP3|320 Kbps] <Rock, Blues, Chanson, Disco, New Wave, Pop, Electronic>
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Self-made Records Productions представляет свой обновленный релиз, который состоит из 3-х дисков (папок), включающих 1445(CD1) Rock'n'Roll, Progressive Rock, Hard Rock:
+001.10cc - Good Morning Judge (1977) (02:56)
+002.10cc - I'm Not In Love (1975) (06:03)
+003.49th Parallel - Eye To Eye (1969) (02:52)(   Читать дальше...   )Жанр: Rock, Blues, Chanson, Disco, New Wave, Pop, ElectronicПродолжительность: 43:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A9BDCF0AC59078ACEFC883FD1C92A1C3F4D339
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602980   (37145) от 16.11.2024
 
 Компромат / Kompromat (2022) BDRip [H.264/1080p] [MVO]
@@ -587,57 +638,6 @@ magnet:?xt=urn:btih:7F4197B8C268A2FAE4DF236240094B12F6B07EC4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C72C7AD0E929161D8F9E5C47FD39BA1D01EF2FB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760691   (37169) от 15.11.2024
-
-eX-Driver: Nina & Rei Danger Zone | eX-Driver Danger Zone | Экс-драйвер: опасная зона Нины и Рей [2002, Movie] DVDRip 478p 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через сто лет люди больше не будут водить, а вместо этого будут «ездить» на управляемых компьютером электромобилях с искусственным интеллектом, которые автоматически доставят вас туда, куда вы хотите. Однако один из автомобилей с искусственным интеллектом по непонятной причине начинает выходить из-под контроля. Теперь главным водителям организации eX-Driver, Нине (   Читать дальше...   )Производство: Студия Actas / アクタスЖанр: приключения, комедияРежиссер: Ватанабэ СинъитиПеревод: AdvokatЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C77F3D926FC3B959EF8C3BC37846ECF32C7FFB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760587   (37170) от 15.11.2024
-
-VA - Black Hole Trance Music 11-24 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_37170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craig Connelly & Lasada - Found You (Extended Mix) (06:33)
-02. Dennis Sheperd, DeepMe; Daniel Pinho (US) & Katty Heath - Liberation (Extended Mix) (04:47)
-03. Driftmoon - The Sound (Extended Mix) (05:49)
-04. Bodo Kaiser & Sarah Howells - See for Miles (Extended Mix) (05:22)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6B97B5184D0E690622502B46AE7D050C624339
 ```
 
 

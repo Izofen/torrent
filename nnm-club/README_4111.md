@@ -1,3 +1,189 @@
+###  Публикация: 1686302   (126576) от 22.12.2023
+
+Ritual King - The Infinite Mirror (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Blues, Stoner, Progressive>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flow State [00:09:29]
+02. Worlds Divide [00:07:28]
+03. Landmass [00:07:14]
+04. Tethered [00:11:50](   Читать дальше...   )Жанр: Heavy Blues, Stoner, ProgressiveПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786F106DBD2E3B34BB0D04B588018BF8A76DC076
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686373   (126577) от 22.12.2023
+
+Наша банда. Цирк Барнум и Ринглинг / Our Gang. Barnum & Ringling, Inc (1928) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Банда живет в шикарном, но скучном отеле. Они решают устроить цирк со своей разношерстной коллекцией, но как обычно что-то выходит из-под контроля, вызывая хаос во всем отеле.Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт Ф. МакгоунАктеры: Джо Кобб, Джеки Кондон, Джин Дарлинг, Аллен ’Фарина’ Хоскинс, Бобби «Уизер» 'Хатчинс, Джей Р. Смит, Гарри Спир, Pete the Pup, Бобби Дин, Paul ToienПеревод: немой с интертитрами (bankolya)Субтитры: английские (интертитры), русскиеПродолжительность: 00:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A239DBA7ACC7E35A4469D88B552BE981D29546
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686412   (126578) от 22.12.2023
+
+Edward De Rosa - Darkness Falls (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am The Night 02:48
+02. Awakening 04:02
+03. Chaos Reigns 05:38
+04. Deceptive Heart 05:22(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D69350F77E4C22A4CED3D93324AE193E0EF2EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686394   (126579) от 22.12.2023
+
+Rencontre Nocturne - Recap 2023 (2023) [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BURNS - Talamanca (BURNS Sunset Mix) w/Funkerman - Speed Up (Acapella) w/Riton - Rinse & Repeat (feat. Kah-Lo)
+02. Nicky Romero - Techtronic w/Mau P - Drugs From Amsterdam
+03. PARISI x Sebastian Ingrosso x Steve Angello - U Ok? w/Andruss - Toma Que Toma
+04. Mark Knight & James Hurr & Laura Davie - Movin w/Mylo - Drop The Pressure (Laidback Luke Bootleg) (   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAE33462099DCD0021024A66857902F018DC238
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686150   (126580) от 22.12.2023
+
+Power Reset - Son Of The Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Song of Arrival [00:01:10]
+02. Mighty Warrior [00:04:32]
+03. Eternal Mystery [00:04:48]
+04. Breaking the Wall [00:04:25](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F147588CCF5D10947794862B4D12C367C6780BF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686291   (126581) от 22.12.2023
+
+Vargrav - The Nighthold (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonless Abyss of the Nighthold 02:25
+02. Through the Woods of Breathing Shadows 05:43
+03. Chalice of Silver and Blood 05:56
+04. Thy Imperial Malice 04:31(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8A737561D78DF7B5B0D093B307A69EA084B569
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686151   (126582) от 22.12.2023
+
+Kaos Krew - Blackout (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At the Core [00:03:28]
+02. Retribution [00:04:08]
+03. Know Thyself [00:03:45]
+04. Wake-Up [00:03:48](   Читать дальше...   )Жанр: Alternative Metal, Industrial MetalПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79875618ED946EDE1548C4BFB8C98E24D06744FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686296   (126583) от 22.12.2023
 
 Damnationis - The Fallen Princess (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
@@ -495,187 +681,6 @@ From Fall to Spring - RISE (2023) Deluxe Edition [FLAC 24/44.1|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB3A5FDCC42E60FCB8048BAF74FBD35A42D5BF78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686129   (126602) от 22.12.2023
-
-Albert - Береговое братство (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:02]
-02. Летучий голландец [00:05:39]
-03. Остров Барбадос [00:05:27]
-04. Остров сокровищ [00:06:06](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:969F998FA041C4246C08A2242783C979055F73D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686138   (126603) от 22.12.2023
-
-Рупор Культуры - Выбор народа (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Ska, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Супергеройская [00:02:24]
-02. Зелёная марка [00:03:27]
-03. Пиво [00:02:38]
-04. Верные друзья [00:02:38](   Читать дальше...   )Жанр: Rock, Ska, PunkПродолжительность: 00:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53447AA42A78EC3FC00E178826CFCB2C4D446B5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686141   (126604) от 22.12.2023
-
-Водоворот - Отражение этого дня (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чёрно-коричневая нечесть [00:04:04]
-02. Весна [00:05:50]
-03. За бойцов [00:04:06]
-04. Окраина [00:04:07](   Читать дальше...   )Жанр: RockПродолжительность: 00:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF6E8183FB76F8A321211BB965D4529DCA1A0F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686144   (126605) от 22.12.2023
-
-Бриг - Подкаст на волне (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Браслет [00:04:17]
-02. Ветрянная река [00:02:43]
-03. Заточены ножи [00:04:24]
-04. Страна разлук [00:03:31](   Читать дальше...   )Жанр: RockПродолжительность: 00:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E825ED4544612B16EB64F1FB6F5B187A8AB5A41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686240   (126606) от 22.12.2023
-
-Особая личность / Dak siu san fan / Special ID (2013) BDRemux [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чэнь Цзылун это сотрудник полиции под прикрытием, глубоко внедрившийся в ряды одной из самых жестоких банд Китая. Сюн, главарь банды, поставил себе главную задачу – отыскать правительственных агентов, втесавшихся в его окружение. Теперь Чэнь разрывается на два фронта: старается уберечь свою семью от распада и сохранить в тайне собственную личность.
-  Ставки с течением (   Читать дальше...   )Производство: Китай / Beijing Starlit Movie and TV Culture, China Film Group Corporation (CFGC), China Movie ChannelЖанр: боевик, криминалРежиссер: Кларенс ФокАктеры: Донни Йен, Энди Он, Цзин Тянь, Рональд Чэн, Колин Чоу, Теренс Инь, Ян Чжиган, Чжан Ханьюй, Нина Пау, Мак Чун-ЧинПеревод: Двуголосый любительский (GREEN TEA)Язык озвучки: русский, китайскийСубтитры: китайские, английские (PGS)Продолжительность: 01:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC1244CA604BF6DD8CA6F5AB35BE8842012CE1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686393   (126607) от 22.12.2023
-
-Крик. Ночь перед Рождеством / It's a Wonderful Knife (2023) WEBRip [H.264] [звук с ТS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126607.jpg" />
-</div>
-
-
-###  Подробнее
-
-В канун Рождества бесстрашная Уинни спасла свой городок от серийного убийцы, но ее жизнь превратилась в кошмар. Загадав желание никогда не рождаться, она переносится в параллельный мир, где тот же психопат в маске вновь терроризирует город.Производство: Великобритания, США, Канада | Divide/ConquerЖанр: ужасы, комедия, фантастикаРежиссер: Тайлер МакИнтайрАктеры: Джейн Уиддоп, Джоэл Макхэйл, Джастин Лонг, Джессика Маклауд, Кэтрин Изабель, Эйден Ховард, Эрин Бойес, Шон Депнер, Зэния Маршалл, Джейсон ФернандесПеревод: Дублированный (звук с ТS)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:25:03Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686236   (126608) от 22.12.2023
-
-Лолита Лобоско расследует / Le indagini di Lolita Lobosco / The Investigations of Lolita Lobosco (2021) HDTVRip [H.264] (сезон 1, серии 1-4 из 4) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_126608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лолита Лобоско после нескольких лет, проведённых в Леньяно, возвращается в свой родной город Бари, где её назначают заместителем начальника городского полицейского отделения. Возглавляя мужской коллектив, женщина не боится подчеркивать свою женственность, в том числе высокими шпильками и смелыми декольте. В раскрытии преступлений её также отличает свой неповторимый (   Читать дальше...   )Производство: Италия / Rai CinemaЖанр: триллерРежиссер: Лука МиньероАктеры: Луиза Раньери, Франческо Де Вито, Камилла Диана, Бьянка Наппи, Филиппо Шиккитано, Маурицио Донадони, Джампьеро Ротоли, Якопо Каллин, Giulia Fiume, Сьюзи Дель Гьюдиче и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:50:00 серияРеклама: Присутствуют видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2150EE7FD1D1553FD11ABABEC17F24331D483A9D
 ```
 
 

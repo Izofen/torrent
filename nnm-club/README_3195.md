@@ -1,3 +1,192 @@
+###  Публикация: 1764063   (102754) от 05.12.2024
+
+Mac Arnold & Plate Full O' Blues - On a Mission (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues All over You (2:45)
+02. Dance the Blues Away (2:31)
+03. I Am the Blues (3:38)
+04. Love Story (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:287C33BDAD2538EE93DFBF899EA453294D6D0940
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764072   (102755) от 05.12.2024
+
+Soultide - Waves of the Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul in the City (4:01)
+02. Moonlight in My Eyes (2:58)
+03. Twilight Groove (2:02)
+04. Midnight Reverie (2:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972C4E00295FE7FE7EE25C5395916DE8D7E10626
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764062   (102756) от 05.12.2024
+
+Innes Sibun - The Preacher (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incantation (4:38)
+02. The Preacher (5:44)
+03. I Found Your Letter (6:43)
+04. Time Is Tight (4:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADF260A7BD9DC270F3B4396F517D3DFBA04ECEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764054   (102757) от 05.12.2024
+
+Chocolate George - House of Make Believe (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't No Sign (3:22)
+02. Detroit Crank (3:14)
+03. Bloomer Pudding (3:20)
+04. House of Make Believe (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CF32B08FADBB669939382A6E9FE3D3D50788152
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764066   (102758) от 05.12.2024
+
+Olivier Mas - One Man Swamp Boogie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Fun (2:59)
+02. Six Strings Down (3:14)
+03. I'm a Man (3:17)
+04. Hey, Hey (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:12:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD0A66A48EC7B806B2D4D3AC543BB0DC7BCF3D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764064   (102759) от 05.12.2024
+
+Mikey Junior - Traveling North (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Enough to Know (3:57)
+02. Taboo Love (4:45)
+03. You Hurt Me (3:35)
+04. Crazy over You (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12BF8EC7981603EDB786F053E7D7EF704E36E6BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764068   (102760) от 05.12.2024
+
+Peter MacInnis - Late Night Blues Vibe (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Remember How to Dance? (3:31)
+02. Something to Sell (3:31)
+03. HollyHood Tay - Focusing on Me (2:32)
+04. Gotta Slow It Down (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A770F92C69FAE46257A38C3F685960F95E3CB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764035   (102761) от 05.12.2024
 
 Pestilent Hex - Sorceries of Sanguine & Shadow (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Black Metal, Melodic Black Metal>
@@ -501,195 +690,6 @@ VA - Fusion Funk Excursions (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F52AF3CB6A0A75D716ADCE41055A077E2745299E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763822   (102780) от 03.12.2024
-
-Sierra - A Story Of Anger - The Remixes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Wave, Darksynth, EBM>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stronger (Gunship Remix) [4:48]
-02 - Never Right (HORSKH Remix) [2:44]
-03 - In my Veins (Matteo Tura Remix) [4:24]
-04 - By Fire (Toutant Remix) [2:49](   Читать дальше...   )Жанр: Dark Wave, Darksynth, EBMПродолжительность: 00:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EDD10E6D86CAC40F5BCFABE78BF3C5E3ABEC608
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763803   (102781) от 03.12.2024
-
-Jimmy Raney & Sonny Clark - Together! (1954) 1994, Xanadu Records [FLAC|Lossless|tracks + .cue] <Bop, Guitar Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once in a While [4:33]
-02. Pennies from Heaven [3:18]
-03. Yesterdays [3:04]
-04. There Will Never Be Another You [4:30](   Читать дальше...   )Жанр: Bop, Guitar Jazz, Piano JazzПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:973DD203C8D565F616B6F947B2761775482FCCD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763517   (102782) от 01.12.2024
-
-Uni Debess - Red (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Night Blues (3:29)
-02. Donk Donk (4:18)
-03. Concrete Walls (4:34)
-04. Little Doline (2:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E28F173AE463D48BB8D27C304B62C7CA09A243C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763507   (102783) от 01.12.2024
-
-The Coffee Sergeants - Racing Shadows (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Windows Open Wide (4:13)
-02. I Wish You Were A Mountain (3:24)
-03. Green Hours (5:47)
-04. House Where She Used To Live (5:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AF381CE5EB18D373B3704A32F2289264B67B07B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763495   (102784) от 01.12.2024
-
-Strix Revival - Heartfelt Harmonic Journeys (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Love (3:32)
-02. The Journey of Forgiveness (2:52)
-03. Roots and Heritage (3:10)
-04. Burden of Responsibilities (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:09:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B269EC9BE5B1640FB7DD692C048A5FD9C22C58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763464   (102785) от 01.12.2024
-
-Allsiders - No Further Questions (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wish I Could Quit (3:28)
-02. Upon the Fire (5:37)
-03. Bad Desire (3:59)
-04. Can't Control My Mind (4:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C4DAD9337A2AA01D977A64C8629C8E5570C6D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763299   (102786) от 01.12.2024
-
-Amarok - Blasphemous Edictum (2008) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102786.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bluźnierczy manifest
-02. Twierdza wyzwolonych myśli
-03. Wieczne bluźnierstwo
-04. Duch wilka(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7813D5D9BF86B2BAB26AEA74A7A119196468E96
 ```
 
 

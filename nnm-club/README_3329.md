@@ -1,3 +1,183 @@
+###  Публикация: 1738904   (106239) от 25.07.2024
+
+Memento Database + ключ активации 5.4.3 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Memento Database - это мощный и в то же время легкий в использовании инструмент для работы с любыми данными, который позволяет хранить, организовывать, вычислять и визуализировать вашу информацию. Это удобнее, чем электронные таблицы, гибче, чем специализированные приложения, проще, чем создание собственных приложений с помощью конструкторов.Тип издания: Free + Pro KeyРелиз состоялся: 06.07.2024Разработчик: MementoDB Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABA71CA2522DACBA9B5789230A58B7C1D676A15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738940   (106240) от 25.07.2024
+
+Синг-Синг / Пой, пой / Sing Sing (2023) TS [H.264] [MVO]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Уитфилд по прозвищу Дивайн Джи попадает в тюрьму особо строгого режима Синг-Синг за преступление, которого не совершал. Постепенно привыкая к новому окружению, он решает вступить в тюремную театральную труппу.Производство: США / Black Bear, Edith Productions,, Marfa Peach CompanyЖанр: драмаРежиссер: Грег КуидарАктеры: Колман Доминго, Clarence Maclin, Шон Блэкман, Пол Рейси, David Giraudy, Патрик Гриффин, Mosi Eagle, Джеймс Уильямс, Sean Dino Johnson, Брент БюэллПеревод: Многоголосый любительский (RGB)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:22
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738897   (106241) от 25.07.2024
+
+IObit Smart Defrag Pro 10.0.0.374 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7004E5781570786C236B035049DE9292AA45A180
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738661   (106242) от 24.07.2024
+
+Nick Charles - Further Down the Line (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleeping in a Strange Bed (3:21)
+02. Wonderful Tonight (3:48)
+03. My Father's Books (4:32)
+04. The Photo (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:386791D29914F95FB445611B2927C3DA95CF3E2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738663   (106243) от 24.07.2024
+
+Romi Mayes - Small Victories (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please Tell My Heart (3:12)
+02. When I'm With You (3:20)
+03. Right Now (3:49)
+04. When You Ask (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE8FCBF4C85EBD1654EB11E9E0D244799B3B7C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738711   (106244) от 24.07.2024
+
+Inner Strength - Daydreaming In Moonlight (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daydreaming in Moonlight
+02. The Art of Moving Forward
+03. Face Another Hero
+04. Dearly Departed(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:412B13EE86671453F4F9452CFD98641E7153C2A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738627   (106245) от 24.07.2024
+
+Eden Brent - Getaway Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Getaway Blues (3:25)
+02. Watch The World Go By (6:35)
+03. What You Want (4:34)
+04. You On My Mind (4:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6888F161E7BDA20375DBCE442975C06DBE6FBE63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738634   (106246) от 24.07.2024
 
 Gary Harvey - Outta My Head (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -489,192 +669,6 @@ magnet:?xt=urn:btih:3890C8501533469C5C28E6AB6DB989BA9A449E77
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7771CB25493B320B41BA81DF32F99380A5FC2DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738630   (106265) от 24.07.2024
-
-Epoch Ensemble - Blues In Every Shade (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Highway (3:49)
-02. A Broken Heart (4:22)
-03. Bottom of the Bottle (6:18)
-04. Road to Myself (4:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A86EE72CDB9A68C5BAA5F8854AA7F47A35536BF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738714   (106266) от 24.07.2024
-
-Chris Boudreaux - Beside Myself (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hunters In The Night
-02. My Window
-03. Missing You
-04. One Eyed Jack(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF68AE6BB62B0F6BE761B9CFD05C75E2862CDB1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738689   (106267) от 24.07.2024
-
-Photo Supreme 2024.2.2.6593 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B9F5C519C4A0A46792AE28226F6E6E3D1B51A12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738665   (106268) от 24.07.2024
-
-Ron Beer - Best Beer Ever (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malibu (3:45)
-02. Man of Mystery (2:13)
-03. Diamond in the Rough (1:28)
-04. Got a Lot of Loving to do (3:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24EBE7292C74CBF29B72FD5C3B4ACD73996F7730
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738641   (106269) от 24.07.2024
-
-Lara Price - Half & Half (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - We're Still Friends [04:33]
-02. - Evidence [03:52]
-03. - Fools Like Me [02:26]
-04. - Things Ain't Everything [04:32](   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9AC8AA10562D5577AB0FA617F81DA82A58F421E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738626   (106270) от 24.07.2024
-
-BuddyRo and the 'Lanes - I'm Through with Trouble (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Good  (4:20)
-02. Through with Trouble  (3:35)
-03. Really Had It Coming  (3:45)
-04. Trail of Love  (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0728C0761887F4092CCCBDAE33DF9DC99528A7AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738666   (106271) от 24.07.2024
-
-The Bad Day - The Irish Goodbye (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbeat (3:58)
-02. Welcome To The Show (3:09)
-03. Mr Regret (3:33)
-04. No Love For Sale (3:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749CDE4B5858969442C9AA44C52F50E21FF21434
 ```
 
 

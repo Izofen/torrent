@@ -1,3 +1,57 @@
+###  Публикация: 1801996   (66138) от 14.06.2025
+
+Malvada - Malvada (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Down The Walls (3:52)
+02.  Yesterday (My End, My Beginning) (4:10)
+03.  Veneno (3:29)
+04.  Fear (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD59AB9FCE64C91DB58AE1F0A255F437912C57C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801920   (66139) от 14.06.2025
+
+Tokimonsta - Eternal Reverie (2025) 4 CD [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Dance. Alternative, Electronic, Experimental Hip-Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Switch It (Kingdom Remix) [00:03:21]
+02. Say Tell Me (Maya Jane Coles Remix) [00:04:58]
+03. All In (Karaba Remix) [00:04:20]
+04. For You (Next To Blue Remix) [00:03:22](   Читать дальше...   )Жанр: Dance. Alternative, Electronic, Experimental Hip-HopПродолжительность: 4 CD, 01:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C8A618FC105C841B97EEFDE688626A55F2F62A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795841   (66140) от 14.06.2025
 
 Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и Юки [2012, Movie] Blu-ray 1080p raw+rus
@@ -588,60 +642,6 @@ magnet:?xt=urn:btih:F52756A25848022BB401E54F8CC9345BB67A89D5
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801761   (66164) от 12.06.2025
-
-Театр Тьмы - Старый Кукловод (2025) [FLAC|Lossless|WEB-DL|tracks] <Horror Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пьяный убийца [00:03:16]
-02. Незваные гости [00:04:35]
-03. На краю [00:05:16]
-04. Старый Кукловод [00:03:31](   Читать дальше...   )Жанр: Horror PunkПродолжительность: 00:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D087903D2B879CAC56AA53BC3F7630707806E6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801609   (66165) от 12.06.2025
-
-Олег Семёнов, Соня Белькевич - Чёрные розы (2025) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чёрные розы
-02. Увы, мадам
-03. Глаза бесстыжие
-04. Ты любовь моя(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B1F819ED0006C3A59B8B4A77CF07FA0645BC3D
 ```
 
 

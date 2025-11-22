@@ -1,3 +1,183 @@
+###  Публикация: 1694806   (120773) от 26.01.2024
+
+Tipard Screen Capture 1.1.26 [Multi/Rus]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screen Capture — это популярное и простое в использовании программное обеспечение, которое может помочь вам записывать видео и аудио, а также делать снимки экрана для пользователей Mac.Тип издания: macOS SoftwareРелиз состоялся: 15.01.2024Разработчик: © 2022 Tipard StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7BD9892162E13A2F51A0B321A7252DD7647ECB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694674   (120774) от 26.01.2024
+
+Manticora - Mycelium (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Solstice
+02. Necropolitans
+03. Demonday
+04. Angel Of The Spring(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA54065655A0282295021ABF433BE8669F52F7F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694496   (120775) от 26.01.2024
+
+Anita O'Day - Live In Concert Tokyo (1976) 1997, Emily Productions [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wave [1:37]
+02. The Song Is You [4:33]
+03. Street of Dreams [4:13]
+04. On a Clear Day (You Can See Forever) [3:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA22DA36492E36F41469C511F99DD33FFFADCCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694842   (120776) от 26.01.2024
+
+Fork 2.39 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрый и удобный клиент git. Fork с каждым днем ​​становится все лучше и лучше, и мы рады поделиться с вами нашими результатами. Список коммитов - Изменения рабочего каталога - Бок о бок Diff - Сводка и статистика менеджера репозиторияТип издания: macOS SoftwareРелиз состоялся: 26.01.2024Разработчик: © 2023 Danil PristupovПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8FB814715C30936FB453F0758673172EF81A8A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694676   (120777) от 26.01.2024
+
+Blood Red Throne - Nonagon (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120777.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Epitaph Inscribed
+2. Ode To The Obscene
+3. Seeking To Pierce
+4. Tempest Sculptor(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D171402B16D35A95B409F99E2B52CB71C7BDF00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694824   (120778) от 26.01.2024
+
+uDock 4.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120778.jpg" />
+</div>
+
+
+###  Подробнее
+
+μDock - это легкое системное расширение для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 20.01.2024Разработчик: © 2024 Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05D00A759CA024F5817929BD85D3155919045284
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694746   (120779) от 26.01.2024
+
+Mel Torme - Swingin' On The Moon (1993) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Because of You [2:41]
+02. Swinging on the Moon [2:21]
+03. Blues in the Night [3:38]
+04. You Oughta Be in Pictures [1:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF3961B08E6C817A894ABD06A6822CE5F157989C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694745   (120780) от 26.01.2024
 
 Gato Barbieri - Priceless Jazz Collection (1997) GRP [FLAC|Lossless|tracks + .cue] <Latin Jazz>
@@ -483,184 +663,6 @@ magnet:?xt=urn:btih:B33903A65BC0E5CB3F2E1BDB391AE3117F07B973
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1084001D34B2665EC1B70069D93C73FB10BAC98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694651   (120799) от 26.01.2024
-
-Static-X - Project Regeneration, Vol. 2 (2024) [FLAC 24/48, 16/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Stay Alive [00:03:46]
-02 Z0mbie [00:03:11]
-03 Jic Boi [00:02:58]
-04 Black Star [00:04:00](   Читать дальше...   )Жанр: Nu-Metal, Industrial MetalПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA173B8BA7C78514785241100BA7D4C898EFE7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694749   (120800) от 26.01.2024
-
-Byron - Chapter II: The Lotus Covenant (2024) [MP3|320 Kbps] <classic melodic metal, doom, NWOBHM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Overture [00:01:49]
-02 - The Lotus Covenant [00:03:58]
-03 - Resignation [00:04:04]
-04 - Sword of the Apostle [00:07:20](   Читать дальше...   )Жанр: classic melodic metal, doom, NWOBHMПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69544D502F0C192854CC5E8E86FE968CB6D46BCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694709   (120801) от 26.01.2024
-
-Tower Pro 10 v.10.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tower - мощный и элегантный Git клиент для Mac
-Сегодня, системы контроля версий играют очень важную роль в разработке программного обеспечения. Одной из таких систем является Git, изначально разработанная Линусом Торвальдсом в 2005 году, на сегодняшний день снискавшая большую популярность среди разработчиков. Cейчас Git используют такие известные проекты, такие как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2010-2024 TowerПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF9A685580C1A6A250DA8F98D94B3B9B5E57A5E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694664   (120802) от 26.01.2024
-
-VA - Armin van Buuren - A State Of Trance 1157 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Lions & Andrew Bayer ft. Fiora - Places I Belong (OPHELIA)
-02. Laura van Dam & Ginchy - Save Me (ARMIND)
-03. AVIRA - Hot Tub Time Machine (SPECTRUM MUSIC)
-04. LKX - Multiverse Wanderer (FUTURISING MUSIC)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369E24C3F178A65B75B47DE3277A0F0F3AF5897F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694762   (120803) от 26.01.2024
-
-OmniGraffle Pro 7.22.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120803.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniGraffle Pro - отличный инструмент для создания сложных графиков, диаграмм, схем. OmniGraffle Pro обладает простым и интуитивно понятным интерфейсом, который обеспечивает легкий доступ к вашим проектам, инструментам и стилям и другим меню. В число инструментов программы входят: кривая Безье, трафареты, кривые и многое другое. Для придания диаграмме презентабельного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2024Разработчик: © 2000-2022 The Omni GroupПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:253A26439DC4CC02A302929BE7FAEF7BADD0C60E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694723   (120804) от 26.01.2024
-
-Багажник: Запертая / Trunk: Locked In (2023) WEB-DL [H.264/1080p] [DE / RU, UKR, DE, EN and other Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Малина просыпается дезориентированной в багажнике мчащейся машины и к своему ужасу обнаруживает, что она ничего не помнит. Имея мобильный телефон в качестве единственной связи с внешним миром, она ведет отчаянную борьбу за выживание.Производство: Германия / Outside the ClubЖанр: драма, триллерРежиссер: Марк ШиссерАктеры: Зина Мартенс, Артём Гильц, Поал Каиро,  Луиза Хельм,  Чарльз Реттингхаус, Янина Захау, Кристоф КноблохПеревод: ОтсутствуетЯзык озвучки: НемецкийСубтитры: русские, украинские, немецкие (forced, SDH), английские и др.Продолжительность: 01:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81744B289AB1971273FBB7B0BCDB184F472970C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694622   (120805) от 26.01.2024
-
-Topaz Gigapixel AI for Mac 7.0.0 U2B [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Gigapixel AI. — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, Topaz Gigapixel AI ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2024Разработчик: © 2024 Topaz LabsПоддерживаемая ОС: macOS 10.14 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5351D0A4E8601783FFEEE5858C1AF1C3295DFF
 ```
 
 

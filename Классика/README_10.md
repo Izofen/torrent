@@ -1,3 +1,126 @@
+###  Публикация: 1620194   (249458) от 19.03.2023
+
+Violina Petrychenko - Mrii: Ukrainian Hope (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reverie, Visions of the Past, op. 13 D Minor (4:56)
+02. Chant triste, op. Posth D Minor (3:34)
+03. Moderato – Allegro – Andante sostenuto – Alla Polacca – Moderato – Allegro (10:27)
+04. Mriya G Minor (3:09)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F4FD26D431D7B81E97551F3F4F65FF690849973
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494957   (251122) от 11.05.2012
+
+Svarrogh / Defile Des Ames / Arnica – South European Folk Compendium (2009) [FLAC|Lossless] <Dark Ambient, Neoclassical, Neofolk>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Défilé Des Âmes - The Banner of Vanity (15:05)
+02. Svarrogh - The Wheel of Dazhbog (07:33)
+03. Àrnica - Lligueu les Besties (05:36)
+04. Àrnica - Marxa dels Camperols (02:42)
+05. Svarrogh - Life Water Krynitsa (05:55)
+06. Àrnica - Dona que Plora (04:31)
+07. Àrnica - Falc en Alt (03:41)
+08. Svarrogh - Yarilo's Return (05:48)
+09. Défilé Des Âmes - Ordo ab Chao (05:06)
+10. Àrnica - Darrer Ale (04:05)2009Жанр: Dark Ambient, Neoclassical, NeofolkФормат: CDПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495107   (251123) от 11.05.2012
+
+Nebelkorona - 3 albums (2006-2010) [FLAC|Lossless] <Neoclassical, Ambient, Neofolk>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morgenstunden (05:58)
+02. Windstille (06:06)
+03. Sonnenhall (03:35)
+04. Dezemberabend (06:05)
+05. Baumgespenster (06:02)
+06. Waldzauber (06:55)
+07. Abschiedsfeuer (05:57)2006-2010Жанр: Neoclassical, Ambient, NeofolkПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495526   (251372) от 12.05.2012
+
+Kammer Sieben – Unfinished Movies (2007) [FLAC|Lossless] <Apocalyptic Folk, Neoclassical, Martial Industrial>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Amerika (04:05)
+02. Black Sun (04:25)
+03. Flamme Empor (03:05)
+04. Beinhaus (04:39)
+05. Pingo (03:49)
+06. Richards Lied (03:43)
+07. Them (04:15)
+08. Tripod (03:25)
+09. Dismembered Memories (06:09)
+10. Blood (04:45)(   Читать дальше...   )2007Жанр: Apocalyptic Folk, Neoclassical, Martial IndustrialФормат: CD, Album, Limited EditionПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835574   (252326) от 08.11.2025
 
 Armin van Buuren - Piano (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
@@ -239,7 +362,7 @@ magnet:?xt=urn:btih:D2F7458E64AA4C0082CFD0BDA5EE7437962507E0
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836648   (254287) от 
+###  Публикация: 1836648   (254287) от 12.11.2025
 
 Andre Rieu and his Johann Strauss Orchestra - Thank You, Johann Strauss! (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
 
@@ -293,7 +416,7 @@ magnet:?xt=urn:btih:38C12DFBE0A943259C543ACF5D98431E17E51334
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836810   (255668) от 
+###  Публикация: 1836810   (255668) от 12.11.2025
 
 VA - Uplifting Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 
@@ -381,6 +504,30 @@ Daemonia Nymphe - 4 albums (2002-2007) [FLAC|Lossless] <Neofolk, Neoclassical, E
 ## Скачать торент
 ```bash
 нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499015   (256125) от 20.05.2012
+
+VA - The Classical Album (2011) 2CD [MP3|320 кб/с]<Classical, Vocal, Choral Music>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_256125.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011Жанр: Classical, Vocal, Choral MusicПродолжительность: 02:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A914B4200805807B78532F557E79C6B9A214F584
 ```
 
 

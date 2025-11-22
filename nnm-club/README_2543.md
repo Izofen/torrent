@@ -1,3 +1,57 @@
+###  Публикация: 1797009   (66866) от 13.05.2025
+
+Noel Evans - AZTEC MOON (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aztec Moon (4:34)
+02.  Carry Me (4:05)
+03.  Silver and Gold (4:25)
+04.  Sad and Lonely and Blue (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6404BF80D0D1782E7AC4FFE213E3F7034843FB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796993   (66867) от 13.05.2025
+
+Brody Buster - Redemption (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Can You Hear Me (4:41)
+02.  Born to Be Bad (4:52)
+03.  Deadwood Shuffle (2:53)
+04.  Working for the Devil (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5BA8F0A04F7C27320A233627D40EA9AF3511D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796930   (66868) от 13.05.2025
 
 Ken (Kenny) Wheeler & The John Dankworth Orchestra - Windmill Tilter: The Story Of Don Quixote (1968) 2010, BGO Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -612,55 +666,6 @@ The Kooks - Never-Know (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alt. Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:708D30C141E18EB7D5ED937B7C6592FE459187E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796959   (66892) от 13.05.2025
-
-НХЛ. Кубок Стэнли 2025 (Плей офф. 2-й раунд, 4-й матч) Вашингтон Кэпиталз - Каролина Харрикейнз (12.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66892.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 мая 2025, вторник. 02:00 МСК. Стадион: Леново Центр (Роли, США), 19 138 зрителей (101% при вместимости 19 041)
-Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Джонни Мюррей (Бипорт, Канада); Линейный: Джеймс Тобиас (Баффало, США)Телекомпания: Setanta Sports 2Жанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 02:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37CAD799DC17D5CBFB145A151C42D24A07E62F33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795840   (66893) от 13.05.2025
-
-Фоны - Graphic Studio - Creative Fabrica - Watercolor Lighthouse Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельные фоны с изображением маяка.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:447BF01A92E3D9346C3EE6708FEC95D246D41E4D
 ```
 
 

@@ -1,3 +1,208 @@
+###  Публикация: 474935   (98016) от 29.03.2012
+
+Джон Ле Карре | Убийство по-джентльменски [2009] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Джордж Смайли
+Оригинальное название:2009Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DF1459E5F763DCB5C01AED78EEEF0EA4DDFAEF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474934   (98017) от 29.03.2012
+
+VA - Magic of Instrumental music (2012) [MP3|256 kbps]<Instrumental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.Taylor - Ima Wa Shiwasekai
+02. N.Mouskuri - Recuerdes De La Alhambra
+03. R.Coniff - Those Were The Days
+04. E.Simoni - Pan Serenade
+05. B.Stenberg - Allegretto
+06. The Ventures - Mexico
+07. E.Schimseheimer - Bamboleo
+08. F.Duval - Kalinas Melodie
+09. S.Preux - Phytandros
+10. Aimable - La Moskova(   Читать дальше...   )2012Жанр: InstrumentalПродолжительность: 05:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B25DDB69680F107623791E3B5429B43872EFA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475156   (98018) от 29.03.2012
+
+VA - Хиты Радио Record 20 50/50 (2012) [MP3|160-320 kbps]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98018.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Temple One feat. Neev Kennedy - Love The Fear (Tom Fall remix)
+002 Винтаж - Амстердам (feat. Владимир Пресняков)
+003 Tiesto - Maximal Crazy (original mix)
+004 DJ Цветкоff & Оля Милакса - Белая ночь (Dj Amor remix)
+005 Starkillers, Dmitry KO - Disco Fans (Butterfly Terrace mix)
+006 Serebro - Мама люба
+007 Analog People vs. Feel Good Prod. - Feel Good Vibe (Dj Shum & Dj Oleg Petroff Mashizz)
+008 Вера Брежнева - Реальная жизнь (DJ Vengerov remix)
+009 Duck Sauce - Big Bad Wolf (original mix)
+010 MM Dance - Отдыхаем (Dj Alfred extended mix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 049:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9883889610884C7331ED6EB6955FE669AD8D9F13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475029   (98021) от 29.03.2012
+
+Опасная банда / De Bende van Oss / The Gangs of OSS (2011) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Йоханна хочет порвать с преступным прошлым, которое ее окружает. Но когда ее муж освобождается из тюрьмы, все возвращается на круги своя. Йоханне все труднее и труднее уйти от зверств, совершаемых бандой Oss, и чем дальше, тем глубже она погружается в обман, проституцию и убийства.Жанр: Драма, криминалРежиссер: Андре ван ДаренАктеры: Матиас Скунартс, Сильвия Хукс, Джульетт Ван Арденн, Дан Шурманс, Пьер Бокма, Беня Бружнинг, Дэннис Оверем, Фрэнк ЛаммерсПеревод: Одноголосый закадровый (любительский)Продолжительность: 01:51:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474946   (98022) от 29.03.2012
+
+Я, Франциск Скорина... (1969) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историко-биографический фильм о белорусском издателе и просветителе Франциске (Георгие) Скорине, жившем в первой половине XVI века, основателе первой белорусской типографии в Вильнюсе, авторе фундаментальных исследований в области лингвистики.Жанр: Биографическая повестьРежиссер: Борис СтепановАктеры: Олег Янковский, Николай Гриценко, Гедиминас Карка, Гунта Виркава, Янис Грантыньш, Ростислав Янковский, Борис Гитин, Стефания Станюта, Владимир Золотухин, Тамара Муженко, Арнольд Помазан, Здислав СтоммаПродолжительность: 01:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6726A6CEAE5BBC71EBDA7FD5E60638E8AC0F315
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474104   (98024) от 30.03.2012
+
+VA - Клубные Новинки Vol.55 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guy Mantzur - Epics (David Granha Remix)
+02. DJ Yellow, Yota - I Can't Resist You (DJ Yellow's Sleep No More Drum Edit)
+03. Alexander Popov - When The Sun (Eximinds Remix)
+04. Daniele Sorrenti - A Bailar (DJ Chick Remix)
+05. Beat Service feat. Gemma Pavlovic - Masquerade (Sunn Jellie Remix)
+06. Arkadi & William Daniel - Skypark (Original Mix)
+07. D&S - Tomato (Original Mix)
+08. Max Graham feat. Susana - Down To Nothing (Original Mix)
+09. Masaya (CH) - Again (Nhar Remix)
+10. Madonna - Girl Gone Wild (Offer Nissim Club Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF7DD5EBF539A713BCEE88D3850E045157C62C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475347   (98025) от 30.03.2012
+
+VA - 538 Hitzone 59 2CD (2011) [MP3|320 кб/с]<Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98025.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Время звучания 01:08:02
+---------------------------------
+01 - Lucenzo ft. Don Omar - Danza Kuduro
+02 - Maroon 5 ft. Christina Aquilera - Moves Like Jagger
+03 - Katy Perry - Last Friday Night
+04 - James Morrison - Slave To The Music
+05 - Snow Patrol - Called Out In The Dark
+06 - Alexis Jordan - Hush Hush
+07 - Krystl - Fool For You
+08 - Onerepublic - Good Life(   Читать дальше...   )2011Жанр: DanceПродолжительность: 02:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB832AB57CFDAF07201FA38FB5372EF58ABC523
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475040   (98032) от 30.03.2012
 
 Monster Mike Welch - Axe To Grind (1997) [FLAC|Lossless]<Modern Electric Blues, Blues-Rock>
@@ -552,223 +757,6 @@ magnet:?xt=urn:btih:AD7A67679FA87001D934E28CF887082C98CCA066
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475569   (98060) от 30.03.2012
-
-VA - Планета танцевальных хитов (2012) [MP3|320 кб/с]<Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Set Fire To The Rain
- 02. Akki & Jodie - Russian Love (Radio Edit)
- 03. Alessia - Everyday (Radio Edit)
- 04. Babaeff Dark & DJ China & Leyla Kafari - Eurovision 2012 ( DJ Fair Wind Remix )
- 05. Bad Meets Evil & Bruno Mars - Lighters (Explicit Edit)
- 06. Bruno Mars - Marry You
- 07. Calvin Harris - Feel So Close
- 08. Chris Brown & Benny Benassi - Beautiful People
- 09. Coldplay & Rihanna - Princess Of China
- 10. Dappy - No Regrets(   Читать дальше...   )2012Жанр: Pop, House, DanceПродолжительность: 03:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D96F30B3323C1B04971C59EC9441930C21C553A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475463   (98061) от 30.03.2012
-
-[Wallpapers] Nature HD Wallpapers Pack 7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98061.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature HD Wallpapers Pack 7 
-Название:  Nature HD Wallpapers Pack 7 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х1024 - 7800х5658
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4823FDA1FAFDF95A263606DCEBB68B1FC1AC98C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475610   (98066) от 30.03.2012
-
-Scream Silence - Scream Silence (2012) [FLAC|Lossless]<Gothic Metal, Gothic Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wayfare (8:15)
-02. One (4:06)
-03. New Flood (4:42)
-04. Dreamer's Court (4:53)
-05. Blushed (4:12)
-06. In These Words (5:21)
-07. Surd (4:08)
-08. Horizons (4:00)
-09. Downside (3:28)
-10. Days of Yore (4:06)(   Читать дальше...   )Жанр: Gothic Metal, Gothic RockПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475567   (98067) от 30.03.2012
-
-Ghost Town Blues Band - Dark Horse (2012) [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Lover (3:27)
-02. Memphis Train (4:30)
-03. Finish What You Started (2:50)
-04. Dark Horse (3:30)
-05. Meet Me At The Juke Joint (3:53)
-06. Blues Box Breakdown (0:38)
-07. Memphis Blues (4:16)
-08. Before You Hit The Ground (4:07)
-09. Messin' With The Kid (3:00)
-10. Good To Be Me (3:14)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475303   (98069) от 30.03.2012
-
-VA - Дискотека Русские Звезды (2012) [MP3|128 kbps]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98069.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Юрий Шатунов - Это Лето
-002. Reflex - Первый Раз 2012
-003. DJ Грув & Гарик DMCB - Я Не Знаю Кто Мы
-004. Alyosha (Aлешa) & Влад Дарвин - Больше Чем Любовь
-005. Алисия & Master Spensor - Почему
-006. Лиза Лукашина feat. LikbeZ - Олимпиада 2014
-007. Hi-Fi - Не Покидай
-008. Николай Басков - Странник
-009. Couple - Дым
-010. София Ротару - Мы Будем Вместе(   Читать дальше...   )2012Жанр: PopПродолжительность: 11:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:885D505FAC580E02DB542CEA9EDDA405B3F47195
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475718   (98070) от 30.03.2012
-
-Saline OS 1.6 [i386 + x86_64] (2xDVD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энтони Нордквист представил SalineOS 1.6 – новую версию легковесного и быстрого открытого дистрибутива, построенного на репозиториях Debian GNU/Linux 6.0.4 и использующего рабочее окружение Xfce. Особенностью выпуска является набор пользовательских действий и сценариев, значительно увеличивающих функциональность файлового менеджера Thunar: открытие с правами root каталогов и запуск теринала, возможность присвоения файлу атрибута «executable», запуск MD5SUM, конвертация образов специфических форматов (NGG, MDF) в стандартные ISO-образы, простая утилита использования диска, mount/unmount для ISO, конвертация в ODT, экспорт в PDF, поиск файлов или папок с использованием Catfish, простые преобразования изображений (поворот, изменение размера, масштабирование, конвертация форматов), запись файлов ISO или IMG на USB-носитель, редактирование текстовых файлов с правами суперпользователя.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB66D97D0040A159EC3474813671A3698170B243
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475240   (98071) от 30.03.2012
-
-VA - Jazz Legends 3CDs (Collection) (1998) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jazz Legends 1:
-
-01. Ella Fitzgerald, Louis Armstrong - They Can't Take That Away From Me
-02. Bing Crosby, Mills Brothers - Shine
-03. Fats Waller - It's A Sin To tell A Lie
-04. Coleman Hawkins - On The Sunny Side Of The Street
-05. Ella Fitzgerald, Louis Armstrong - A Foggy Day In London Town
-06. Nat King Cole - It's Only A Paper Moon
-07. Bing Crosby - Dinah
-08. Count Basie - One O'Clock Jump(   Читать дальше...   )1998Жанр: JazzПродолжительность: 01:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F40944F2A7442D7D5CBE05198BAA6343D42EC4B
 ```
 
 

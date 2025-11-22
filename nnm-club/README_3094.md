@@ -1,3 +1,178 @@
+###  Публикация: 477167   (98485) от 03.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (02.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D3F9D80FC23A5361FF0800897F6446FFF686D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477185   (98486) от 03.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (03.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7830E2EF543B8211CCD304D47D76A9481B57D7F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477180   (98491) от 03.04.2012
+
+Illuminatus - Glasnost (2011) [MP3|320 кб/с]<Alternative Metal | Progressive | Post-Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glasnost
+ 02. Murdocracy
+ 03. Division
+ 04. ReconnectЖанр: Alternative Metal | Progressive | Post-MetalПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E940982F19E153F1DB0AC17C5389012E4C2A85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477468   (98492) от 03.04.2012
+
+Журнал | Stuff №4 [апрель 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналапрель 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBCAE6C4F589118D7023F024E376C8B496451595
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477305   (98495) от 03.04.2012
+
+[Wallpapers] Desktop Wallpapers Pack 34
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98495.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 34 
+Название:  Desktop Wallpapers Pack 34 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1418х1065 - 4968х1572
+Расширение (тип) файлов: jpgСкриншоты::tongue:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21BC258F9B33D31FA9C056321B1FA801F0D94E93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477683   (98496) от 03.04.2012
+
+Журнал | Дача и дачники №3 [апрель 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98496.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале вы найдете советы опытных садоводов, цветоводов и огородников. А также большая часть издания посвящена развлекательным разделам. Два десятка сканвордов, грустные и смешные дачные байки, интересные истории из жизни дачников – после напряженного трудового дня есть с чем расслабиться. Оторваться от журнала в минуты отдыха просто невозможно: ведь большую его часть написали простые люди – дачники, которые умеют хорошо работать и хорошо отдыхать на своем любимом участке.апрель 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3913C6405DE1910A55FD84BFC56FFEB260B5B765
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477662   (98497) от 03.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (04.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA409F92BB64958BF4C5B35D19CC7B722D34821
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477501   (98499) от 03.04.2012
 
 VA - Весенняя танцевальная вечеринка (2012) [MP3|160-256 кб/с]<Pop>
@@ -530,223 +705,6 @@ VA - Club Mix (2012) [MP3|256 kbps]<Club | Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1EC29A0C47A5B6A1280D5F3E5B045D46627C7FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478138   (98529) от 04.04.2012
-
-VA - ReOrder pres.  Silent Shore Selection Vol.2 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Rocca - Time Happens Flying (Araya & Wach 'Polisia' Remix) 07:20
-02. Araya & Wach - Tunland (Aiera Remix) 07:11
-03. Miroslav Vrlik - Love In Us (Manuel Rocca Levitated Mix) 07:04
-04. Miroslav Vrlik - Sweetheart (Original Mix) 06:43
-05. Ahmed Romel - City Of Life (Running Man Remix) 08:46
-06. Ico - And She Made It All Of Light (Thomas G 303 Mix) 07:58
-07. Evo & Faveon - Essence (Denis Sender Remix) 07:01
-08. K-Narf & Tristan Armes - Glimmer (N&R Project Remix) 07:57
-09. Kaimo Kerge - For What Its Worth (Airway 7 Vs Alter Future Remix) 07:53
-10. Inca - Time (Original Mix) 08:362012Жанр: TranceПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:489BABA50135FB59CD2814ACC6E1F3A42DE421BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477690   (98531) от 04.04.2012
-
-Lonndom - Falen Fran Norr (2007) [MP3|192 кб/с]<Folk Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98531.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Vid Elden (01:38)
-2. Ripeluokte (06:24)
-3. Himlalågor (07:40)
-4. Tjåkkå (04:22)
-5. Stállo (06:03)
-6. Ripeluokte II (08:50)
-7. Nordafejd (05:41)
-8. På Fjället (04:22)
-
-"...Lönndom seems to be situated elsewhere, in its own still lively world, listening to inner and outer voices most of the civilized people in the Western societies might never hear, even when they made a trip into the outback - these two musicians have a truly individual and sensitive approach towards nature and spiritual matters..."(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A675062C8B45827EF5121DDB8FE5DF22F42E8B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477721   (98533) от 04.04.2012
-
-VA - Муз-прорыв Record 50/50 (2012) [MP3|160-320 кб/с]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Stephane Coker - Без Тебя (Dj Nejtrino Club Edit Unreleased)
-02 David Guetta feat. Sia - Titanium (eSQUIRE remix)
-03 Женя Юдина - Дыши (DJ Южанин remix)
-04 Sarvi - Amore (Chuckie remix)
-05 NikitA - Машина (Dj Fisun remix)
-06 Tempo Giusto and Ima'gin - Oszma (original mix)
-07 Юлия Савичева - Сердцебиение (Trojan Project remix)
-08 Starkillers, Nadia Ali - Keep It Coming (original mix)
-09 Steel Deluxe - Сердце открой (Johan K remix)
-10 Magic Solutions - Lilly Was Here (club mix)2012Жанр: ClubПродолжительность: 08:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2055BB29F673634A6ECF985EB5C554FA523E402E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477456   (98534) от 04.04.2012
-
-Dj Gard - Best Of Volume 1 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tears Of Horizon (Breaking Dawn Mix) (02:23)
-02.The Rising Of a New Day (Original Mix) (09:07)
-03.Water (Original Mix) (05:13)
-04.Norther Lights (Extended Mix) (06:06)
-05.Falling Stars 9.0 (Radio Edit) (03:52)
-06.Nature 2.0 (Extended Mix) (09:04)
-07.No Silence (DNA Revolutions Remix) (08:28)
-08.When The Rain Falls (Original Mix) (03:52)
-09.The Beauty Of Life (Extended Mix) (09:28)
-10.Beach Breeze (Original Mix) (03:59)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7F934A86F61CED6E7986E701419837A3726C6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477831   (98537) от 04.04.2012
-
-ChipaChip - Постоянство (2012) [MP3|320 кб/с]<Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Из города с улицей Лизюкова
-02. Про растения (ft. PlaZo)
-03. Где-то вдали
-04. Очередь вникуда (ft. Sandz)
-05. Дай мне драпа
-06. Это уже где-то было (Скит)
-07. Сентябрь (ft. Серёжа Внатуре, Филя Файя, parachute)
-08. Постоянство
-09. Заморочки (ft. Артём Татищевский, Ворошиловский андеграунд)
-10. Пути назад нет (Скит)(   Читать дальше...   )2012Жанр: RapПродолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA592F2771A11B2AF1B082ADC0D7C954E58DCDCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477877   (98538) от 04.04.2012
-
-Журнал | Просто. Вкусно № 3 [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для тех, кто любит вкусно готовить. «ПРОСТО. ВКУСНО» создает особенное настроение: кухня превращается в гастрономическую лабораторию, где происходят удивительные открытия. «ПРОСТО. ВКУСНО» — это кулинарный журнал, который помогает повысить качество жизни простыми и доступными способами.март 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DECC99E074758277BEF3E5EFC8318C5BAE9CC7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478275   (98539) от 04.04.2012
-
-[Wallpapers] Green Wallpapers 3
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98539.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Green Wallpapers 3
-Название: Green Wallpapers 3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C64B81A887E4A90B05327043DD74993C4C3053C
 ```
 
 

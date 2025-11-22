@@ -1,3 +1,56 @@
+###  Публикация: 1802034   (66112) от 14.06.2025
+
+slo/tide - The Blur (2025) [MP3|320 Kbps] <Synthpop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neck High (3:49)
+02. Crazy (3:04)
+03. Lay Low (3:07)
+04. Blood Hungry (3:14)(   Читать дальше...   )Жанр: Synthpop, Pop-RockПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0089E996EFECE66D25A679E0B94F567ACFD8808
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802054   (66113) от 14.06.2025
+
+Sean Tyas - Lift (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lift (Original Mix) 8:25
+02 Lift (Sean Tyas Rework) 8:25
+03 Lift (Bryan Kearney Edit) 8:25Жанр: TranceПродолжительность: 00:25:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06FE79DAD38C5D2CFC53E728DD77EE803D248099
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802055   (66114) от 14.06.2025
 
 VA - Ori Uplift - Uplifting Only Episode 644 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -626,60 +679,6 @@ magnet:?xt=urn:btih:8D44CE78F435CD5E06D68101D3F9EDC6B3326149
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47E4BF129715BA2166FF46CF52E3FAA5095F4CD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801996   (66138) от 14.06.2025
-
-Malvada - Malvada (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Down The Walls (3:52)
-02.  Yesterday (My End, My Beginning) (4:10)
-03.  Veneno (3:29)
-04.  Fear (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD59AB9FCE64C91DB58AE1F0A255F437912C57C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801920   (66139) от 14.06.2025
-
-Tokimonsta - Eternal Reverie (2025) 4 CD [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Dance. Alternative, Electronic, Experimental Hip-Hop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Switch It (Kingdom Remix) [00:03:21]
-02. Say Tell Me (Maya Jane Coles Remix) [00:04:58]
-03. All In (Karaba Remix) [00:04:20]
-04. For You (Next To Blue Remix) [00:03:22](   Читать дальше...   )Жанр: Dance. Alternative, Electronic, Experimental Hip-HopПродолжительность: 4 CD, 01:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C8A618FC105C841B97EEFDE688626A55F2F62A
 ```
 
 

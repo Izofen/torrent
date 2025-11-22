@@ -1,3 +1,57 @@
+###  Публикация: 1788024   (68634) от 28.03.2025
+
+Woong San - Tomorrow (2012) Pony Canyon [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomorrow [4:14]
+02. Am I Blue [4:18]
+03. The Boulevard Of Broken Dreams [5:16]
+04. This Masquerade [5:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8592BC9518CFDFFE48F791BC650089EC40027982
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788103   (68635) от 28.03.2025
+
+Nightwish - Century Child (2002) Released, 2007, Universal Music Group International [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bless the Child
+02. End of All Hope
+03. Dead to the World
+04. Ever Dream(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9376DFCB91C68CB9699D6C9108965E3EF48F444
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788000   (68636) от 28.03.2025
 
 Frozen Land - Out Of The Dark (2023) [FLAC|Lossless|image + .cue] <Power Metal>
@@ -619,57 +673,6 @@ VA - I Love ZYX Italo Disco Collection 9 (2009) 3 CD [OGG Vorbis|480 Kbps] <Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:784293B358059AA074929358ADC266FDF5C16AD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788104   (68660) от 28.03.2025
-
-Firefox Browser 136.0.4 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772294777BA47FE7C4DD7F9C027E42DB33011663
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788135   (68661) от 28.03.2025
-
-VA - I Love ZYX Italo Disco Collection 11 (2011) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colonna - A Secret From My Heart
-02. Trick - Don't Cry Roxanna
-03. Silent Circle - Time For Love (Super Action Mix)
-04. Marco Rochowski - The Journey(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3717FD991860E38707A47E06D770E4B3925219C
 ```
 
 

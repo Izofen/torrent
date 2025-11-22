@@ -1,3 +1,54 @@
+###  Публикация: 1791792   (67776) от 15.04.2025
+
+Так называемый Джимми Валентайн / Alias Jimmy Valentine (1915) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мелодраматическая история о том, как некий джентльмен выручает в трудной ситуации барышню. И она конечно же влюбляется в него. И не знает, бедная, под личиной этого любезного красавчика скрывается печально известный преступник, один из лучших взломщиков сейфов, которого разыскивает вся полиция Америки...Но и это еще не все. По ходу сюжета выясняется, что в его преступной (   Читать дальше...   )Производство: США / Peerless ProductionsЖанр: драма, криминал, немое киноРежиссер: Морис ТурнёрАктеры: Роберт Уоррик, Роберт Каммингс, Алек Б. Френсис, Фредерик Трусделл, Рут Шепли, Джонни Хайнс, D.J. Флэнеган, Уолтер Крэвен, Джон Бун, Джордж КаммингсПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAF8329A7FCC08B60F365AEA846F379396313106
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791765   (67777) от 15.04.2025
+
+Mentalist - Earthbreaker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Power, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Intro
+02 – Earthbreaker
+03 – March On Legionnaire
+04 – Event Horizon(   Читать дальше...   )Жанр: Melodic Power, Heavy MetalПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18471EEC3707571A46382FC4196386ADDA077B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791754   (67778) от 15.04.2025
 
 The Oscar Peterson Quartet - City Lights: Live in Munich (1994) 2024, Mack Avenue [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -599,60 +650,6 @@ Michel Legrand - Michel Legrand By Michel Legrand (2002) Decca [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA071091D7EC51EE59387AA4CF4E3309365E16AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791467   (67802) от 14.04.2025
-
-Battle Beast - Circus of Doom (Live in Helsinki 2023) (2025) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro (Live In Helsinki 2023) [2:09]
-02 - Circus of Doom (Live In Helsinki 2023) [4:42]
-03 - Straight to the Heart (Live In Helsinki 2023) [4:17]
-04 - Familiar Hell (Live In Helsinki 2023) [4:30](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1236B5A84CE414CECC53A30120E8E11702559742
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791523   (67803) от 14.04.2025
-
-Trueno Negro - Neogenesis (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Furia del Trueno (06:40)
- 02. Inmortalidad (04:19)
- 03. Alma Ardiente (04:46)
- 04. Ciega Enfermedad (05:01)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F4E05B3072D2CF1E20F67BEA671FCF19E92321
 ```
 
 

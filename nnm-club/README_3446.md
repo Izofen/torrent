@@ -1,3 +1,187 @@
+###  Публикация: 1724256   (109281) от 19.05.2024
+
+Relaxing Instrumental Music - French Breakfast Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parisian Bistro Piano (3:15)
+02. French Morning (2:58)
+03. Dinner French Style (3:35)
+04. Jazz Manouche (3:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E755EB7BB557D94EEEEA405CB952BAAA23D6CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724355   (109282) от 19.05.2024
+
+Военная тайна с Игорем Прокопенко (18.05.2024) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109282.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E594C3458DC4DC4D2F20B014A7804FE613F16478
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724298   (109283) от 19.05.2024
+
+Crooked Ways - No Design (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Hard Rock, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Function: Intro) [00:00:25]
+02. Lightning in a Body [00:03:28]
+03. izzit [00:03:38]
+04. 151 [00:03:49](   Читать дальше...   )Жанр: Alternative Metal, Hard Rock, MetalcoreПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E665718D0B0C29FDAC206036085557C27FB93D83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724255   (109284) от 19.05.2024
+
+Relax Time Zone, Jazz Acústico - Slow Day with Jazz (Instrumental Relaxing Music 2024) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nu Jazz Nook (3:55)
+02. Harmonic Homecoming (3:55)
+03. Revolution in Repose (4:50)
+04. Crossover Calm (3:38)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13D66D4613A2D74EBC5E6479B2CA52652ABBEA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724181   (109285) от 19.05.2024
+
+VA - Electronica Confessions, Vol. 4 (2014) [FLAC|Lossless|WEB-DL|tracks] <Electro, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony S - Not the Droids You're Looking For (6:40)
+02. DGL.Co. - Music.Life.Solutons (5:20)
+03. J Dovy - Once Upon a Night (7:24)
+04. Makvillian - Luciano's Dream (5:19)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 03:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E043357CD8EEF904042818036E96745CDD9875
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724302   (109286) от 19.05.2024
+
+Первая передача на НТВ. Автомобильная передача (19.05.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109286.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Санкт-Петербурге автобус рухнул в реку, 7 человек не смогли выбраться из салона. Спастись удалось лишь одному пассажиру и водителю. Насколько вообще эффективны системы эвакуации в общественном транспорте?
+ Как выбрать автомастерскую, которой можно доверять?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2DCF618D87F88770FDA2D307B9E8FAD3FC4268
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724121   (109287) от 19.05.2024
+
+Rapsody - Please Don't Cry (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - She's Expecting You (00:01:08)
+02 - Marlanna (00:02:33)
+03 - Asteroids (00:02:35)
+04 - Look What You've Done (00:04:20)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1704FA9E2C682F71D15657477E3F0E7759DB6DDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723244   (109288) от 19.05.2024
 
 Baran Yildiz - Bridging Worlds (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, World, Handpan>
@@ -487,191 +671,6 @@ The Mavericks - Moon & Stars (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:291CE7DCAF8FEFE89BBC6A8FCC2DD0B4EB8DFDE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724113   (109307) от 18.05.2024
-
-Rapsody - Please Don't Cry (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - She's Expecting You (00:01:08)
-02 - Marlanna (00:02:33)
-03 - Asteroids (00:02:35)
-04 - Look What You've Done (00:04:20)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AA39BDD98B6603F5CD417037416B40E6852542
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724068   (109308) от 18.05.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 2-й раунд. 6-й матч) Даллас Старз - Колорадо Эвеланш (17.05.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109308.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 мая 2024, суббота. 05:00 МСК. 1/2 финала - Запад. 6-й матч. Стадион: Болл-Арена (Денвер, США), 18 126 зрителей (100% при вместимости 18 147)
-Главный судья: Крис Руни (Бостон, США); Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Линейный: Джесси Маркис (Буктуч, Канада); Линейный: Стив Бартон (Ванклик Хилл, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C882C5C480F8E562E9B0388299F08C4EFD35B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724056   (109309) от 18.05.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 2-й раунд. 6-й матч) Флорида Пантерз - Бостон Брюинз (17.05.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109309.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 мая 2024, суббота. 02:00 МСК. 1/2 финала - Восток. 6-й матч. Стадион: Ти-Ди Гарден (Бостон, США), 17 850 зрителей (100% при вместимости 17 850)
-Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Линейный: Скотт Черри (Дрэйтон, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9FAC986E882CD3A0DF8FFEB8531864E2C6B88CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724096   (109310) от 18.05.2024
-
-Godsmack - Awake (2000) Reissue, 2024, Universal Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative metal, Nu metal, Heavy metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sick Of Life (3:52)
-02. Awake (5:04)
-03. Greed (3:29)
-04. Bad Magick (4:16)(   Читать дальше...   )Жанр: Alternative metal, Nu metal, Heavy metalПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F36214CDA75F8C5FBF28D1A4313D8A3B8C0ECD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724105   (109311) от 18.05.2024
-
-Combichrist - Everybody Hates You - Darkside (2005) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Undertaker [00:04:49]
-02. Red Signal [00:05:29]
-03. Wreckage [00:05:48]
-04. Rubber Toy [00:05:28](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9C3E8C0562F1B238E7FB68280B62902B9A5B9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724081   (109312) от 18.05.2024
-
-Martin Lechner - Another Step (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackbird (2:59)
-02. Magpies (4:50)
-03. Little Girl (4:58)
-04. Save Your Love for Me (4:46)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625B3E401471437DF945A97D3E1087AAA89508CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724083   (109313) от 18.05.2024
-
-Peemai - Gaga Gundul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merapi's Party (5:16)
-02. Khonsawan (6:40)
-03. Sarira (5:15)
-04. Terbawa Arus (4:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6607DE89EB3A1E5A5D3026A15EE223042ACA51ED
 ```
 
 

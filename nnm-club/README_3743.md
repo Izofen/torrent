@@ -1,3 +1,188 @@
+###  Публикация: 1700495   (117003) от 17.02.2024
+
+Пятеро на одного (17.02.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEDF5F3634D7EE7636483911685462656365CF20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700549   (117004) от 17.02.2024
+
+Svend Asmussen - Evergreens (1998) EMI Svenska AB [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. June Night [2:34]
+02. Night and Day [2:48]
+03. Limehouse Blues [2:45]
+04. I Love You [3:05](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECE2A1819B06CE6A093CAD6233AF8CAE0CEC0B6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700475   (117005) от 17.02.2024
+
+Omni - Collection (2019-2024) Sub Pop Records [FLAC 24/44.1, 24/88.2|Lossless|WEB-DL|tracks] <Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exacto (2:39)
+02. Plastic Pyramid (feat. Izzy Glaudini) (3:25)
+03. Common Mistakes (1:50)
+04. INTL Waters (2:55)(   Читать дальше...   )Жанр: Alternative/Indie RockПродолжительность: 01:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A53E04F035BD484551C831E1B2A72D147EEC630D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700330   (117006) от 17.02.2024
+
+A Somerset Parade - Carcosa (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Metal, Industrial Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Stars In Black Skies [00:01:27]
+02. Invader Summer [00:04:01]
+03. Alpha [00:02:58]
+04. Sometimes Dead Is Better [00:03:42](   Читать дальше...   )Жанр: Alt.Metal, Industrial RockПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CDF216DFC8D838918407FB04BE87A5CD507B626
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700515   (117007) от 17.02.2024
+
+VA - Holiday Sweet Relaxing Jazz Chilly Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Fade into the Sunset (4:44)
+02. Chillaxonic - Ethereal (5:09)
+03. eJazz Artistry - No Rhyme, No Reason (3:48)
+04. Kool&Klean - Whispers in My Ear (4:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987CD0C8C6D2073A9E5BBFF7116E117AB10ACE7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700462   (117008) от 17.02.2024
+
+Gardenian - Studio Albums (3 releases) (1997-2000) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Gardenian была основана в Швеции в 1996 году Тимом Бломом (ударные) и Джимом Кьеллом (гитара, вокал). Вскоре к группе присоединились Хокан Скогер (бас) и Никлас Энгелин (гитара).1997 - Two Feet Stand
+1999 - Soulburner
+2000 - SindustriesЖанр: Melodic Death MetalПродолжительность: 02:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52C4710E801238F3A9E8C3F166DD9A9DA4083C31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700592   (117009) от 17.02.2024
+
+Stygian Crown - Funeral For A King (2024) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117009.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Funeral For A King
+2. Bushido
+3. Scourge Of The Seven Hills
+4. Let Thy Snares Be Planted(   Читать дальше...   )Жанр: Epic Doom MetalПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF69DFA5B02134C2A76682F1ADDD45B0AA81901
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700613   (117010) от 17.02.2024
 
 Сергей Седых - Дельта (2023) [FLAC|Lossless|image + .cue] <Jazz>
@@ -494,195 +679,6 @@ Mystic Prophecy — немецкая пауэр-метал группа из М�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90FFD83813694DCC87F2524CF74DC682CD0250CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700587   (117029) от 17.02.2024
-
-Soft Cell - Memorabilia - A Man Could Get Lost E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memorabilia (Single Version / Remastered 2023) [00:04:49]
-02. A Man Could Get Lost (7" Single Version / Remastered 2023) [00:03:17]
-03. Persuasion (2023 Edit / Remastered 2023) [00:03:35]
-04. Memorabilia (Extended Version) [00:07:46](   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E0DAE620079A2DB3151E3562E54223612DAACD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700338   (117030) от 17.02.2024
-
-Leah - The Glory and the Fallen (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Celtic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archangel [00:04:11]
-02. No More Fear [00:05:11]
-03. Unshakable [00:05:06]
-04. Speak to Me [00:04:43](   Читать дальше...   )Жанр: Symphonic Metal, Celtic Metal, Female VocalПродолжительность: 01:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C057B07A15A48E2DB3C9FCB97B0E84698F942A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700545   (117031) от 17.02.2024
-
-Crazy Lixx - Two Shots At Glory (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Shots At Glory
-02. Fire It Up '23
-03. Invincible
-04. Lights Out! '23(   Читать дальше...   )Жанр: Hard, Glam RockПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2050B8C5CDD95CB55110EBC9BC1707B189F4CE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700600   (117032) от 17.02.2024
-
-VA - After Hours Vibes (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Distance & IGI - Wanderer (04:45)
-02. Sharapov - Bring Me Back (Mant Deep Remix) (05:00)
-03. Sharapov & Sean David - Don't Cry (Toly Braun Remix) (03:21)
-04. Andrey Keyton, Sharapov & TINAYA - I Want Your Soul (05:58)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:480CE1688BFDB061A430BC1279D807326A53BA87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700577   (117033) от 17.02.2024
-
-Galahad - The Long Goodbye (2023) [FLAC|Lossless|WEB-DL|tracks] <Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Behind the Veil of a Smile (06:20)
-02. Everything's Changed (07:40)
-03. Shadow in the Corner (05:28)
-04. The Righteous and the Damned (08:37)(   Читать дальше...   )Жанр: Neo-ProgПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F710ACD41676B33A3D31AE8D223B874A0EBEBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700313   (117034) от 17.02.2024
-
-The Requiem - A Cure To Poison The World (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Punk Rock, Mall Emo, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is How The World Ends
-02. An Elegy Written On Porcelain Arms
-03. Less Than Zero
-04. I’ll Be Late For My Funeral(   Читать дальше...   )Жанр: Alt. Rock, Punk Rock, Mall Emo, Post-HardcoreПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF24625174F1A43E6DA4B8C0D53CDFAA65433161
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700513   (117035) от 17.02.2024
-
-VA - Green Hill: 30 Years Of Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chris McDonald Orchestra - Take The "A" Train (3:37)
-02. Jaimee Paul - At Last (5:08)
-03. Pat Coil - Isn't This A Lovely Day? (3:14)
-04. Dara Tucker - Scars (5:33)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2949FC8AEB22C90B82FDB8842DF084960FD77ECF
 ```
 
 

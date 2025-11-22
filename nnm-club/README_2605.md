@@ -1,3 +1,54 @@
+###  Публикация: 1788666   (68478) от 31.03.2025
+
+My Design Immortal - Ten Scars Deep (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  When I See Your Face (3:27)
+02.  Can't Be Just Like Them (3:14)
+03.  Those Three Words (3:50)
+04.  Blame (3:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2208DAC0E1A93611BC6D449E8151A5D95193C05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788562   (68479) от 31.03.2025
+
+VA - Interplay Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DaWTone – Tropical DreamЖанр: Progressive House, Melodic House & TechnoПродолжительность: 01:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD34D57AAB75464D8599ECB9803BBCFB7F85E311
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788663   (68480) от 31.03.2025
 
 Woong San - Once I Loved (2010) Pony Canyon [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -599,60 +650,6 @@ magnet:?xt=urn:btih:2D4EA1A4A22EE4A94A373300AA1BDF990E70313B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B44625299C92AD948A674EEC96EA434CC3762E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788565   (68504) от 31.03.2025
-
-VA - Flashback Anthology Vol. 3 (2022) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clay Pedrini - Dr. Jekyll & Mr. Hyde (Extended Edit Version)
-02. Helicon - The Net (Vocal Version)
-03. Time Machine Feat. Albert One - Cold As Ice (Another Version)
-04. Riccardo Campa - Desperado (Extended Version)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 01:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59274E77667F0FAE30F5E7491FCEBC8466C1AB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788480   (68505) от 30.03.2025
-
-Павел Бажов | Горный мастер (Радиоспектакль) (2024) [MP3, Иван Краско, Наталья Виноградова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детский остров.
-Павел Петрович Бажов (1879–1950) – русский писатель, фольклорист, впервые выполнил литературную обработку уральских сказов.
-Радиоспектакль по одноименному сказу П.П. Бажова «Горный мастер» из цикла «Уральские сказы», продолжение сказа «Каменный цветок».
-(   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE44CEEBCF5E3EA52027DB2796FB7896605C937D
 ```
 
 

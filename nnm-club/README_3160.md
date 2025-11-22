@@ -1,3 +1,187 @@
+###  Публикация: 1766141   (101271) от 17.12.2024
+
+Ultraboss - Yachtmaster (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where the People Dance [00:04:31]
+02. When It's Love [00:04:25]
+03. Talking to the Wind [00:04:34]
+04. Visions of Never [00:03:52](   Читать дальше...   )Жанр: SynthwaveПродолжительность: 00:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC41A1A8C5AB6E8D29CA30CB906BACBD18DE3B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766256   (101272) от 17.12.2024
+
+Око лукавого / L oeil du malin (1962) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-повествование от первого лица... Скучающий журналист послан по заданию редакции в маленький провинциальный баварский городок, где находит зажиточную пару: симпатичную женщину и её мужа, успешного писателя. Став другом семьи, он по-чёрному завидует им, считая, что эта женщина должна принадлежать ему. В итоге его поступков она становится… ничьей.Производство: Италия, Франция / Lux Film S.p.a., Rome Paris FilmsЖанр: драмаРежиссер: Клод ШаброльАктеры: Жак Шаррье, Стефан Одран, Вальтер Райер, Эрика Твир, Михаэль Мюнцер, Клод Роме, Луис Ле Пин, Жан Дэвис, Даниэль Буланже, Андре БаденПеревод: авторскийЯзык озвучки: русский, французскийСубтитры: русские (VPN777), английскиеПродолжительность: 01:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B4C4D9573C0662992AB1ABE68F334D2383EBDC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766266   (101273) от 17.12.2024
+
+VA - Best of Fables 2024 - Extended Mixes (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Tayle - The Last Flight (Flight Anthem) (Extended Mix) (07:06)
+02. Harshil Kamdar & First Effect - Jivan (Extended Mix) (06:30)
+03. Alex Wright - Isthmus (Extended Mix) (06:17)
+04. Aly, Fila & Ferry Tayle - Concorde (Cris Grey Extended Remix) (07:00)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC55653CD04E9A4A6A1E5270E983DE8A83AEFFD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766065   (101274) от 16.12.2024
+
+Southern Mojo - One Take Jam (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fortunate Son (2:40)
+02. I Just Want to Make Love to You (3:18)
+03. Layla (4:08)
+04. Roadhouse Blues (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B00EB2DC695467DB82C01026597DD6D5DA9E6E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766160   (101275) от 16.12.2024
+
+Krud - II (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - We Are Legion (04:18)
+ 02 - Mankind (04:56)
+ 03 - Dead To Me (02:59)
+ 04 - Lies Rise (04:39)(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BE788ACDA57B2969F9A6D59FEB953218918343
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766061   (101276) от 16.12.2024
+
+Nate Gross Band - A Ride With The Devil (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Listen to The Rock n Roll (4:10)
+02. Ride with The Devil (4:55)
+03. Washington (3:59)
+04. Watch Yourself (4:02)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645045E92EF76A55652F953EC9E0A3B5EFABA64E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766083   (101277) от 16.12.2024
+
+Vexovoid - Studio Albums (2 releases) (2014-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vexovoid - трэш-метал группа из Италии, основана в 2013 году.2014 - Heralds of the Stars (EP)
+2017 - Call of the StarforgerЖанр: Progressive Thrash MetalПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D90C878DFF334AFF0581DC5160FA7BD6670DF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766149   (101278) от 16.12.2024
 
 Бреннан с болот / Brennan of the Moor (1913) WEBRip
@@ -488,195 +672,6 @@ magnet:?xt=urn:btih:5FED498FA70FA3B38E35B48E0E0A0A357D4100E9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1005FB74786F2AEA1284067F8ED552F8F05AB9C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765989   (101297) от 15.12.2024
-
-Ермак! - 3 Albums (2024) [FLAC 16,24/44.1,96|Lossless|WEB-DL|tracks] <Post-Hardcore, Emo-Core>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Ермак! - 2024 - Дневник памяти FLAC (16,24bit-44.1,96kHz)
-Ермак! - 2024 - Не забывай (Ремиксы) FLAC
-Ермак! - 2024 - Русы валят рептилоидов (Ремиксы) FLACЖанр: Post-Hardcore, Emo-CoreПродолжительность: 3 CD, 01:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CABD9F8644DF27C53899A007E6B25058E7AC82D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765885   (101298) от 15.12.2024
-
-Gotus - Gotus (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me To The Mountain (3:49)
-02. Beware Of The Fire (3:57)
-03. Love Will Find Its Way (5:52)
-04. Undercover (3:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC069D68A35BD8E2D69009141949DC661869FFA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766005   (101299) от 15.12.2024
-
-VA - Redux Presents: The Finest Selection (Mixed by DJ Jayel) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Petereese - Redrasoew (Extended Mix) (06:32)
-02. Cj Mover - 1st In Space (Extended Mix) (07:05)
-03. Lele Palmieri - Supernatural (Extended Mix) (07:01)
-04. Stnx - Remedy (Extended Mix) (06:32)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C3486B6BFA3C268CE46BF4CD106151A093AB09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765903   (101300) от 15.12.2024
-
-Mason - I Can't Wait (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Life (4:04)
-02. I Can't Wait (4:06)
-03. I'ts Okay To Cry (4:29)
-04. Turn Me Around (3:46)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:587B51127F2E244291BA77B3FBFCE253B835B60E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765913   (101301) от 15.12.2024
-
-The LA Cowboys - Endless Summer (1993) Reissue, Remastered, 2024, Pride & Joy Music [FLAC|Lossless|image + .cue] <Pop Rock, AOR, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tokyo Woman (5:20)
-02. Endless Summer (4:59)
-03. Aubree's Melody (4:38)
-04. Say You Love Me (4:35)(   Читать дальше...   )Жанр: Pop Rock, AOR, Soft RockПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EDD6CA8A8A46636CC02E4B118B6C4EA3B3BCF62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765915   (101302) от 15.12.2024
-
-Ultraboss - Slow Motion Rider (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ultraboss - Get The Heart In [00:04:13]
-02 - Ultraboss - Calling On Forever [00:03:27]
-03 - Ultraboss - Vienna Nightdrive [00:02:31]
-04 - Ultraboss - Slow Motion Rider [00:05:00](   Читать дальше...   )Жанр: SynthwaveПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:178E98C8911255467CC9A556A93E5F89D8BDA383
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765901   (101303) от 15.12.2024
-
-Lionville - Supernatural (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heading For A Hurricane (4:32)
-02. Supernatural (3:57)
-03. Gone (4:45)
-04. Breakaway (4:51)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5046A9C6284E23349E55E944D18AE45F9B37168E
 ```
 
 

@@ -1,3 +1,186 @@
+###  Публикация: 1735435   (106915) от 08.07.2024
+
+Chris Boudreaux - Who Made Who (2024) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Made Who (04:10)
+ 02. Turn Away Eyes (05:11)
+ 03. The Beat (02:37)
+ 04. Strange Fascination (03:18)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 01:12:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1778FFCB7D19C7DB6B021C511DFEDF7E5C1A41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735427   (106916) от 08.07.2024
+
+Triddana - Breaking From The Fold (2024) [FLAC|Lossless|WEB-DL|tracks] <Celtic Folk, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking From The Fold
+02. Wasted Paradise
+03. The Ground Of The Fallen
+04. Son Of Your Deeds(   Читать дальше...   )Жанр: Celtic Folk, Power MetalПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C46033922EF23B3F19EC38AD5E3917D1297C622F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735578   (106917) от 08.07.2024
+
+Isle of the Cross - Faustus The Musical (2024) [MP3|320 Kbps] <Progressive Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (01:01)
+ 02. Wittenberg, 1587 (01:59)
+ 03. Metaphysics Of Magicians (05:43)
+ 04. The Divine Apostate (07:42)(   Читать дальше...   )Жанр: Progressive Metal, Symphonic MetalПродолжительность: 00:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7401AAC3FD5A9E19C30A6D2E30650BDD943E68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735391   (106918) от 08.07.2024
+
+Эд Шульжевский - Странная Жизнь (2008) [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Baby
+ 02. Невидимка-Любовь
+ 03. Я И Ты
+ 04. Сердце(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017B791E0BF5167884DA3A7FF3F8C1E85CDA1523
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735555   (106919) от 08.07.2024
+
+Ирина Мясникова | Дамы в самоизоляции (2021) [MP3, Юлия Степанова]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая волна эпидемии коронавируса. Все, кто имеет такую возможность, изолируются на дачах. Те, у кого нет дач, но есть средства, арендуют загородные дома. В отличие от периода первой волны локдаун не объявлен и разрешена работа загородных отелей и турбаз. Спасаясь от коварной заразы в одну из таких турбаз в окрестностях Санкт-Петербурга отправляются три совершенно (   Читать дальше...   )Жанр: лёгкая прозаИздательство: АРДИСПродолжительность: 07:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD29213564D1CEB45BD160BF7247C08356ECCF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735551   (106920) от 08.07.2024
+
+Уголовное дело / Une Affaire Criminelle (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Катрин Годен вот уже 15 лет борется за реабилитацию своего сына, обвиненного в убийстве, которого он не совершал. Сержант Бенуа Инглис по прозвищу "Бинг", влюбленный в нее много лет, все еще ведет это дело. Свидетель, который долгие годы хранил молчание, неожиданно заговорил...Производство: Канада / SovimageЖанр: криминалРежиссер: Стефани ЛапойнтАктеры: Оливье Баррет, Джулиан Кэйси, Марк Грегори Дажэне, Изабель Жиру, Селин Бонье, Патрик Ко, Луи Филипп Дандено, Тони Калабретта, Фади Мало, Дэйв Кэмпбелл и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0439F3EE3AAA3806974A2638242E924DB9393BC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735458   (106921) от 08.07.2024
+
+Big Sun - Rite De Passage (2024) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sun (04:02)
+ 02. I Was Loving You (03:24)
+ 03. Stronger Than Anyone (03:38)
+ 04. Directions (04:02)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59DA5F1A0693AFA756036E53C204CAE05B74015D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735576   (106922) от 08.07.2024
 
 Кир Булычёв | Алиса Селезнёва (Книга 11). Гай-до (2019) [MP3, Алла Човжик]
@@ -467,192 +650,6 @@ magnet:?xt=urn:btih:3BD944D7036530D300C7986F95973E1AEF088B2B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13CF2B3CF81A99D7068044719CD031E626EB0ADE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735429   (106941) от 08.07.2024
-
-Triddana - Breaking From The Fold (2024) [MP3|320 Kbps] <Celtic Folk, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking From The Fold (04:02)
- 02. Wasted Paradise (04:24)
- 03. The Ground Of The Fallen (04:04)
- 04. Son Of Your Deeds (04:40)(   Читать дальше...   )Жанр: Celtic Folk, Power MetalПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327A822C65F7B1E0BF1D8BB7ABFF3B9A828217BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735383   (106942) от 08.07.2024
-
-Duran Duran - Meet El Presidente (1987) Remaster, 2024, Parlophone Records [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meet El Presidente (Single Remix) [00:03:43]
-02. Vertigo (Do the Demolition) [00:04:44]
-03. Meet El Presidente [00:04:18]
-04. Meet El Presidente (Meet El Beat) [00:05:33](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCBFABC3DB26B64E42F1BA08EDCE2230E62A0363
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735232   (106943) от 07.07.2024
-
-Nitetime Drive - NTD 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awaken (4:02)
-02. Outside (3:09)
-03. CIWYW (3:54)
-04. Take A Little Drive (4:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:269F8227D908C2B5BF0C0AAC546784DBEFA0FFAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735230   (106944) от 07.07.2024
-
-Count Pariah - Count Pariah (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prison I Call Home (3:28)
-02. Untouchable (4:20)
-03. Hate (3:26)
-04. Unknown (4:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D8C8C3C132C4451AA044FF2D57487774B12F9D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735134   (106945) от 07.07.2024
-
-Duel - Breakfast (with) Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Psych, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancient Moonlight (3:46)
-02. Satan's Invention (3:55)
-03. Chaos Reigns (3:52)
-04. Fallacy (5:06)(   Читать дальше...   )Жанр: Heavy Metal, Psych, Stoner RockПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88447E40882F97B1DDB53B22DB84277255783DFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735270   (106946) от 07.07.2024
-
-The Dreaded Laramie - Princess Feedback (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock, Female Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mess [00:03:20]
-02. Breakup Songs [00:02:47]
-03. Life Is Funny [00:02:41]
-04. Happiness [00:02:12](   Читать дальше...   )Жанр: Pop-Rock, Female VocalПродолжительность: 00:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEC0F2529569D63712245364F706C16989963D47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735319   (106947) от 07.07.2024
-
-Анастасия Галкина, Екатерина Ладатко | Разгадка исчезновения динозавров. Расследование в меловом периоде (2021) [MP3, Мария Лутовинова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды во время экскурсии в палеонтологическом музее волшебная книга перенесла близнецов Риту и Никиту и эрудированного попугая Кориандра в поздний меловой период. Близнецов ждут незабываемые приключения! Они поиграют в мяч с пахицефалозаврами, станут свидетелями сражения мозазавров, понаблюдают за трицератропсами, спасут детёныша тираннозавра, спрячутся от дождя (   Читать дальше...   )Жанр: детские приключения, книги о животных, энциклопедииИздательство: CLEVERПродолжительность: 00:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFAA707E7DECA054023E64C14C47AC4C5EE62696
 ```
 
 

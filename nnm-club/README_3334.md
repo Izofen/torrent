@@ -1,3 +1,180 @@
+###  Публикация: 1738196   (106369) от 21.07.2024
+
+Селеста Инг | Всё, чего я не сказала (2021) [MP3, Надежда Винокурова]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мать Лидии больше всего на свете хотела быть особенной. Отец Лидии больше всего на свете хотел быть как все. Но и то, и другое оказалось невозможным – с китайскими корнями Джеймса и фамилией «Ли» они продолжают оставаться аутсайдерами в провинциальном Огайо. На дворе 70-е, и всего несколько лет прошло с тех пор, как по всей Америке наконец окончательно узаконили (   Читать дальше...   )Жанр: психологическая проза, современная зарубежная литератураПеревод: Анастасия ГрызуноваИздательство: ВимбоПродолжительность: 09:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B780C90132F01F58A8C963065A2C64F2AED8FB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738082   (106370) от 21.07.2024
+
+Алла Браун - 9 Albums (2023-2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Алла Браун - 2023 - Грешная любовь
+Алла Браун - 2023 - Лучшие хиты
+Алла Браун - 2023 - Май(   Читать дальше...   )Жанр: PopПродолжительность: 9 CD, 03:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B65CB5B418CB2B2F1868FCF0970027D42CF7934B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738175   (106371) от 21.07.2024
+
+Анатоль Франс | Восстание ангелов (2020) [MP3, Иван Забелин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106371.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Восстание ангелов» - фантастический роман Анатоля Франса, изданный в 1914 году и описывающий захват небес падшими ангелами. Согласно замыслу автора, ангельский бунт произошёл в том же самом 1914 году.Жанр: зарубежная классика, сатира, философская прозаПеревод: П. П. МуратовИздательство: АРДИСПродолжительность: 08:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50DDDE68C1938FC50B94279D77540C4E6CA59BDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738182   (106372) от 21.07.2024
+
+Эрнест Сетон-Томпсон | Рассказы о животных (2020) [MP3, Александр Котов, Александр Бордуков]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эрнест Сетон-Томпсон – канадский писатель, художник-анималист, естествоиспытатель и общественный деятель британского происхождения. Один из основателей движения скаутов в США. Первое литературное произведение Сетон-Томпсона «Жизнь лугового тетерева» было опубликовано в 1883 году. Известность в США и Канаде писателю принесли сборники «Дикие животные, как я их знаю», (   Читать дальше...   )Жанр: детская классика, зарубежные детские книгиИздательство: СОЮЗПродолжительность: 03:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B43B7C6973CED0E3E6189D2895EA6E8A8E9400
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738281   (106373) от 21.07.2024
+
+The Black Crowes - Happiness Bastards (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bedside Manners
+02. Rats And Clowns
+03. Cross Your Fingers
+04. Wanting And Waiting(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C519163C767D6DECD17DA86A2ADBCD5BE6F7B6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738133   (106374) от 21.07.2024
+
+Santa Ana Winds - Final Rendezvous (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E.S.P. (feat. Steve Overland and Peter Sundell)
+02. The Thunder (feat. Dennis Churchill-Dries)
+03. Home At Last (feat. Bryan Dallas)
+04. Tonight Is The Night (feat. Steve Overland)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0897FBFEEF3A972228B81DA90B2F3A8A1CDF37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738255   (106375) от 21.07.2024
+
+Событие в городе Сен-Луи (1932) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои фильма – армяне-эмигранты, живущие во Франции, которые вместе с французскими подпольщиками пытаются организовать просмотр фильма о Советской Армении.Производство: СССР / АрменкиноЖанр: драма, немое киноРежиссер: Михаил ВернерАктеры: Иван Козлов, Марика Чмшкян, Самвел Мкртчян, А. Чорджалян, Владимир Цоппи, Борис КеробянСубтитры: русские (интертитры)Продолжительность: 00:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D486C64F78A50E1FC3D4EE91EA8E745DF5EF349
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738100   (106376) от 21.07.2024
 
 Дина Волсини, Сергей Волсини | Быть счастливым просто! (2020) [MP3, Ольга Маслакова]
@@ -460,195 +637,6 @@ File & Image Uploader - удобная и просто незаменимая п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:292A180A877CEA8F3817CA0810257EFB6D5FCD1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738031   (106395) от 20.07.2024
-
-VA - Keep It Trance Vol. 23 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kroman - Diversion (Extended Mix) [5:33]
-02. Yury Atomic - Gravity (Original Mix) [6:23]
-03. Leo Reyes - The Space (Radio Mix) [3:02]
-04. Grande Piano - Emotion Code (Original Mix) [6:56](   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBC5CC7CE49C73B01020464AB8320A7FB59507FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737839   (106396) от 20.07.2024
-
-Florizel - Mon Amour (2007) [WavPack|Lossless|image + .cue] <Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les Valses De Vienne
- 02. Merci
- 03. Coeur De Loup
- 04. Mon Petit Petit Taxi(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F20DB29CFF8D016BEF0DFC84F3614CB325FCDE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737833   (106397) от 20.07.2024
-
-Nonpoint - Studio Albums (13 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nonpoint — американская рок-группа, образованная в 1997 году в городе Форт-Лодердейл, штат Флорида.1997 - Separate Yourself
-2000 - Statement
-2002 - Development
-2004 - Recoil(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 10:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE88F362409B874F713D03209FF37B07FB8206F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738027   (106398) от 20.07.2024
-
-Rampant Beast - Into The Infernal Pyre (2024) [MP3|320 Kbps] <Black, Speed, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106398.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Into the Infernal Pyre (Intro) (00:48)
- 2. Bestial Torment (04:18)
- 3. Dragged into Hellfire (03:48)
- 4. Extreme Aggression (03:32)(   Читать дальше...   )Жанр: Black, Speed, Thrash MetalПродолжительность: 00:30:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C6D28D5380F93D1DE9CBDF65031238F4C759E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738036   (106399) от 20.07.2024
-
-Nikolo Kotzev - Nikolo Kotzev's Nostradamus - The Rock Opera (2001) Reissue, 2024, Frontiers Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock opera>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (2:59)
-02. Pieces Of A Dream (5:42)
-03. Desecration (5:39)
-04. Introduction (4:48)(   Читать дальше...   )Жанр: Rock operaПродолжительность: 01:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC723E5C799D63EDC61F9B200CA6B456C209774
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738021   (106400) от 20.07.2024
-
-Neaera - All Is Dust (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antidote to Faith (4:31)
-02. Pacifier (5:39)
-03. All Is Dust (4:47)
-04. Swords Unsheathed (4:40)(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6CC5638F1925264BB119A83154311D51336BD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738042   (106401) от 20.07.2024
-
-Orange Goblin - Science, Not Fiction (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Stoner Metal, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fire At The Centre Of The Earth Is Mine (5:20)
-02. (Not) Rocket Science (4:21)
-03. Ascend The Negative (5:24)
-04. False Hope Diet (6:58)(   Читать дальше...   )Жанр: Stoner Metal, Heavy MetalПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5ACF57EFB98B0C2CEA5C5791FC7C63ECA7F541
 ```
 
 

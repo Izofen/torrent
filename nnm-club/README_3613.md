@@ -1,3 +1,182 @@
+###  Публикация: 1706248   (113623) от 12.03.2024
+
+Glenn Marais and The Mojo Train - Red, Hot and Blue (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's Where My Mojo's At (3:09)
+02. Superfunk (4:04)
+03. Love Denied (3:57)
+04. Red, Hot and Blue (4:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F92A82F98885D177AC8928D172529F5126405F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706250   (113624) от 12.03.2024
+
+Ibai García - Chasing the blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don´t leave me alone tonight (4:54)
+02. A one and only soul (6:20)
+03. I still care (4:07)
+04. Never coming down (4:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0753716BB03DC0F3FFD1EC8FBC179B0B3C7028
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706226   (113625) от 12.03.2024
+
+Permute 3 v.3.11.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D735E23DAFDB40BDD7353E65ED6E96707EF7751C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706389   (113626) от 12.03.2024
+
+Notebooks – Write and Organize 3.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Notebooks является единственным блокнотом, который когда-либо может вам понадобиться. Он позволяет создавать огромное количество записей. Он станет одним и единственным хранилищем не только для всех журналов, идей, заметок, черновиков, рассказов и дневников, но и для ваших проектов, списков задач, документов, файлов и все остального, что вы хотите хранить под рукой. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.03.2024Разработчик: © 2012-2024 Alfons SchmidПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD5B36866B543F7C4F62DDF3B5ACDD9950D8E9DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706405   (113627) от 12.03.2024
+
+EazyDraw 11.6.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113627.jpg" />
+</div>
+
+
+###  Подробнее
+
+EazyDraw от Dekorra Optics – графическая программа, созданная специально для macOS. Она будет полезна при работе над многими проектами, включая чертежи, иллюстрации, иконки, логотипы и стилизованные тексты.Тип издания: macOS SoftwareРелиз состоялся: 15.02.2024Разработчик: © 2022-2024 Dekorra Optics, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4252A3E30B60FBC5EC2CE444CCC810C5EB521899
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706230   (113628) от 12.03.2024
+
+Piezo 1.8.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piezo позволяет легко и быстро записать звук на вашем компьютере. В течение нескольких секунд и вы будете иметь запись звука из любого приложения.
+Кроме записи звука из приложений Piezo умеет записывать звук из встроенного микрофона, что может быть полезно для быстрой записи подкастов или создания аудио-заметок.
+Piezo не требует никаких настроек, достаточно его запустить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2024Разработчик: © 2024 Rogue Amoeba Software, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02FFA79F9FFCFFA476C6E9952EF06C43072AE33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706436   (113629) от 12.03.2024
+
+Darkthrone - Soulside Journey (1991) Reissue, 2012, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113629.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Cromlech
+A2 Sunrise Over Locus Mortis
+A3 Soulside Journey
+A4 Accumulation Of Generalization(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2523D09A782DCF7C877C9AFF55E5B43EF46400EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706433   (113630) от 12.03.2024
 
 Keep It 2.4.3 [Multi]
@@ -484,193 +663,6 @@ Thomas Edward Berry - Re-Imagined (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BA7F6A503C7FCFC8CC931C37549952AC381F83C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706290   (113649) от 12.03.2024
-
-Alex Winters - Unexpected Trespasses (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undone (2:52)
-02. I Should Know Better (4:29)
-03. More Than Friends (3:52)
-04. I'm On Fire (3:31)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C611379C3933BB9CA2B1F54CEFA06A567CA77684
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706324   (113650) от 12.03.2024
-
-The Dirty Doves - Tunes & Tribulations (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sip My Love (3:25)
-02. Dirty Doves (5:36)
-03. Celtic Rebel (3:32)
-04. Clarity (4:22)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97CD71A28C8C55FE1396178802731641FF6E8D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706191   (113651) от 12.03.2024
-
-Muzozoic - Fuzock (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oberek goes Dakar (5:55)
-02. From Empty to Nothing (3:55)
-03. Red Cat Samba (5:45)
-04. Telegram from Palermo (6:13)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA2BF415616647FE1A1143CB874D80FE41ED2C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706253   (113652) от 12.03.2024
-
-The Arthouse Tomatoes - On The Vine (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wildflower (3:19)
-02. Gunfighter's Heart (3:02)
-03. Driving Across the Desert (2:29)
-04. Kinda Miss the Heartbreak (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:223C2C785A3A43D8CD8D6E7D352907C14762CF97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706192   (113653) от 12.03.2024
-
-Peela - Notbad (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Notbad (4:09)
-02. Don't Touch My Pizza (3:38)
-03. Try Again (6:40)
-04. Liar (4:57)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86F6CE03ECD7FADCBA7E182C5D0A2D896ECB393
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706369   (113654) от 12.03.2024
-
-Vinegar 3.0.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113654.jpg" />
-</div>
-
-
-###  Подробнее
-
-YouTube5 был расширением Safari, когда Flash был еще в ходу. Он заменил проигрыватель YouTube (написанный на Flash) <video> тегом HTML .
-И теперь ситуация с проигрывателем YouTube стала настолько плохой, что нам нужно другое расширение, чтобы исправить это. Вот где на помощь приходит Vinegar. Vinegar также заменяет проигрыватель YouTube с минимальным <video> (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.02.2024Разработчик: © 2022 Zhenyi TanПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1C2BFF871395FC227623AB449EE8E9AE1BA968
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706168   (113655) от 12.03.2024
-
-VA - Rock Aid Armenia. The Earthquake Album (1990) 1992 [FLAC 24/192|Lossless|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1.
-01. Smoke On The Water'90. (Blackmore-Glover-Lord-Paice)
-Rock Aid Armenia - 4.05
-02. Run To The Hills. (Iron Maiden)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAF8C756B44B0BEA471600D6EE542F604D8A940
 ```
 
 

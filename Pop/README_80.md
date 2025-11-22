@@ -1,3 +1,84 @@
+###  Публикация: 1427783   (182301) от 29.11.2020
+
+Pussycats - Leather And Romance (1980) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_182301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский студийный проект от Peter Di Milo.01. Learn To Love Again  (4:35)
+02. Love Child  (2:43)
+03. Let Love Happen  (3:47)
+04. Reflections  (2:18)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AEDC31CFC089104FDDB4A4881C893C0C25A626B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427684   (182343) от 29.11.2020
+
+Ольга Горбачёва - Благо Дарю (2014) [APE|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_182343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Благо Дарю
+02 - Небо В Алмазах
+03 - Вера
+04 - Родина(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41F89F9DCF6BFBD38E7EEBE6D8F12AB8CE431EF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427613   (182384) от 29.11.2020
+
+VA - Winter Mix 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_182384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DaBaby, Roddy Ricch - ROCKSTAR (3:01)
+02. Internet Money, Gunna, Don Toliver, NAV - Lemonade (3:15)
+03. Jonas Brothers, KAROL G - X (3:05)
+04. J Balvin, Dua Lipa, Bad Bunny, Tainy - UN DIA (ONE DAY) (3:52)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BE34847CC3026F2D3C24DB800185FCAE2BDD3F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592868   (182387) от 24.11.2022
 
 VA - Happy New Year 2023 (2022) [MP3|320 Kbps] <Pop, Rock, RnB>
@@ -20,6 +101,33 @@ VA - Happy New Year 2023 (2022) [MP3|320 Kbps] <Pop, Rock, RnB>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EC4D7A771696913CCA3244424AD5A2973F3F6C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427724   (182407) от 29.11.2020
+
+Boogie People - Boogie People (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_182407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance In America  (8:05)
+02. Boogie Breakdown  (7:29)
+03. Boogie People  (10:11)
+04. Disco Is My Life  (5:06)Жанр: Electronic, DiscoПродолжительность: 00:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA58FAA5C68F625D587DF78503358520ED0AE84
 ```
 
 
@@ -587,114 +695,6 @@ magnet:?xt=urn:btih:68E041D0982996B5721181C70F95D6DC7A41A2FC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D870BDA512A2A4E8AC61E9215383C73525451C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592340   (184326) от 21.11.2022
-
-Ola Hakansson (pre Secret Service) - 3 Albums (1976-1979) LP [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ола Хоканссон - шведский певец, композитор и продюсер. В раздаче представлены альбомы предшествующие появлению всем известной в мире группы Secret Service, где Ола вместе со своим постоянным ударником Leif Johansson участвовали в трех проектах с его узнаваемым исполнением. Последний был полным составом скоро переименован в Secret ServiceСписок альбомов:
-1976 - Ola & Janglers - Jet Leg
-1976 - Ola Hakansson, Frukt & Flingor - O.F.F.
-1979 - Ola+3 - Det Kanns Som Jag Vandrar Fram(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 01:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C62D4FB13C311F2ADA17E7D547EE76B28C4D1DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427301   (184424) от 27.11.2020
-
-Leslie O'Hara - Gipsy Boy (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gipsy Boy  (7:07)
-02. No War Love  (2:48)
-03. It's America  (3:32)
-04. Disco Banjo  (6:09)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:22:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E286FBC866DB9AF7B3FFE4FD41A70193374D5920
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427284   (184462) от 27.11.2020
-
-Tala A.M. - Arabica (1978) Reissue LP, African Roadtrip, 2015 [MP3|320 Kbps] <Disco, Funk, Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arabica  (4:38)
-02. Black Gold  (5:19)
-03. Sugar Lump  (6:04)
-04. I Know What You Want  (5:20)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 00:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91045AB66E9E6F862968817FB6F34B8EBB846436
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664723   (184869) от 27.09.2023
-
-Екатерина Шаврина - Понарошку (2002) [FLAC|Lossless|tracks + .cue]<Retro, Folk>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Понарошку
-02. Пойдем со мной
-03. Все было несерьезно
-04. Любовь уходит не спеша(   Читать дальше...   )Жанр: Retro, FolkПродолжительность: 00:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A4EA6E06902FA2A301BFDA2D5EAFC503CDB7A3
 ```
 
 

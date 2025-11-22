@@ -1,3 +1,57 @@
+###  Публикация: 1788359   (68556) от 30.03.2025
+
+The Dark Tenor - 2 Albums (2014, 2025) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Neo-Classical Crossover Pop, Ballad, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive [00:03:43]
+02. Bitter Sweet Kiss [00:03:51]
+03. Bumblebee [00:03:18]
+04. Shout [00:05:04](   Читать дальше...   )Жанр: Neo-Classical Crossover Pop, Ballad, VocalПродолжительность: 2 CD, 02:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F94303AE8A8FA80E265F790E53AE16FC8004538
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788438   (68557) от 30.03.2025
+
+VA - Ultimate Sunset Chillout Best Selections (2025) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Converted Specifications - Planetarium [04:16]
+02. Ackeret - Sakura Dreams [04:30]
+03. Pikomos - Insatiable Passion [04:24]
+04. Kalokagathia Union - Timeless Encounters [04:20](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1817DCE0694A704217AC597FC9DEE6378B821835
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788204   (68558) от 29.03.2025
 
 Duke Pearson - Four Classic Albums (1959 - 1962) 2CD, 2016, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -626,56 +680,6 @@ Mechina - Bellum Interruptum (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB351C25706FC20139CC4C03321744A38D23C4E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788338   (68582) от 29.03.2025
-
-Лидия Чуковская | Записки об Анне Ахматовой [3 книги] (1996-1997) [PDF, DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Лидии Чуковской об Анне Ахматовой - не воспоминания. Это - дневник, записи для себя, по живому следу событий. В записях отчетливо проступают приметы ахматовского быта, круг ее друзей, черты ее личности, характер ее литературных интересов. Записи ведутся "в страшные годы ежовщины". В тюрьме расстрелян муж Лидии Чуковской, в тюрьме ждет приговора и (   Читать дальше...   )Жанр: Биографии и мемуарыИздательство: Нева, Фолио, СогласиеФормат: PDF, DJVUКачество: Обработанный скан, OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC404E35065CE7D271E4ABEA5F42916551CA9062
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788252   (68583) от 29.03.2025
-
-Шрифты - Creative Market - Soncara – Futuristic Soft Serif Font - 290861627 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soncara Futuristic Soft Serif Font — это современный и гладкий футуристический шрифт с мягкими закругленными краями и изысканной эстетикой дизайна.
-
-Кириллица поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39C08BE53445E7A4A850C4213669E8E96D587A4A
 ```
 
 

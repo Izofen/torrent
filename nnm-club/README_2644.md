@@ -1,3 +1,56 @@
+###  Публикация: 1784933   (69492) от 13.03.2025
+
+Warbringer - Wrath And Ruin (2025) 2 x CD [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. The Sword And The Cross (06:07)
+ 02. A Better World (03:45)
+ 03. Neuromancer (05:28)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2C12D457B217B89EE99EF7A2439E8787539DD39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784861   (69493) от 13.03.2025
+
+Шрифты - Creative Market - Mase - Branding Logo Font - 290833575 [OTF, TTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт Mase Font предлагает прекрасную типографическую гармонию для разнообразных дизайн-проектов, включая логотипы и брендинг.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41868CC4CE1FD36294AAA31004600F1E2E4656D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784804   (69494) от 13.03.2025
 
 Шрифты - Creative Market - Leina Savira Stylish Serif Font - 290805668 [OTF, TTF, WOFF]
@@ -615,57 +668,6 @@ magnet:?xt=urn:btih:C9270459874E4D632F9E62ECC19118D5B107572A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E81F45D292A6C5A0EE0A7A110696FB166FCC1A80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784952   (69518) от 13.03.2025
-
-VA - Black Hole House Music 03-25 (2025) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PARAFRAME & Haley Johnsen - Feel It Now (Extended Mix) (05:10)
-02. Milkwish & Mike Konstanty - Show Me the Way (Extended Mix) (06:25)
-03. Thomas Schwartz & Fausto Fanizza - Acrophobia (Extended Mix) (07:03)
-04. JOA (US) - Missing Part of Me (Extended Mix) (06:38)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246B8D0D098FC36470E63429E0BEEBC6E22318A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784874   (69519) от 13.03.2025
-
-Журнал | Лечитесь с нами №3 (231) (март 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Лечитесь с нами» - уникальное издание о здоровье. Каждый номер составляется по письмам читателей. На страницах представлены подборки советов и рекомендаций по лечению трёх конкретных заболеваний, перечень которых анонсируется заранее. В журнале также есть раздел, посвящённый здоровью детей, — «Румяные щёчки». Самые свежие читательские письма публикуются в (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E83BE697A72EE29DA2B542463CC5645B92FFE9F
 ```
 
 

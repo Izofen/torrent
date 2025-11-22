@@ -1,3 +1,187 @@
+###  Публикация: 1722662   (109671) от 12.05.2024
+
+Kingston Wall - III - Tri - Logy (1994) Mix, 2024, Warner Music Finland [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic rock, progressive rock, acid rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Piece of Cake (3:45)
+02. Welcome to the Mirrorland (3:46)
+03. I'm the King, I'm the Sun (4:56)
+04. The Key: Will (1:08)(   Читать дальше...   )Жанр: Psychedelic rock, progressive rock, acid rockПродолжительность: 01:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B49CF93EA27E90793E865F4FB76619FE0C284FB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722596   (109672) от 12.05.2024
+
+Kenny Barron - Things Unseen (1995) 1997, Gitanes [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marie Laveau [13:29]
+02. The Sequel [9:30]
+03. Christopher's Dance [4:56]
+04. Tongue in Cheek [6:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33F1C90D2FAAF8A93E8F96E304CC61842BA2356
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722488   (109673) от 12.05.2024
+
+Southwicked - Death's Crown (2012) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (The Massacre Begins)
+02. Death's Crown
+03. Craving for Blood
+04. Killing Spree(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97167265AF5B477A160061A989F83EC79F1FEDDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722699   (109674) от 12.05.2024
+
+Chris Smither - All About the Bones (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues, Singer - Songwriter>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All About the Bones (3:16)
+02. Digging the Hole (2:35)
+03. Still Believe in You (3:54)
+04. If Not for the Devil (3:33)(   Читать дальше...   )Жанр: Blues, Singer - SongwriterПродолжительность: 00:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7420D2BFF6C1AD3FBA615A269032FF88ACE3C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722647   (109675) от 12.05.2024
+
+Закон и порядок / Law & Order (2008-2009) WEB-DLRip [H.264/720p] (сезон 19, серии 1-22 из 22) Россия
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109675.jpg" />
+</div>
+
+
+###  Подробнее
+
+В системе уголовного судопроизводства обвинение представляют две независимые, равные по значению инстанции - полиция расследующая преступления и прокурор, представляющий дело в суде.Производство: США / NBC Universal Television, Studios USA TelevisionЖанр: триллер, драма, криминал, детективРежиссер: Константин Макрис, Эдвин Шерин, Джейс АлександрАктеры: Сэм Уотерстон, С. Ипейта Меркерсон, Джерри Орбак, Стивен Хилл, Джесси Л. Мартин, Лесли Хендрикс, Фред Долтон Томпсон, Крис Нот, Бенджамин Брэтт, Майкл МориартиПеревод: Многоголосый профессиональный (Россия)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E36952204A4CF7441DA20661F845FDC449C467C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722688   (109676) от 12.05.2024
+
+Sinner - Studio Albums (12 releases) (1995-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sinner — немецкая хэви-метал группа, образованная вокалистом и басистом Мэтом Синнером (Матиас Лэш) в 1982 году1995 - Bottom Line
+1996 - Judgement Day
+1998 - The Nature Of Evil
+2000 - The End Of SanctuaryЖанр: Heavy MetalПродолжительность: 11:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E242B7904CABA9742E337938A69F64E56EDE9626
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722729   (109677) от 12.05.2024
+
+Последняя обида (1930) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109677.jpg" />
+</div>
+
+
+###  Подробнее
+
+В картине порицали родителей, которые прибегали к телесным наказаниям своих детей — «разве можно ремнем и побоями воспитывать нашу смену?». Мать главного героя — мальчика Вовы — часто била сына, и в итоге он сбежал из дома.
+Фильм из  коллекции Госфильмофонда России и опубликован в интернете в рамках совместного проекта «Культура.РФ» и Госфильмофонда России «Открытая (   Читать дальше...   )Производство: СССР, МежрабпомфильмЖанр: драма, немое киноРежиссер: Михаил ДоронинАктеры: Анна Чекулаева, В. Снежинская, М. Либаков-ИльинскийСубтитры: русские (интертитры)Продолжительность: 00:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C995B0B5DD304925261073532A14B9912B19A406
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722546   (109678) от 12.05.2024
 
 Банда Андрюха - Пожарная Команда (2005) [WavPack|Lossless|image + .cue] <Pop>
@@ -493,191 +677,6 @@ Villagers - That Golden Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14B50CA680B795D23A7EA420A50C83EAA7A3808C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722512   (109697) от 11.05.2024
-
-Виктор Голявкин | Обыкновенные дела (2018) [MP3, Алла Човжик]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская аудиокнига.
-Виктор Владимирович Голявкин (1929–2001) – русский советский детский писатель-юморист, художник, короткими весёлыми рассказами которого зачитывались не только дети, но и взрослые.
-Студия «АРДИС» представляет повесть известного российского писателя Виктора Голявкина «Обыкновенные дела», рассказывающую об обыкновенном, нет! – необыкновенном (   Читать дальше...   )Жанр: Русская литература для детей, повестьИздательство: Студия «АРДИС»Продолжительность: 04:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1231422CE6A9F8DC003455D4452BCE8A791AAC4C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722464   (109698) от 11.05.2024
-
-Арбат - Голубоглазая (2006) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109698.jpg" />
-</div>
-
-
-###  Подробнее
-
-10. Голубоглазая
- 02. Арбат
- 03. Мосты
- 04. Олигархи(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2826C200A7D3123D9CFD41CBA30DDD3BFEDEC44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722501   (109699) от 11.05.2024
-
-Драма эпохи рыцарства / Et Drama fra Riddertiden (1907) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совсем небольшой ролик. Во времена мушкетеров было сплошное благородство и рыцарство, всякие там "мерси-пардон мадам, вызываю Вас на дуэль!" Ну, и все такое. Но ведь и любовь и страсть тогда тоже были. А как говорится, в любовной войне правил нет. И если какой-то заезжий кавалер со шпагой у тебя невесту отбивает, какое уж тут рыцарство...Производство: Дания, Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Вигго ЛарсенАктеры: Вигго Ларсен, Густав Лунд, Clara NebelongЯзык озвучки: немойСубтитры: отсутствуютПродолжительность: 00:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B269C604909E3EB6E6F39688CBE70EDFA93B474C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722396   (109700) от 11.05.2024
-
-David "Fathead" Newman, Ellis Marsalis, Cornell Dupree - Return To The Wide Open Spaces (1990) Amazing Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction [1:27]
-02. Buster's Tune [5:40]
-03. Hard Times [8:34]
-04. 13th Floor [7:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5BF720CE12F416158E4DF596DE1C207E3F3ED8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722397   (109701) от 11.05.2024
-
-Gigi Gryce - The Rat Race Blues (1960) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rat Race Blues [6:37]
-02. Strange Feelin' [7:48]
-03. Boxer's Blues [7:02]
-04. Blues in Bloom [7:47](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E1C01254EE3F398BE8411EBA9F3070B454D065
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722393   (109702) от 11.05.2024
-
-Richard Marx - Rush Street (1992) Unofficial Release [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109702.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Take This Heart
-A2 Keep Coming Back
-A3 Big Boy Now
-A4 Calling You(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B8781127FD652CFA383F36639CBF0CA6FB1AEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722426   (109703) от 11.05.2024
-
-VA - Deep House Summer Charts 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CJ Stone, Voodoo, Serano & Rocco - Overload 2024 (02:52)
-02. Nora & Chris - Baby Cherie (feat Jorik Burema) (02:14)
-03. Dj Soulstar - Think Too Much (02:55)
-04. Wallace - Memories (02:51)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1C23C46F18DB732271DBBB99F397600216A2AAC
 ```
 
 

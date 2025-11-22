@@ -1,3 +1,186 @@
+###  Публикация: 1765800   (101323) от 15.12.2024
+
+VA - Ibiza Winter 2025 (Dance Snowflakes From The Heart) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaques Le Noir - Intentions (Radio Edit) (03:37)
+02. Francesco Diaz & All Purple - Hometown (02:49)
+03. Zulu Natives - In My Dreams (02:55)
+04. Mayson & Noise - Day Go By (02:41)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5371DCE845B2FD9004975F508507C0073B27583
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765943   (101324) от 15.12.2024
+
+Происшествие / Jiken / The Incident (1978) BDRip [H.264] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на романе Шохэй Оока... Тело Сакаи Хацуко, 23-летней женщины, убитой ножом, было найдено в лесу. Несколько дней спустя 19-летний рабочий верфи Уэда Хироси был арестован и обвинён в убийстве. На суде над Уэдой разворачивается сложная история...Производство: Япония / Shochiku EigaЖанр: драма, криминалРежиссер: Ёситаро НомураАктеры: Кэйко Мацудзака, Синобу Отакэ, Тосиюки Нагасима, Цунэхико Ватасэ, Синсукэ Асида, Хисая Морисигэ, Дзюнко Нацу, Ко Нисимура, Нобуко Отова, Син Сабури, Асао Сано, Тэцуро Тамба, Кэи ЯмамотоПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: русские (дед_сто_лет), английскиеПродолжительность: 02:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA3237FB0BDC0E9532D49E672224673827A9E57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765746   (101325) от 15.12.2024
+
+Karnage Through Crossing - Shattered Chains (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crimson
+02. Judgement Day
+03. Frozen Crown
+04. Maverick(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:899B9EB8EFF33CBF106DEDFD11A77E5F74C16EDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765750   (101326) от 14.12.2024
+
+Шарджа: роддом для бабочек, по дюнам на багги, лунный ретрит и арабские лакомства | «Поедем, поедим» (14.12.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди отправился в Шарджу в ОАЭ, где погонял на багги по барханам и покорил самые высокие дюны! А еще ведущий переночевал посреди пустыни, где устраивают лунные ретриты, увидел остров бабочек, комнату дождя и отправится на сафари с багги. Также путешественнику довелось отведать арабских лакомств, печень коровы и даже молодого верблюда.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A0606431F868C0F42418DF0B763FBF417E23A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765738   (101327) от 14.12.2024
+
+Hawkwind - Live At The Royal Albert Hall (2024) [MP3|320 Kbps] <Psychedelic, Space Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frozen In Time - Studio Rehearsal
+02. Practical Ability - Studio Rehearsal
+03. Lost Chances - Studio Rehearsal
+04. Second Chances - Studio Rehearsal(   Читать дальше...   )Жанр: Psychedelic, Space Rock, Progressive RockПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC23F1F1736F99F807F6A32FBA1FCB88A29FB56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765727   (101328) от 14.12.2024
+
+Rival Sons - Pair of Aces, Pt. 2 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Get What’s Coming
+02 – Torture
+03 – Radio
+04 – Sleepwalker(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817349167377D288DA1427AE3D2CA89851A6A94E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765722   (101329) от 14.12.2024
+
+Roberta Flack - Chapter Two (1970) 50th Anniversary Edition, Remaster, 2021, Rhino Atlantic [FLAC 24/192|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reverend Lee (2021 Remaster) [00:04:32]
+02. Do What You Gotta Do (2021 Remaster) [00:04:09]
+03. Just Like a Woman (2021 Remaster) [00:06:15]
+04. Let It Be Me (2021 Remaster) [00:04:59](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B4ADF30A214DCCE1C47482853CDF42A51CBEC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765683   (101330) от 14.12.2024
 
 Пятеро на одного (14.12.2024) WEBRip [H.264/720p-LQ]
@@ -478,191 +661,6 @@ Photo Mate предлагает библиотеку фотографий, в к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1549FF258E53FBC17E144293B82E18A386E9978F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765749   (101349) от 14.12.2024
-
-Blue Oyster Cult - 50th Anniversary - Third Night - Live (2024) Deluxe Edition, 2CD [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burnin' For You (Live) [00:04:53]
-02. Shooting Shark (Live) [00:08:49]
-03. Black Blade (Live) [00:06:09]
-04. Train True (Lenny's Song) (Live) [00:03:49](   Читать дальше...   )Жанр: Hard RockПродолжительность: 2 CD, 02:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C293AFB147CC15129150F423146B377EF0F56C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765795   (101350) от 14.12.2024
-
-Военная тайна с Игорем Прокопенко (14.12.2024) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101350.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DE5FBD13D7169F0537968B6701D734C6C28A9CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765783   (101351) от 14.12.2024
-
-Главная дорога (14.12.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые штрафы: готовьтесь раскошелиться.
- Неожиданное препятствие: юрист из Воронежа на ровном месте въехала в попутку, обвинила дорожников и даже выиграла у них в суде полмиллиона, но денег теперь должен второй невиновный участник аварии. Может ли стоящая на светофоре машина стать внезапным препятствием?
- Ассортимент смазочных материалов поражает разнообразием, разобраться (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 00:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8639731A6477F79154CDE3E53BAA7CF6882830D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765781   (101352) от 14.12.2024
-
-Beer Bear - За Незримой Чертой (2012) [FLAC|Lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Интро (1:08)
-02-Медвежья Свадьба (4:50)
-03-Огнемёд (5:57)
-04-Пей, Гуляй, Медвежья Шляхта! (5:23)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06AA6A698EBEDA0E1873B675EF5D16FCF54A44F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765701   (101353) от 14.12.2024
-
-Electric Wizard - Black Magic Rituals & Perversions Vol. 1 (Live Walpurgisnacht 2020) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom Metal, Stoner Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dopethrone (Live Walpurgisnacht 2020)
-02. Incense For The Damned (Live Walpurgisnacht 2020)
-03. Black Mass (Live Walpurgisnacht 2020)
-04. Witchcult Today (Live Walpurgisnacht 2020)(   Читать дальше...   )Жанр: Doom Metal, Stoner MetalПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805F74CCE6B4ADF11DEE489C3A22297BAA206A5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765653   (101354) от 14.12.2024
-
-Markus Schulz - Global DJ Broadcast Year in Review Part 1 (2024-12-12) [MP3|320 Kbps] <Progressive House, Trance, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hel:sløwed & Amber Revival - If You Only Knew (Intro Mix)
-02. Yotto & AVIRA featuring ALSO ASTIR - Forget
-03. PARAFRAME - Breathe
-04. Markus Schulz & HALIENE - Death of a Star(   Читать дальше...   )Жанр: Progressive House, Trance, Melodic House, TechnoПродолжительность: 02:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB85D151F4548025B306C4CE4D0B64F241007A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765785   (101355) от 14.12.2024
-
-VA - Black Hole House Music 12-24 (2024) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PARAFRAME & Ryan Masson - Son of Earth (Extended Mix) (06:35)
-02. Yero & Chillboy - Deeper (Extended Mix) (04:59)
-03. Ponymeadow & Katty Heath - Wherever You Are (Extended Mix) (05:24)
-04. ZOYA, Factore & SCHROEDS - Free (Extended Mix) (05:24)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186185F9EA0B65046958BF0020B1B1399667B074
 ```
 
 

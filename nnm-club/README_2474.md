@@ -1,3 +1,57 @@
+###  Публикация: 1807991   (65072) от 22.07.2025
+
+Madonna - Madonna (1983) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucky Star (5:38)
+02. Borderline (5:22)
+03. Burning Up (3:46)
+04. I Know It (3:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9958801FD918C28A16F0611AB65713AB4FE3A042
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807981   (65073) от 22.07.2025
+
+Silent Circle - № 1 (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch In The Night (5:20)
+02. Sib Dab Dua (3:07)
+03. Dreams (4:02)
+04. Hide Away - Man Is Comin'! (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142F90C48E32112F64262B840725AF366E0DDAE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808035   (65074) от 22.07.2025
 
 Сборники - Sc6ut Video Editing Pack #3 [AEP, MP4, MOV, EXE, TTF, OTF, TTC, FFX, GIF, MP3, JPG, MBLOOK, OFX]
@@ -615,60 +669,6 @@ magnet:?xt=urn:btih:333EFF84CCF0089DE20863DABE728B370BBFD70D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DDE0328A63F17291AE533BC32939EE3F6B2A2A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807716   (65098) от 20.07.2025
-
-Tomas Jo´ Group - Be A Little Kind (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Two Time My Lovin' (4:10)
-02.  Let Me Free (4:36)
-03.  Blues Ain't Noting But A Good Woman On Your Mind (3:47)
-04.  Be A Little Kind (2:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E56ED7BF9C39FE020B171642BC660218E4D08CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807732   (65099) от 20.07.2025
-
-We Are Scientists - Qualifying Miles (2025) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65099.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Prelude To What [00:05:29]
-2. Starry-Eyed [00:03:52]
-3. Dead Letters [00:03:49]
-4. The Big One [00:02:58](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B56063BE750092C94A1BE522BEF9FDCBF87E9BBD
 ```
 
 

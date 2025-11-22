@@ -1,3 +1,192 @@
+###  Публикация: 1702360   (115833) от 24.02.2024
+
+Artimus Pyle Band - Anthems Honoring The Music of Lynyrd Skynyrd (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Know A Little (3:28)
+02. Sweet Home Alabama (4:59)
+03. Simple Man (7:29)
+04. The Needle And The Spoon (4:14)(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18399090D9E112820B6F4016A22AE11E29B9E70C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702301   (115834) от 24.02.2024
+
+Katie Henry - Get Goin' (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Like Kerosene (3:30)
+02. Jump (3:58)
+03. A Doll's Heart (4:11)
+04. Clear Vision (3:39)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13CA1D8FB5FC0B4088BA6BC2D868092D9E562255
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702223   (115835) от 24.02.2024
+
+Cats Can Fly - Cats Can Fly (1986) Remaster, CCF Records, 2023 [FLAC|Lossless|WEB-DL|tracks] <AOR, Pop Rock, Synth-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flippin' to the 'A' Side (03:42)
+02. Lies Are Gonna Get Ya (03:52)
+03. Cold Hands, Warm Heart (04:55)
+04. Crazy Fever (03:05)(   Читать дальше...   )Жанр: AOR, Pop Rock, Synth-popПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8804E6BEEB16308658E65588F8884EBF2F13EEF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702302   (115836) от 24.02.2024
+
+Arkado - Open Sea (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyage
+02. Open Sea
+03. Running Through The Night
+04. I Gave My Heart(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92243B947B834F3258A686BF0B4D1F94AA04ACE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702363   (115837) от 24.02.2024
+
+Rosie Frater-Taylor - Featherweight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Alternatif, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give & Take (4:50)
+02. Falling Fast (4:33)
+03. No Scrubs (4:27)
+04. Stop Running (3:43)(   Читать дальше...   )Жанр: Rock, Alternatif, JazzПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627059973565E2F7DC4DB8058A6500075BD742FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702138   (115838) от 24.02.2024
+
+Philip Sayce - The Wolves Are Coming (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh! That Bitches Brew [00:03:29]
+02. Lady Love Divine [00:03:04]
+03. Babylon Is Burning [00:02:51]
+04. Your Love [00:03:18](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D649AB09F51EA8595C15F6F4967EFD79C9D3EF7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702438   (115839) от 24.02.2024
+
+Counting Hours - The Wishing Tomb (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115839.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Unsung, Forlorn 02:10
+2. Timeless Ones 04:31
+3. Away I Flow 05:57
+4. All That Blooms (Needs to Die) 06:24(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:378DF692353816901DDB69C892BA6D3520033F53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702244   (115840) от 24.02.2024
 
 Юлия Евдокимова | Нежная магия Тосканы (2023) [MP3, Альбина Быстрова]
@@ -476,185 +665,6 @@ Two Friends - Big Bootie Mix Vol. 24 (2024-02-15) [MP3|320 Kbps] <Dance, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F4D45BFC22D56EBEB528C46815448537051DC7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702153   (115859) от 24.02.2024
-
-VA - A State of Trams Rotterdam, Netherlands (2024-02-05) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Armin van Buuren & Joris Voorn @ A State of Trams Rotterdam, Netherlands 2024-02-05:
-01. ARTBAT & Armin van Buuren - Take Off
-02. ID - ID
-03. Rebūke - Along Came Polly (Konstantin Sibold & Carmee & ZAC Remix)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 00:25:00
-01. ALPHA 9 - Come Home (ID Remix)
-02. Kristiane - Hold You
-03. ID - ID(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:447C93EAA7E9BC449F873074AEB3592EA75D90C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702344   (115860) от 24.02.2024
-
-Kim Wilde - Love Blonde: The RAK Years (2024) 2020 Remastered, 4CD + Digital Booklet [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115860.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Water on Glass
-02. Our Town
-03. Everything We Know(   Читать дальше...   )Жанр: Pop |Продолжительность: 03:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9AF5EF5A7B5662E229693ED2A3831366576DF81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702216   (115861) от 24.02.2024
-
-С.П. Колосов, Ю.А. Сидоров | Нелинейные двухполюсники и четырехполюсники (1981) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115861.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге дано систематизированное изложение вопросов теории нелинейных цепей, применяемых в современных системах автоматики, энергетики и т. д.; рассмотрены нелинейные двухполюсники и четырехполюсники и их исходные характеристики; приведены методы анализа электрических цепей постоянного и переменного тока, магнитных и диэлектрических цепей, а также основы синтеза; (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3571E1CB1EBBA78DB35D2A39F24471285CACC98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702353   (115862) от 24.02.2024
-
-Tarja Turunen - Dark Star (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Star (Single Version) [00:04:04]
-02. Underneath [00:04:27]
-03. Dark Star (Tarja Lead Vocals Version) [00:04:42]Жанр: Symphonic Metal, Gothic MetalПродолжительность: 00:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C7EE4CB8E07F21B37784C1422F4628795741E59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702264   (115863) от 24.02.2024
-
-Wondershare PDFelement Pro OCR 10.2.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115863.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.02.2024Разработчик: © 2023 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BBA00B29820A56EF532E713E077B829C6495014
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702411   (115864) от 24.02.2024
-
-FireAlpaca 2.11.17 + Standalone [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115864.jpg" />
-</div>
-
-
-###  Подробнее
-
-FireAlpaca - это достаточно простой, но удобный графический редактор для преобразования изображений, фотографий и любых других картинок. Здесь нет каких-то продвинутых или специфических функций, но базовый набор инструментов позволяет быстро и легко редактировать нужные изображения.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F06E8DF5F8D74FC48103C803937790B066D8B765
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702270   (115865) от 24.02.2024
-
-Super Sound v2.7.9 Mod by Mixroot [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115865.jpg" />
-</div>
-
-
-###  Подробнее
-
-Super Sound - очень мощный редактор для редактирования аудио и музыки на Android. Он поддерживает редактирование аудио, вырезание, объединение, микширование, изменение голоса, преобразование формата и т. д.. Бесплатный профессиональный аудио редактор поможет вам легко создавать рингтоны, легко начать работу, приходите и создавайте свою музыку!Тип издания: ProРелиз состоялся: 23.02.2024Разработчик: HappyBeesПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47AE7C47F21F27B11DD9911D8696239E737CDA4
 ```
 
 

@@ -1,3 +1,54 @@
+###  Публикация: 1785783   (69206) от 17.03.2025
+
+ScreenToGif 2.41.2 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69206.jpg" />
+</div>
+
+
+###  Подробнее
+
+ScreenToGif — удобный бесплатный инструмент, с помощью которого можно записывать действия на экране и сохранять в формат анимированного .gif-файла (в народе называют гифками). После запуска нужно выбрать необходимую область захвата: весь экран, окно или вручную заданный размер и положение рамки захвата. Также можно указать количество FPS от 1 до 60 кадров в секунду. (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDD5F9612D498B4FC2ABB5840971FA4EC7C29E7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785369   (69207) от 16.03.2025
+
+Vermilia - Karsikko (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Pagan, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Karsikko (00:04:44)
+02 - Vakat (00:07:07)
+03 - Kivutar (00:04:32)
+04 - Suruhymni (00:05:08)(   Читать дальше...   )Жанр: Atmospheric Pagan, Black MetalПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62398263F3B45F9139C358197E4676201AA23B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785623   (69208) от 16.03.2025
 
 Dead Rabbitts, Judge & Jury, Escape the Fate - Redefined (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hardcore, Post-Hardcore, Alternative Metal>
@@ -624,60 +675,6 @@ magnet:?xt=urn:btih:67D7B1F72A8117B9695D9C2AE75B81E9D98A3714
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A6CA35F9C2AF43D0AAD009525AD365F3EEB35F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785594   (69232) от 16.03.2025
-
-Ben Lloyd - Leave No Stone Unturned (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Leave No Stone Unturned (3:00)
-02.  Narcisist (2:54)
-03.  Break Out (3:40)
-04.  Ghost (3:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E03E1E1442C50BB77067C4C539B1B19468CE5B93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785612   (69233) от 16.03.2025
-
-Riot - Archives Volume 4 : 1988-1989 (2019) Compilation [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On Your Knees (Rough Mix)
-02. Runaway (Rough Mix)
-03. Killer (Rough Mix)
-04. Storming The Gates Of Hell (Rough Mix)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56ACC24776089AC6D1DBDF9D110555DE36A208A7
 ```
 
 

@@ -1,3 +1,51 @@
+###  Публикация: 1774788   (30071) от 23.01.2025
+
+В пути / Polara / What We Find on the Road (2024) WEBRip [H.264/1080p] [MVO] [AD]
+
+>>Горячие новинки
+>>Новинки с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отец Ти Джея дарит ему на 18-летие винтажный автомобиль и ставит задачу отправиться в путешествие. Вместе с эксцентричными спутниками Ти Джей отправляется в веселое, жизнерадостное путешествие, понимая, что самые длинные дороги в жизни могут привести домой.Производство: США / Uncommon Productions, Operose PicturesЖанр: ДрамаРежиссер: Чейсен БичемАктеры: Финн Хейни, Крис Самптер, Пол Гилфойл, Росс Патридж, Кэтрин Лахин, Тоби Поузер, Джон Адамс, Билл Харцелер, Стив Нигг, Фрэнк ГиллеспиПеревод: Многоголосый (1win Studio)Язык озвучки: русскийСубтитры: русские (forced hardsub)Продолжительность: 01:34:04Реклама: присутствует пара вставок видеорекламы и статичный логотип
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F58ECBF56F3D5D983E1C515B9B9ACB673A934B5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774771   (30072) от 23.01.2025
+
+Обои - Eternal Mix Wallpapers Part 4 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев на разную тематику.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C90A95B03E3033028710BFBC87AEE4D29B51B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123513   (30073) от 23.01.2025
 
 Craft The World (2014) [Ru/Multi] (1.10.005 1/dlc) License GOG (обновляемая)
@@ -583,60 +631,6 @@ VA - Winter Dance Covers 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93B853298A6605BCFAC4CB12B4FFDAC712125F1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774752   (30097) от 22.01.2025
-
-Riot V - Mean Streets (2024) 2xCD, Japanese Edition, Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название Riot является чуть ли не синонимом пауэр-метала, если не американского хэви-метала в целом. Рожденные на улицах Нью-Йорка в середине 70-х, примерно в то же время, когда появилось самое раннее воплощение Iron Maiden, они стояли рядом с такими группами, как Rainbow, Judas Priest и Motorhead, развивая ранние успехи Deep Purple и Black Sabbath в более быстром (   Читать дальше...   )CD1:
-01. Hail To The Warriors 4:26
-02. Feel The Fire 4:14
-03. Love Beyond The Grave 4:21(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F65C0EE322979481FE06532F390C71111279094
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774766   (30098) от 22.01.2025
-
-Visions Of Atlantis - Armada LIVE Over Europe - Pt. 2 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Those Who Choose to Fight (LIVE at Lyon) (02:19)
- 02. The Land of the Free (LIVE at Lyon) (04:41)
- 03. Monsters (LIVE at Nuremberg) (03:49)
- 04. Heroes of the Dawn (LIVE at Paris) (04:42)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EAFF6347A4EE3F05C70C38159D5443AC3B61EA3
 ```
 
 

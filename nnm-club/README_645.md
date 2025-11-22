@@ -1,3 +1,57 @@
+###  Публикация: 1810655   (17085) от 05.08.2025
+
+Big A Sherrod - Torchbearer Of The Clarksdale Sound (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Baby That Hurt (6:11)
+02.  Don't Make Me Pay (3:55)
+03.  Good Woman (5:34)
+04.  My Life (7:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F0C8E5EBDECB7D02710E515F25B7E7BE4D078F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810652   (17086) от 05.08.2025
+
+Ash Lambe & The 32-20's - Ash Lambe & the 32-20's (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sight for Sore Eyes (3:24)
+02.  Loaded Dice (3:59)
+03.  All My Love (3:00)
+04.  Hangin Round No More (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F9F3265E2DE9E7090E8C31AAD12DEC46D07E2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810648   (17087) от 05.08.2025
 
 Abrania - Back To Our Sleazy Roots (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -592,57 +646,6 @@ magnet:?xt=urn:btih:81A80E8CA5A91ADECC9A24FF418FAC582C066FCF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5731830698282B9F4DA7E1D5CA0A04C5B857592A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797714   (17111) от 24.05.2025
-
-Фоны - assetpro .design - Behance - Surreal Gradient Waves - Backgrounds Collection - 142427923 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор разнообразных градиентных фонов цветных и чёрно-белых с дополнениями.Формат: PNGРазрешение файлов: 4000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552CDDD780DBFBA7E4EA6E4DABE9C0E54B2321AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798863   (17112) от 24.05.2025
-
-VA - Gentle Rhythms: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marie Therese - I See You (Houie D`s Chill Remix) (4:05)
-02. Autonne - Moon Flower (Original Mix) (2:26)
-03. V-Sta - Carefree (Original Mix) (4:54)
-04. Marga Sol - Cottontrees (Original Mix) (4:36)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645D3339C8E11E99C07A0F4C837E402C0F0BAB31
 ```
 
 

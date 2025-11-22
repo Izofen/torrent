@@ -1,3 +1,54 @@
+###  Публикация: 1773800   (71676) от 17.01.2025
+
+Владимир Асмолов - Вторая заповедь (2025) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Двенадцать песен [00:03:39]
+02. Вторая заповедь [00:02:47]
+03. Случайное создание [00:02:53]
+04. Выбираю небо [00:03:26](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62445794230D624FBAB3AF10D15B90551ABD1F71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773713   (71677) от 17.01.2025
+
+City of Stories 3: The Hunter's Heart (2025) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение увлекательной серии игр City of Stories. Когда-то давно в лесу жила девочка по имени Беатрис. После смерти родителей Беатрис с младшим братом Лиамом стали заботиться о своем лесном доме. Такую жизнь не назовешь легкой, но у них есть отдушина - книги. Однажды во время сбора урожая они находят странную книгу, и их мир меняется навсегда. Темные существа (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED19824C8FA5E580F7CFE4B287DD6094EF572893
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773824   (71678) от 17.01.2025
 
 Алекс Ключевской (Лёха) | Незаконный наследник (Книга 6). Стать прочнее (2024) [MP3, Семен Ващенко]
@@ -606,60 +657,6 @@ Jesse James and the Mob - Checkin the Mic (2025) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:213A40A06AF60AC53E4F109D253770D7B07F958F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773655   (71702) от 16.01.2025
-
-Martín Burguez & His Rhythm Combo - I'm Gonna Move (2025) [FLAC|Lossless|WEB-DL|tracks] <Rhythm and Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fat Ride in G (2:45)
-02.  I'm Gonna Move (3:21)
-03.  Well, Well, Well Baby-La (3:15)
-04.  Be Steady (2:25)(   Читать дальше...   )Жанр: Rhythm and BluesПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7185C1F70CF53A4DF021FED9A756CE9555DDB25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773443   (71703) от 16.01.2025
-
-Lunarway - Eternal Moments (2024) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal / Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternity [00:04:23]
-02. Streams Of Time [00:05:06]
-03. Wandering 'Cross The Sea [00:05:36]
-04. Stellar Way [00:05:14](   Читать дальше...   )Жанр: Symphonic Metal / Female VocalПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1137F3B4338F05AC8EF1D54AA6476E6329C98D
 ```
 
 

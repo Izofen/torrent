@@ -1,3 +1,190 @@
+###  Публикация: 1764711   (101479) от 08.12.2024
+
+Slears - The Chaos Within (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chaos Within (1:12)
+02. Barricades (3:27)
+03. Particles (2:51)
+04. Digital Dreamer (4:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC6586A644344FFE467949521D06915F144FA07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764656   (101480) от 08.12.2024
+
+Action Fire - Until The Heat Dies (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storm of Memories (4:34)
+02. No Drone Zone (4:05)
+03. Hard Days, Long Nights (3:58)
+04. Survive (3:23)(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5C8249E79312AF2F363746D55A9DA99108210A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764661   (101481) от 08.12.2024
+
+Grant Sabin - Work (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Work (3:07)
+02. Baby Wanna Be Right (4:29)
+03. Headshaker (5:17)
+04. Luisa (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B062B4114EF684690B66D743D54D6727D75A95E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764665   (101482) от 08.12.2024
+
+Ice Exiled - Reset the Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Fire (5:27)
+02. Civilization Zero (3:54)
+03. Bloodfeud (5:14)
+04. Chained and Bound (3:52)(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Progressive MetalПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF815916BB1C12CDC737E1DFE09939192FC96A38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764654   (101483) от 08.12.2024
+
+Booker Little - Booker Little (1960) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Statement [6:46]
+02. Minor Sweet [5:43]
+03. Bee Tee's Minor Plea [5:43]
+04. Life's a Little Blue [6:56](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C15AA4ABD002120401A6F73BABB2B66207C18A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764652   (101484) от 08.12.2024
+
+Nat Adderley Sextet - Autumn Leaves: Live At Sweet Basil (1990) 1994, Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big P. [12:51]
+02. Autumn Leaves [20:25]
+03. Yesterdays [15:01]
+04. For Duke and Cannon [9:47]Жанр: Hard Bop, Post-BopПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1936E56979FFDA637CFE548AF52FB768BB9CE68A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764683   (101485) от 08.12.2024
+
+НХЛ 2024-2025. Вашингтон Кэпиталз - Монреаль Канадиенс (07.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101485.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 декабря 2024, воскресенье. 03:00 МСК. Стадион: Белл-центр (Монреаль, Канада), 21 105 зрителей (100% при вместимости 21 105)
+Главный судья: Стив Козари (Пентиктон, Канада); Главный судья: Митч Даннинг (Текумсе, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C60C021C167B3A5E589736783922E9FD09BAF57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764680   (101486) от 08.12.2024
 
 НХЛ 2024/2025. Регулярный чемпионат. Торонто Мэйпл Ливс - Питтсбург Пингвинз (07.12.2024) WEB-DLRip [H.264/720p]
@@ -492,190 +679,6 @@ Apollo Brown & Planet Asia - Sardines (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47855419A001E1E4180804BA42067FB7E80AA129
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764703   (101505) от 08.12.2024
-
-Apollo Brown & Philmore Greene - Cost of Living (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Boom Bap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Consequences (1:17)
-02. Nice to Meet You (3:24)
-03. Keep Goin' (3:26)
-04. Day On The Ave (3:14)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom Bap, Instrumental Hip-HopПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED12E74DD6EBFFCAD5C6AA923BBC89D88CAA52EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764705   (101506) от 08.12.2024
-
-Apollo Brown & Stalley - Blacklight (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Underground Hip-Hop, Boom Bap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hidden (1:08)
-02. Blacklight (3:51)
-03. Love Me, Love Me Not (feat. Skyzoo) (4:37)
-04. No Monsters (3:39)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom Bap, Instrumental Hip-HopПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B952FF9B47092ABFAD57175D81A7A9383CD99749
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764775   (101507) от 08.12.2024
-
-Text Editor Pro 31.0.0 + Portable + Bonus [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощным инструментом редактирования текста с подсветкой синтаксиса для сценариев и языков программирования, является небольшая и компактная программа – Text Editor Pro. Программу можно сравнить с известным текстовым редактором Notepad++ функционал у них схожий, отличаются только по размеру. Утилита работает во всех версиях ОС, выпущенных корпорацией Microsoft. В последних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:015E1704D42BE4A56732672515A30355CB9E7EC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764641   (101508) от 08.12.2024
-
-Главная дорога (07.12.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сколько стоит «ремонт» человека, пострадавшего в аварии, и на что хватает этих денег?
- ереобули шины — не забудьте поменять и автоковрики. Андрей Федорцов и Денис Юченков устроили настоящую проверку всем известным видам ковриков для салона. Ведущие их терли, били, топили, морозили и подогревали, а все для того, чтобы определить, какие из них безопаснее зимой, а какие (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 00:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09DAF49FF412AB190CF840E4FEDC12B5158825E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764728   (101509) от 08.12.2024
-
-The Smoothies - December Chill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chilling in a Winter Night (3:14)
-02. Psychology of Love (3:59)
-03. A Winter Night in Norway (3:50)
-04. A Winter's Tale (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1304E1BEFBC95539F56D044DCB5B40B5BAC802
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764624   (101510) от 08.12.2024
-
-Jim Jones - Pray IV Reign (2009) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Album Intro (5:14)
-02. Pulling Me Back (3:46)
-03. Let It Out (4:09)
-04. How to Be a Boss (5:07)(   Читать дальше...   )Жанр: Hip Hop, RapПродолжительность: 01:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8091BD45C702588A791998A9A97AA0AC477FACF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764776   (101511) от 08.12.2024
-
-Солнце в Тетрадке - Против Течения (2016) [MP3|320 Kbps] <Pop Punk, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome 2
-02. Беги
-03. Четвёртый Вид (Мёртвые Звёзды)
-04. Вместо(   Читать дальше...   )Жанр: Pop Punk, ElectronicПродолжительность: 00:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02A74C7DC383C1DD7EBDC424D2176C76EF2F7D5
 ```
 
 

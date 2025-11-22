@@ -1,3 +1,218 @@
+###  Публикация: 467517   (96504) от 13.03.2012
+
+VA - Plexus Relax Sector - Bleak Winter Wailing 2 (tracks + mix) (2012) [MP3|320 кб/с]<Ambient, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dissapocrifia - Algor Prelude c-moll (2:47)
+ 02. jdoblom - Грибной Суп (7:39)
+ 03. Simiram - Hinokio (5:54)
+ 04. NOVA ILLUSION & Fibres - DOT (6:18)
+ 05. sir cond - The Soul Labyrinth (3:28)
+ 06. DJ Ger-Man - Before A Choice (5:07)
+ 07. Eguana - On Ruins Of Mind (Easy Drums Version) (6:48)
+ 08. Radio Silence - Easy Snowfalling Will Happen At This Night (5:33)
+ 09. Index-1 - Love Story (4:20)
+ 10. Романтик - Прощание С Людмилой (2:42)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B6E2D3EA4452F70627BA1AE6510EAD9CD4DFD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467386   (96505) от 13.03.2012
+
+VA - Dub Step vol.2 from AGR (2012) [MP3|256 kbps]<Dub Step>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vindicatrix - Private Places
+02. Meat Beat Manifesto - Guns 'n' Lovers (Remix)
+03. Appleblim & Peverelist - Circling (Bass Clefs Radius Remix)
+04. Skrubz - Zombie
+05. LaRoux - Bulletproof (Chrispy Dubstep Remix)
+06. ConRank - State of Play (Didjelirium Remix)
+07. Ben Strokin - I Got The Munchies
+08. Mala - New Life Baby Paris
+09. DJ Pinch & P Dutty - War Dub
+10. Quest - Deep Inside(   Читать дальше...   )2012Жанр: Dub StepПродолжительность: 08:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5181E6A5B9AEDE6F7BAD3995BDF6567B7656038A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467121   (96506) от 13.03.2012
+
+One Year Later - The Sound of a Broken World (2012) [MP3|320 кб/с]<Metalcore, Post-Hardcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96506.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Absolution (3:17)
+2. Paths (3:02)
+3. Shapeshifter (3:45)
+4. Deliverance (2:53)
+5. Memories (3:35)
+6. This Road (3:46)
+7. Interlude (2:31)
+8. The Sound of a Broken World (2:49)
+9. The Cursed (3:07)
+10. Lay In This Earth (4:16)2012Жанр: Metalcore, Post-HardcoreПродолжительность: 00:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8F11E2E1EADAAAAFB6F912A7F09949F2A218122
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464608   (96507) от 13.03.2012
+
+Футбол. Лига чемпионов 2011-12. Все матчи с участием "Зенит" (Санкт-Петербург) (2011) HDTV [1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2011-12. 1-й тур. Группа G. "АПОЭЛ" (Кипр) – "Зенит" (Россия)
+Футбол. Лига Чемпионов 2011-12. 2-й тур. Группа G. "Зенит" (Россия) – "Порту" (Португалия)
+Футбол. Лига Чемпионов 2011-12. 3-й тур. Группа G. "Шахтёр" (Украина) – "Зенит" (Россия)
+Футбол. Лига Чемпионов 2011-12. 4-й тур. Группа G. "Зенит" (Россия) - "Шахтер" (Украина)
+Футбол. Лига Чемпионов 2011-12. 5-й тур. Группа G. "Зенит" (Россия) - "АПОЭЛ" (Россия)
+Футбол. Лига Чемпионов 2011-12. 6-й тур. Группа G. "Порту" (Португалия) – "Зенит" (Россия)Жанр: СпортПродолжительность: один тайм ~ 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C742E7DAC3D8C5A5AA843405531CBE5FD8055F15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466836   (96509) от 13.03.2012
+
+Настоящие Афeристы Выпуск 2 (2012) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наши эксперты рассказывают, как избежать самых невероятных видов мошенничества. Ответственного за доставку обманом заставляют расстаться с развозным товаром.Жанр: ТелепередачаПродолжительность: 00:22:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C16783D8C5C5E0542A07838333A2DA5F0BA084
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467514   (96511) от 13.03.2012
+
+VA - Plexus Relax Sector - Bleak Winter Wailing (2012) [MP3|320 кб/с]<Ambient, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandr Slavia - Realization (6:54)
+ 02. Simiram - Under Red Skies (6:01)
+ 03. sir cond - Challenger Deep (5:17)
+ 04. Eguana - On Ruins Of Mind (Ambient Version) (7:21)
+ 05. DJ Ger-Man - Extinct Earth (5:24)
+ 06. Etnia - Restless Sleepers (8:09)
+ 07. Soulalive - The Parallel World (6:04)
+ 08. Index-1 - Nostalgy (5:55)
+ 09. sir cond - In A Chasm (12 April Remix) (6:00)
+ 10. jdoblom - Bogus (12:37)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 02:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FED4F9F83631E5A6C6FF558A6607CD2CE97C50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466808   (96512) от 13.03.2012
+
+Arild Andersen Quintet - Auditorio RSI, Lugano, Switzerland, 09. 11. 2011 (2011) [FLAC|Lossless]<Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hyperborean 08:10
+02. Chorus II 09:49
+03. Saturday 16:47
+04. Announcement Arild Andersen 00:51
+05. Electra Song 06:05
+06. Unknown Title 10:10
+07. Unknown Title2011Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466521   (96513) от 13.03.2012
 
 Футбол. Чемпионат России 2011-12. 7-й тур. "Кубань" (Краснодар) - "Зенит" (Санкт-Петербург) (2011) SATRip
@@ -539,203 +754,6 @@ Ravi Shankar - Bridges: The Best Of Ravi Shankar (2001) [MP3|128 кб/с]<Ethnic
 8. Friar Park (5:57)
 9. Reunion (4:20)
 10. Prashanti (13:40)(   Читать дальше...   )2001Жанр: Ethnic, Indian Classical MusicПродолжительность: 01:16:6
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467246   (96569) от 13.03.2012
-
-Carol Welsman - Memories Of You: Carol Welsman sings Benny Goodman and Peggy Lee (2009) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Be That Way (3:49)
-02. Why Don't You Do Right (2:45)
-03. Moonglow (3:29)
-04. Stompin' At The Savoy (3:10)
-05. As Time Goes By (5:47)
-06. When You're Smiling (4:50)
-07. Johnny Guitar (4:11)
-08. Fever (4:02)
-09. Goody Goody (2:54)
-10. The Very Thought Of You (3:09)(   Читать дальше...   )2009Жанр: Vocal JazzПродолжительность: 01:00:51
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466527   (96575) от 13.03.2012
-
-Девушка и волки / La jeune fille et les loups / The Maiden and the Wolves (2008) [720p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало 20-го века. Мэр французской деревушки Эмиль Гарсин мечтает проложить на живописных альпийских просторах железную дорогу и построить там горнолыжный курорт. Но его корыстным и амбициозным планам мешают полоумный горец Джузеппе и стая диких волков, приводящих в ужас жителей окрестностей. И только юная Анжель готова пойти на все, чтобы спасти этих красивых и отважных зверей…Жанр: Драма, семейныйРежиссер: Жилль ЛегранАктеры: Летиция Каста, Жан-Поль Рув, Стефано Аккорси, Миглен Миртчев, Мишель Галабрю, Патрик Шенэ, Лоран Дойч, Дидье Бенюро, Юрбен Канселье, Лоран ГамелонПеревод: Многоголосый закадровыйПродолжительность: 01:50:24
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467326   (96576) от 13.03.2012
-
-VA - Ibiza Chill Session (2011) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Persia Beatz - Princess Of Persia (Miracle mixxx) (04:52)
-02. Pascal Dubois - Beach Pearl On Ibiza (White Waves cut) (04:57)
-03. Skysurfer - Circling Elements (feat Lovay - Down By The Sea mix) (05:09)
-04. Kosta Rodrigez - Gale In The Waterglass (My Love) (feat Amy - Anthony Island remix) (04:41)
-05. Cafe Americaine - Bring Back Silence (Cool & Lazy Afternoon cut) (04:48)
-06. Jazz Connection - Tranquility Station (Smooth Evening cut) (04:29)
-07. Frank Borell - Why Do We Always Fall In Love (feat Oliver - No Question mix) (05:34)
-08. Thermodynamics - Visions Of Astronauts (Blue Planet mix) (06:37)
-09. Pascal Dubois - Jetset To LA (Arline mix) (04:21)
-10. Kid Coconutz - Cinematic Grooves (Afroelectric mix) (05:44)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5177113EF7049B3D7349D80261EBD12C251BAF1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467552   (96580) от 14.03.2012
-
-VA - 538 Dance Smash 2011 vol.1 (2011) [MP3|320 кб/с]<Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 martin solveig and dragonette - hello 03:11
-02 tim berg, oliver ingrosso and otto knows - itrack 03:06
-03 david guetta featuring rihanna - who's that chick 03:18
-04 duck sauce - barbra streisand 02:43
-05 roger sanchez and far east movement featuring kanobby 02:30
-06 eric prydz - niton (the reason) 03:02
-07 alex gaudino - i'm in love 02:46
-08 joshua khane - love don't cost a thing 03:34
-09 sander van doorn featuring carol lee - love is darkne 03:18
-10 dominik de le=n featuring burhan g - everything chang 03:00(   Читать дальше...   )2011Жанр: DanceПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C88FDCB9DB163D2B6A87A3E1C896001186F5652
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467803   (96584) от 14.03.2012
-
-Журнал | Это вкусно! №1 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96584.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале «Это вкусно!» вы найдете изысканные блюда для любителей приготовить что-то необычное и быстрые рецепты для тех, кто не любит долго стоять у плиты, десерты для сладкоежек и низкокалорийные блюда для желающих сбросить несколько лишних килограммов.	”2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B72FE1C89769E35D107E6E997F5F9CF211EBD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467616   (96585) от 14.03.2012
-
-Настоящие Афeристы Выпуск 4 (2012) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96585.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши эксперты рассказывают, как избежать самых невероятных видов мошенничества. Ответственного за доставку обманом заставляют расстаться с развозным товаром.Жанр: ТелепередачаПродолжительность: 00:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F585C292D1636073972662F0B6F99CA6C59C4010
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467910   (96586) от 14.03.2012
-
-Минобороны описало концепции информационной войны
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96586.jpg" />
-</div>
-
-
-###  Подробнее
-
-CNews обнаружил на сервере Министерства обороны РФ документ, описывающий военную деятельность в информационном пространстве. Документ датирован 2011-м годом, но, по словам самих военных, базируется на Президентской доктрине инфобезопасности, подписанной ещё в далёком сентябре двухтысячного.
-Военные отмечают, что создания концепции потребовала серьёзная угроза, исходящая из глобального информационного пространства. Часть позиций документа унаследована из XX века, к таким относятся, например, радиолокационная разведка и иные традиционные направления военного искусства. Но куда больший интерес для непрофессионала представляют близкие к нашему времени информационные войны и элементы "массированной психологической обработки населения для дестабилизации общества и государства, а также принуждения государства к принятию решений в интересах противоборствующей стороны".
-(   Читать дальше...   )
 
 ## Скачать торент
 ```bash

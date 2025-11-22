@@ -1,3 +1,55 @@
+###  Публикация: 1730154   (53301) от 14.06.2024
+
+David Bowie - Rock 'n' Roll Star! (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Looking For A Friend (Arnold Corns Version - 2022 Mix) (00:03:11)
+02 - Hang On To Yourself (Early Ziggy Session Take) (00:02:41)
+03 - Star (aka 'Stars') (Alternative Version - Take 5) (00:02:42)
+04 - Lady Stardust (Alternative Version - Take 1) (00:03:27)(   Читать дальше...   )Жанр: RockПродолжительность: 5CD, 03:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8924C14F6A56E207FAA6E6C73AF24A8248E32557
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730043   (53302) от 14.06.2024
+
+Viber 22.9.0.2 (x64) RePack (Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viber - десктопная версия популярного мобильного приложения для IP-телефонии, с помощью которого можно свободно отправлять сообщения, совершать голосовые и видеовызовы (HD качество) другим пользователям Viber, вне зависимости от того каким устройством они пользуются, к какой сети подключены и в какой стране находятся.
+Программа автоматически синхронизирует с мобильным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06D4EF4E84611A83EB6712F63EE9CE99F4637CBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730204   (53303) от 14.06.2024
 
 Icecream PDF Editor Pro 3.24 [Multi/Ru]
@@ -580,57 +632,6 @@ magnet:?xt=urn:btih:7686B5B855648F62A62175A2F1AF98376BC9E717
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F14B76A26AF03902F8DA24893FEEB7BB2A55976
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139377   (53327) от 14.06.2024
-
-Vladimir Tolkachev Jazz Orchestra (Владимир Толкачев) - General's Full-Dress Coat (Мундир Генерала) (2002) Ermatell Records [APE|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chattanooga Choo - Choo [03:21]
-02. The Game Is Over [07:02]
-03. Pure Emotion [03:08]
-04. Jump One O'Clock [04:29](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642DC561D78A2AA2F24F82746490AADE2E96CB02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730222   (53328) от 14.06.2024
-
-KineMaster - Видеоредактор 7.4.12.33222.GP Mod by youarefinished [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53328.jpg" />
-</div>
-
-
-###  Подробнее
-
-KineMaster - представитель когорты видеоредакторов что стал невероятно популярным у пользователей за счёт своих качеств, функционала, а так же очень удобного интерфейса помогающего применять всё, что есть в программе без жутких мытарств с неудобно расположенными кнопками и закладками. Данная программа станет очень хорошим помощником для тех кто предпочитает использовать (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 14.06.2024Разработчик: KineMaster, Video Editor Experts GroupПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E69839B584D0C28C3ABF6F1E4BDC0BA56383A4
 ```
 
 

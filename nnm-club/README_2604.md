@@ -1,3 +1,57 @@
+###  Публикация: 1788900   (68452) от 01.04.2025
+
+Wolfgang Flur (ex. Kraftwerk) - Times (2025) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Posh (feat. Juan Atkins)
+02. Planet In Fever (feat. U96 & Emil Schult)
+03. Cinema (feat. Fabrice Lig)
+04. Far Away(   Читать дальше...   )Жанр: EDM, Electro, TechnoПродолжительность: 01:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15033B924653B8F02FBF321C57EA729D9D78881
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788827   (68453) от 01.04.2025
+
+VA - The Orient Collective: Eastern Mirage (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kalico Jak, Tibetania - Sunlight Through the Treetops (Original Mix) (9:04)
+02. Gabriel Slick, Tibetania - Astral Illusion (Original Mix) (7:18)
+03. Paolo Lofre, Tibetania - Doa (Original Mix) (7:32)
+04. Indiano, Tibetania - Astral (Original Mix) (8:04)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:376B1D1DAFC9F109B870878946C5E10105EAE73C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788884   (68454) от 01.04.2025
 
 Thunderbolt Fantasy: Seiyuu Genka | Thunderbolt Fantasy: Bewitching Melody of the West | Грозовая фантазия: Нефритовая песнь Сэй Ю [2019, Movie] BDRip 1080p HEVC 10-bit raw
@@ -615,57 +669,6 @@ magnet:?xt=urn:btih:34EFD2BAFC08E3C4764AB7CF773F2EB2203716D0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64EAD97200BC279527F194A4710BF7CE75F738CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788666   (68478) от 31.03.2025
-
-My Design Immortal - Ten Scars Deep (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  When I See Your Face (3:27)
-02.  Can't Be Just Like Them (3:14)
-03.  Those Three Words (3:50)
-04.  Blame (3:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2208DAC0E1A93611BC6D449E8151A5D95193C05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788562   (68479) от 31.03.2025
-
-VA - Interplay Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DaWTone – Tropical DreamЖанр: Progressive House, Melodic House & TechnoПродолжительность: 01:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD34D57AAB75464D8599ECB9803BBCFB7F85E311
 ```
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1788953   (68426) от 01.04.2025
+
+Blut Reaktor - Plastic Bitch (2025) [MP3|320 Kbps] <Dark Electro, Electro-Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blut Reaktor; Cruxx - Dead Inside [00:03:50]
+02 - Blut Reaktor; Cruxx - Demise [00:03:34]
+03 - Blut Reaktor; Cruxx - Fear Campaign [00:03:50]
+04 - Blut Reaktor; Those Things Silver - Femme Fatale [00:03:50](   Читать дальше...   )Жанр: Dark Electro, Electro-IndustrialПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677C4C5BCD58933236C54FF8AEBCF3AD8CD89542
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788759   (68427) от 01.04.2025
+
+VA - 25 Years Of Anjuna Mixed By Nourey (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 (01:08:27)
+01. Nourey – Intro (25 Years Of Anjunabeats)Жанр: Trance, Progressive, ElectronicПродолжительность: 03:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517831B7439EAE7965AD24335D6D9CFBC8E84FAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788904   (68428) от 01.04.2025
 
 Aya - hexed! (2025) [MP3|320 Kbps] <Electronic, Footwork, Grime, Techno>
@@ -607,60 +659,6 @@ magnet:?xt=urn:btih:A8D0CAA343BC4E84160DA3297697A14C0DE63B1C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:906FDAC108002CE730B28D769A34C03559BE6B61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788900   (68452) от 01.04.2025
-
-Wolfgang Flur (ex. Kraftwerk) - Times (2025) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Posh (feat. Juan Atkins)
-02. Planet In Fever (feat. U96 & Emil Schult)
-03. Cinema (feat. Fabrice Lig)
-04. Far Away(   Читать дальше...   )Жанр: EDM, Electro, TechnoПродолжительность: 01:10:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15033B924653B8F02FBF321C57EA729D9D78881
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788827   (68453) от 01.04.2025
-
-VA - The Orient Collective: Eastern Mirage (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kalico Jak, Tibetania - Sunlight Through the Treetops (Original Mix) (9:04)
-02. Gabriel Slick, Tibetania - Astral Illusion (Original Mix) (7:18)
-03. Paolo Lofre, Tibetania - Doa (Original Mix) (7:32)
-04. Indiano, Tibetania - Astral (Original Mix) (8:04)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376B1D1DAFC9F109B870878946C5E10105EAE73C
 ```
 
 

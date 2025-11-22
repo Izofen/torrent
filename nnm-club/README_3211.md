@@ -1,3 +1,189 @@
+###  Публикация: 1760642   (103170) от 15.11.2024
+
+St. Vincent - Todos Nacen Gritando (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Infierno Está Cerca (4:09)
+02. Salvaje (3:57)
+03. Hombre Roto (3:22)
+04. Pulga (3:47)(   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F773134CF0F9F23C73B37CEAD1EF949076DC79E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760662   (103171) от 15.11.2024
+
+Невеста Франкенштейна / The Bride of Frankenstein (1935) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит сразу после событий предыдущего фильма и основано на сюжетной линии оригинального романа Мэри Шелли «Франкенштейн, или Современный Прометей» (1818)... Отвергнутый всеми монстр ищет себе пару. Доктор Франкенштейн приходит на помощь и создает заветную подругу...Производство: США / A Universal PicturesЖанр: ужасы, фантастикаРежиссер: Джеймс УэйлАктеры: Борис Карлофф, Колин Клайв, Валери Хобсон, Эрнест Тесиджер, Эльза Ланчестер, Гэвин Гордон, Дуглас Уолтон, Уна О`Коннор, Люсьен Приваль, О.П. Хегги, Дуайт Фрай, Реджинальд Барлоу, Мэри Гордон, Энн Дарлинг, Тед БиллингсПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A6E112EAA9B0EF5895C9CE42F14BF6425B7FABB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760451   (103172) от 15.11.2024
+
+Michel Sardaby - Blue Sunset (1967) 1990, Mantra [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Sunset [5:35]
+02. Always Room for One More [5:23]
+03. Empty Room [4:00]
+04. Wendy [5:18](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AEB3CA62A4A4D42098C7E0F94193616749B1598
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760639   (103173) от 15.11.2024
+
+Larry Willis Trio - Just In Time (1989) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just in Time [10:34]
+02. Soul Search [9:01]
+03. T's Bag Blues [5:22]
+04. For All We Know [9:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD482AD99BECD5CAFE3E0E671F6A7411CE6F8E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760627   (103174) от 15.11.2024
+
+Violent Definition - Progressive Obsoletion (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103174.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Into Trepidation
+2. Justified Ferocity
+3. The Last Grain In Your Hourglass
+4. Experimental Failure(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F197084B0850E90270A11D7919255B9F861654F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760359   (103175) от 13.11.2024
+
+Captain Morgan Express - The Pussycat Tapes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Just Your Fool (3:06)
+02. Chicago Bound (3:08)
+03. The Jealous Kind (3:32)
+04. Change It (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E814F6A08F2C7783362D914F2C6D06E6E801044E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760377   (103176) от 13.11.2024
+
+North By Northwest - No Time Like the Present (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Then (2:59)
+02. Caesar Jingle (Live) (2:28)
+03. Easy Street (A Song for the Homeless) (4:17)
+04. Good Times (Wild Women and Lovers) (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D441786038A8A86BEE21D64C6A59C3DB345ED8D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760371   (103177) от 13.11.2024
 
 Lucas Oakley - Right Here, Right Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -494,190 +680,6 @@ Ethereal - Downfall (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Gothic, Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A54A6EEF69C45C05736E5F7EEEBAB93B80750FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760095   (103196) от 12.11.2024
-
-Art Blakey & The Jazz Messengers - The Complete 3 Blind Mice (1961, 1962) 2CD, 2022, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mosaic [12:31]
-02. Ping Pong [12:25]
-03. The Promised Land [13:14]
-04. Arabia [11:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:204C255DD582E7E691B3A5380152547026F1E29C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759944   (103197) от 12.11.2024
-
-Kenny Thomas - Remixed The Best Of Kenny Thomas (2023) Remixed, 2CD, 2024, Chrysalis Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul, Soulful House, Deep House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thinking About Your Love (Touchdown 2 Mix) [00:04:53]
-02. Outstanding (Macattack Mix) [00:08:04]
-03. Best Of You (12" Mix) [00:04:54]
-04. Piece By Piece (Absolute Mix) [00:06:20](   Читать дальше...   )Жанр: Soul, Soulful House, Deep HouseПродолжительность: 2 CD, 02:23:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8329B01596498E310D17C866A90132FBB2FD85B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760194   (103198) от 12.11.2024
-
-Друзья по офицерской школе / Vennerne fra Officersskolen (1913) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Др-р-раматическая история. Два молодых друга-офицера, Эдмон и Клейтон, влюбляются в прекрасную Роуз. В неожиданной опасной ситуации раскрываются робость Эдмона и смелость Клейтона, после чего Роуз решительно выбирает своим избранником своего героического спасителя. Преисполненный ревности, Эдмон прилагает все усилия к мести...Производство: Дания /  Nordisk Film KompagniЖанр: короткометражный, мелодрама, драма, немое киноРежиссер: Эдуард Шнедлер-СоренсенАктеры: Mathilde Felumb, Friis Anton, Gambetta Salmson, Alma Hinding, Отто Лагони, Карл Лауритцен, Agnes Lorentzen, Клара Понтоппидан, Ааге Шмидт, Franz Skondrup, Карло ВитПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC91A4E1D3E423BC5EC64BA43ED24BAA3850CF5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760169   (103199) от 12.11.2024
-
-НХЛ 2023-2024. Даллас Старз - Питтсбург Пингвинз (11.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103199.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 ноября 2024 г. 03:00 по московскому времени. Стадион: PPG Paints-Arena (Питтсбург, США), 16 526 зрителей (89% от вместимости 18 673)
-Главный судья: Джейк Бренк (Детройт-Лейк, США); Главный судья: Митч Даннинг (Текумсе, Канада); Линейный судья: Си Джей Мюррей (Питтсбург, США); Лайнер: Мэтт Макферсон (Антигониш, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A71B75FE688EE3A384ECE810CB0AA8B4968CA24D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759808   (103200) от 10.11.2024
-
-Nell Bryden - I Love You So Much I’m Blind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cassandra [00:03:19]
-02. Devil Is Everywhere [00:03:42]
-03. Help Me Forget [00:03:40]
-04. I Love You So Much I’m Blind [00:03:20](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45E7B84DE7492E98D241946765438270E4549E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759742   (103201) от 10.11.2024
-
-As I May - Dark Royal Revy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Stop Dreaming [00:03:32]
-02. The Last Breath [00:03:38]
-03. Grey Day [00:03:12]
-04. Lighthouse [00:03:46](   Читать дальше...   )Жанр: Modern Metal, MetalcoreПродолжительность: 00:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1165963FDC576D948D10A9F296D32893569F2025
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759642   (103202) от 10.11.2024
-
-Kingfisher Sky - Feeding The Wolves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Prog>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feeding the Wolves (3:47)
-02. Fade Away (5:18)
-03. Nobody Else Is Watching (4:07)
-04. It Never Ends (3:46)(   Читать дальше...   )Жанр: Heavy ProgПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88845489D3FA83AE881D143C6EB929527E346C98
 ```
 
 

@@ -1,3 +1,217 @@
+###  Публикация: 453359   (93538) от 16.02.2012
+
+Газета | Сад, огород – кормилец и лекарь №3 (январь 2012) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93538.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сад, огород – кормилец и лекарь» — газета, которая поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки. Ценный опыт наших читателей, присланный в письмах на конкурсы газеты, становится достоянием всех и постоянно (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6553EA71A260BDE13D033ACF34626C63284A19B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452411   (93540) от 16.02.2012
+
+Meander - Time Machine (2012) [MP3|320 kbps]<Psychedelic / Full On, Psy-Prog>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meander - Sacred Lands (Original Mix) 07:04
+ 02. Meander - Completely Nuts (Original Mix) 07:17
+ 03. Meander - Spiritual Communion (Original Mix) 07:47
+ 04. Meander - 4 Years After Years More (3 Years More Remix) 07:54
+ 05. Meander - Lucid Dream (Original Mix) 07:10
+ 06. Meander feat Ridden - Virus_Desirus (Original Mix) 07:12
+ 07. Meander - The I We And It (Original Mix) 08:10
+ 08. Meander - Crystal Frequencies (Original Mix) 08:16
+ 09. Meander - Time Machine (Original Mix) 07:262012Жанр: Psychedelic / Full On, Psy-ProgПродолжительность: 01:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679C2C3381287D471C7F3D33E4EFB43F8481C804
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453266   (93550) от 16.02.2012
+
+Hope Waits - Hope Waits (2007) [FLAC|Lossless]<Vocal Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Be Satisfied (2:57)
+02. You Crossed the Line (3:58)
+03. Fortune Teller (4:47)
+04. Yesterdays (4:40)
+05. Get Behind the Mule (4:34)
+06. Ring Them Bells (3:49)
+07. Drown in My Own Tears (3:54)
+08. The Ballad of Judith Anne (4:07)
+09. Cigarettes and Coffee (4:14)
+10. Mother in Law Blues (2:51)(   Читать дальше...   )2007Жанр: Vocal Jazz, BluesПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452392   (93552) от 16.02.2012
+
+Twina - Out As A Signal (2012) [MP3|192-320 kbps]<Psychedelic / Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out As A Signal 07:29
+02. SuperNova 07:46
+03. See The Light 2020 5:51
+04. Ultratwina (Ultravoice vs. Twina) 06:44
+05. Two Kinds of People 07:23
+06. Visual Your Dream 06:53
+07. Venus from Mars (Echo Logic vs. Twina Remix) 06:56
+08. Get What You Give 06:56
+09. Man Becomes What He Thinks About 08:18
+10. Communicating on Some Level 06:272012Жанр: Psychedelic / Full OnПродолжительность: 01:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A9B27D1115C74BEF6FB2488411DB62157D654F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453160   (93555) от 16.02.2012
+
+Too Slim And The Taildraggers - Shiver (2011) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stoned Again (4:36)
+02. Daddies Bones (4:55)
+03. Can't Dress It Up (5:05)
+04. In Your Corner (4:54)
+05. I Heard Voices (0:48)
+06. Everybody's Got Something (5:02)
+07. Workin' (5:57)
+08. She Sees Ghosts (4:45)
+09. Inside of Me (4:29)
+10. As the Tears Go By (4:52)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453234   (93559) от 16.02.2012
+
+VA - Piano Jazz (2009) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Count Basie - I'm Confessin' (That I Love You) (4:51)
+02.Billy Taylor Trio - La Petite Mambo (4:49)
+03.Paul Desmond - Alice In Wonderland (4:06)
+04.Bill Evans - For Heaven's Sake (4:26)
+05.Thelonious Monk - It Don't Mean A Thing (If It Ain't Got That Swing) (4:40)
+06.Oscar Peterson - Georgia On My Mind (3:46)
+07.Eugen Cicero  - Autumn Leaves (6:24)
+08.Earl Hines - Moonlight In Vermont (3:13)
+09.Erroll Garner - Misty (2:48)
+10.George Shearing - Someone To Watch Over Me (2:35)(   Читать дальше...   )2009Жанр: JazzПродолжительность: 01:08:50
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 452388   (93562) от 16.02.2012
+
+Незаконченная жизнь / An Unfinished Life (2005) DVD9
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эйнар Джилкисон, на протяжении последних десяти лет тяжело переживающий смерть своего единственного сына, совершенно запустил собственное ранчо и разрушил свой брак. Единственный человек, о котором Эйнар продолжает заботиться, — это его наемный работник и друг Митч, который был страшно искалечен медведем-гризли.
+
+Утратив всякую связь с внешним миром, Эйнар собирается (   Читать дальше...   )Жанр: ДрамаРежиссер: Лассе ХалстремАктеры: Дженнифер Лопес, Роберт Рэдфорд, Морган ФриманПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:43:21
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 453056   (93569) от 16.02.2012
 
 Necondition - Original Necondition (2012) [MP3|320 kbps]<Ska Punk>
@@ -595,210 +809,6 @@ Caribbean Jazz Project - Mosaic (2006) [FLAC|Lossless]<Latin Jazz>
 07. Spinnaker (4:40)
 08. Mambo De Luna (Para Cachao) (6:56)
 09. Dusk (7:59)2006Жанр: Latin JazzПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453974   (93724) от 18.02.2012
-
-[EN] 13 часов / 13Hrs (2010) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время сильной ночной бури, Сара Тайлер возвращается домой загород к своему семейству. Буря усиливается, и Сара с семьей и друзьями остаются на ночь в доме, отрезанные от внешнего мира. Но что-то появляется из проливного дождя и мрака. Что-то, что владеет такой ужасной тайной, что за одну ночь может истребить всю семью. Пойманным в ловушку, Саре, ее братьям и друзьям придется приложить максимум усилий, чтобы спастись от ужасного существа. Смогут ли они остаться в живых в течение 13 часов?Жанр: Ужасы, БоевикРежиссер: Джонатан ГленденингАктеры: Изабелла Кэлторп, Том Фелтон, Джемма Эткинсон, Джошуа Боуман, Гэбриел ТомсонПеревод: ОтсутствуетПродолжительность: 01:21:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6C66547B104A88D7BA6E8CAA3FF8F74504AAB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453928   (93729) от 18.02.2012
-
-Наталия Курсанина | Игра не на жизнь. Проходная пешка [2011] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93729.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Когда вглядываешься в бездну — бездна заглядывает в тебя». Если рискнули играть в магию — магия может запросто сыграть вами, словно разменной пешкой. И тогда невинная «ролевая игра» по мотивам «Властелина Колец» обернется кровавым кошмаром, провалом в бездну, беспощадной войной миров. Потому что реальные эльфы ничуть не похожи на те прекрасные создания, что воспевал Толкин, — для настоящих эльфов, возомнивших себя высшей расой и кичащихся собственным первородством, человеческая жизнь не стоит ни гроша, мы для них — низшие существа, которых следует истреблять, не щадя ни женщин, ни детей. А гномы и орки еще хуже эльфов… Новый роман от автора бестселлера «Попаданцы» Карибского моря»! Наш человек в мире жестокой магии. Люди против «старших рас», мечи против колдовства, любовь против адской бездны! В этой беспощадной игре не на жизнь, а на смерть, где все средства хороши, кровь дешевле воды и геноцид давно вошел в привычку, существует лишь одно правило: проходная пешка становится ферзем!2011Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD4FEE1999A78EBFB3789F2EEE821DBB4CA41C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454355   (93740) от 18.02.2012
-
-Seven Seals - ... of Contradictions (2012) [MP3|320 kbps]<Heavy/Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro
-02 - Dreams Collide
-03 - The Better Days
-04 - Vicious Circle
-05 - Come Clraity
-06 - Still Small Voice
-07 - Crestfallen
-08 - Deliver Us
-09 - Endearment
-10 - Mother Earth(   Читать дальше...   )2012Жанр: Heavy/Power MetalПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68B8095C5548FD51A1AD494D83C997BEA751F08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454651   (93741) от 18.02.2012
-
-UFO - Seven Deadly (2012) [FLAC|Lossless]<Hard Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fight Night - 04:34
-02. Wonderland - 05:08
-03. Mojo Town - 03:56
-04. Angel Station - 06:23
-05. Year Of The Gun - 04:07
-06. The Last Stone Rider - 03:52
-07. Steal Yourself - 04:46
-08. Burn Your House Down - 04:58
-09. The Fear - 03:44
-10. Waving Good Bye - 05:11(   Читать дальше...   )2012Жанр: Hard RockПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452795   (93751) от 18.02.2012
-
-Tony Bennett & K.D.Lang - A Wonderful World (2002) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exactly Like You (3:18)
-02. La Vie En Rose (3:24)
-03. I'm Confessin' (That I Love You) (4:46)
-04. You Can Depend On Me (3:01)
-05. What A Wonderful World (3:23)
-06. That's My Home (3:05)
-07. A Kiss To Build A Dream On (3:26)
-08. I Wonder (3:49)
-09. Dream A Little Dream Of Me (3:53)
-10. You Can't Lose A Broken Heart (3:14)(   Читать дальше...   )2002Жанр: Vocal JazzПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454494   (93752) от 18.02.2012
-
-Журнал | Selber Machen [Август 2007] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Selber Machen - немецкий журнал для домашних мастеров: советы по ведению домашнего хозяйства, создание изделий из дерева для дома и сада своими руками, обустройство приусадебного участка, навыки обращения с рабочим инструментом, мелкий ремонт, идеи по оформлению интерьераАвгуст 2007Жанр: хоббиФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453730   (93754) от 18.02.2012
-
-VA - Ballads in Blue (1999) [FLAC|Lossless]<Jazz, Vocal Jazz, Jazz ballads>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Melissa Walker - A Time for Love (4:48)
-02.Dusko Goykovich - No Love Without Tears (6:48)
-03.Gust William Tsilis - Evening in Paris (6:40)
-04.Kevin Mahogany - Here's That Rainy Day (5:35)
-05.Bennie Wallace - It's the Talk of the Town (6:21)
-06.Ferenc Snetberger - Szivarvany (4:27)
-07.Jenny Evans - You Go to My Head (5:23)
-08.Karl Ratzer - Farmer's Charm (6:09)
-09.Abdullah Ibrahim - Eleventh Hour (4:22)
-10.Chet Baker - I Fall in Love Too Easily (6:46)1999Жанр: Jazz, Vocal Jazz, Jazz balladsПродолжительность: 00:57:19
 
 ## Скачать торент
 ```bash

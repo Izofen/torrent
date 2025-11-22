@@ -1,3 +1,204 @@
+###  Публикация: 469195   (96867) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 72
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96867.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 72
+Название: Desktop Wallpapers Pack 72
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1920x1080 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48633E7B795982B8995877898438FC0F4F499657
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469549   (96869) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 89
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96869.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 89
+Название: Desktop Wallpapers Pack 89
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D4855959CF304904400ACED07879B69B627B1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469225   (96870) от 17.03.2012
+
+[Wallpapers] Avto Wallpapers Pack 10
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96870.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers Pack 10
+Название: Avto Wallpapers Pack 10
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C479F400A815C6E8997DE7318B6ED18DC263F8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469217   (96871) от 17.03.2012
+
+[Wallpapers] Nature Pictures №24
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96871.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №24
+Название: Nature Pictures №24
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B2C7314608EE5ABC03E04C0A74FAF056F01500
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469455   (96872) от 17.03.2012
+
+VA - TMP : Vanilla Dreams 062 (2012) [MP3|320 kbps]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Radio Edit)
+02. Sean Bay feat. Arabella - Deep Inside (Intro Mix 2011)
+03. Hannah - Falling Away (Armin van Buuren Remix)
+04. Vegas Baby feat. Angelic - For The Love Of You (Tydi Remix)
+05. Snoww & Dj T.H. feat. Di - On & On (Manida Remix)
+06. Michelle Cecchi - One (Original Mix)
+07. NatLife feat. Inesse - Road To The Far East (Asia 2011 Mix)
+08. Spark7 - Sound Of Tommorow (Solid Stone Remix)
+09. Tom Colontonio feat. CiBon - The Sun (Original Mix)
+10. Laura Jansen - Use Somebody (Armin van Buuren Rework)2012Жанр: Vocal TranceПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B27F1D00C06382687101C333BFBF80BFE0BD83C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468497   (96874) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 14
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96874.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 14 
+Название:  Desktop Wallpapers Pack 14 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA395318E05FA2606C98564DE300F1F902AE3AFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468491   (96875) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 12
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96875.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 12 
+Название:  Desktop Wallpapers Pack 12 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE9F4006378F4E354C6A8969C8790214A1FF8D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469497   (96876) от 17.03.2012
 
 [Wallpapers] Nature Pictures №27
@@ -540,219 +741,6 @@ magnet:?xt=urn:btih:1876F8AF9DA9AF30A20E1CAE75F727918621A082
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28577A7AE0F0A78C96BCA631FD2D41307AE8CF4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468930   (96901) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 20
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96901.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 20 
-Название:  Desktop Wallpapers Pack 20 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8EEBFB3A4E349EC9016B0B5F0FDD392CD23044
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468644   (96904) от 17.03.2012
-
-Azaghal - Nemesis (2012) [FLAC|Lossless]<Black Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Masticatione Mortuorum (3:04)
-02. Pohjoisen Valkoinen Kuolema (4:10)
-03. Vihasta ja Veritoista (7:36)
-04. Hail the Whore (5:23)
-05. Ex Nihilo (7:30)
-06. In Deathlike Silence (4:25)
-07. Black Legions of Satan (4:19)
-08. Nemesis (4:42)
-09. The Pit of Shoggoths (6:16)
-10. Satanic Devotion (4:30)Жанр: Black MetalПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469576   (96905) от 17.03.2012
-
-[Wallpapers] Nature Pictures №29
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96905.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №29
-Название: Nature Pictures №29
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D55A98260DF564CDA4E8BDCCA230D4B262ABEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469446   (96906) от 17.03.2012
-
-VA - TMP : Trance Harmony 062 (2012) [MP3|320kbps]<Trance, Uplifting Trance, Dream Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix)
-02. Luke Bond feat. Emel - Amaze (Original Mix)
-03. Vast Vision - Black Shores (Original Mix)
-04. Vincent Voort - Driven
-05. Luca De Maas - E-Motions 2011 (original mix)
-06. Morgan Page feat. Sultan vs. Ned Shepard & BT - In The Air (Hardwell Remix)
-07. Mat Zo - Loop (The Essential Unreleased Mix)
-08. Up & Forward - Prestige (Den Rize pres. Blur8 Remix)
-09. Ummet Ozcan - Reboot (Original Mix)
-10. Ultimate - Wonderland (Original Mix)2012Жанр: Trance, Uplifting Trance, Dream TranceПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9F1E08B77EAE052BE181A24612F540DBD9F723E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467241   (96908) от 17.03.2012
-
-Stephane Grappelli - Pent Up House (1962/1998) [FLAC|Lossless]<Swing>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Django (4:58)
-02. Nuages (4:28)
-03. Alabamy Bound (3:34)
-04. You'd Better Go Now (2:55)
-05. Le Tien (3:24)
-06. Like Someone In Love (3:38)
-07. Minor Swing (4:04)
-08. Daphane (3:22)
-09. Soft Winds (3:43)
-10. Makin' Whooppee (3:33)(   Читать дальше...   )1962/1998Жанр: SwingПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469100   (96911) от 17.03.2012
-
-Scarlet Haze - One Bad Bitch (2012) [MP3|~245 кб/с (V0)]<Gothic Metal,Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blame It On You
- 02. Can’t Get Enuff
- 03. There’s The Door
- 04. One Bad Bitch
- 05. Hero
- 06. Oxygen
- 07. Reach Down (feat. Ron Thal of Guns N’ Roses)
- 08. King of Loneliness
- 09. Sorry
- 10. Suffocating(   Читать дальше...   )2012Жанр: Gothic Metal,Progressive MetalПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D30E187F0C70E4E663A959EDB9491C0D13B5CF0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469035   (96912) от 17.03.2012
-
-Эллери Квин | Трагедия Игрек [2009] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Друри Лейн
-Оригинальное название:2009Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D72AD143D1820431FA3607559E848D400D8FB26C
 ```
 
 

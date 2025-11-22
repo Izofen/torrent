@@ -1,3 +1,57 @@
+###  Публикация: 1778084   (70870) от 08.02.2025
+
+Free Wheeling Blues - Train Ain't Gonna Stop (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hammer & Nails (3:21)
+02.  3 Flies (4:48)
+03.  Don't Waste a Grown Man's Time (5:02)
+04.  Waiting on the Weather (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E070A30E1AA90E7FD4CF7FBF8804E95244D0ED0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778286   (70871) от 08.02.2025
+
+Tom & His Free Mockingbirds - All Shades of Blues & Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pazzy Blu - Blues for King (3:06)
+02.  Remii - Our 12-Bar Blues Too (4:55)
+03.  Raelle Grace - Dream Big Ellington Inspired (4:22)
+04.  Remii - Wizards of Blues (4:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40692D83EFD07DC271CB743D47E0227E3C48EE6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778300   (70872) от 08.02.2025
 
 Max Greger und sein Orchester - Sax In Love (1992) Polydor [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Big Band, Easy Listening>
@@ -622,58 +676,6 @@ magnet:?xt=urn:btih:96FFF77D08410F096426D6FFFD648ABF29FE75A4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:263B1E179B58DD055B8484A7E326F80DAF18217D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778269   (70896) от 08.02.2025
-
-Slinky Vagabond - The Eternal Return (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ava Cherry - Lady Bump Discotheque (3:58)
-02.  Mike Garson - Ad Astra (3:50)
-03.  Icarus Falls (4:48)
-04.  Roller Coaster Ride (3:32)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0124C16EA21F99FA83392A08F663020BF3F13F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778315   (70897) от 08.02.2025
-
-Дино Буццати | Невероятное нашествие медведей на Сицилию (2023) [MP3, Данила Чванов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такую сказку можно и нужно читать даже взрослым. Она о том, как на Сицилии голодные медведи спустились с гор в долину и начали воевать с людьми. Или так: эта сказка о том, как, сталкиваясь с человеком, даже медведь не может устоять перед искушением властью, обманом и наживой.
-Эту книгу-аллегорию, одновременно политическую и поэтическую, написал больше 70 лет назад (   Читать дальше...   )Жанр: зарубежные детские книги, сказки, сказки-притчи, современные сказкиПеревод: Геннадий Киселёв, Мария Иванова-АннинскаяИздательство: СамокатПродолжительность: 01:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6F45363D95A3AD791F2ED16C80B1504ED949B0
 ```
 
 

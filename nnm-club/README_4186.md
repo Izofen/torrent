@@ -1,3 +1,186 @@
+###  Публикация: 1683351   (128526) от 10.12.2023
+
+Наша банда. Десять лет / Our Gang. Ten Years Old (1927) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128526.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Джо день рожденья - 10 лет. Можно сказать юбилей. Конечно он пригласил в гости всю банду и старательно готовится к приему. Но тут накладочка вышла - у Джекки тоже день рожденья. И он тоже пригласил всех пацанов. Что же им разорваться? Но решение нашлось очень простое - объеденить вечеринки в одну. И это обещает быть интересным, уж больно разные семьи у виновников (   Читать дальше...   )Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, семейный, немое киноРежиссер: Роберт А. МакГоунАктеры: Джо Кобб, Джеки Кондон, Аллен ’Фарина’ Хоскинс, Джэнни Хоскинс, Милдред Корнман, Скутер Лоури, Джей Р. Смит, Клифтон Янг, Джонни Эбер, Jimmy BoudwinПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE935CD462A76022404DD274E736508F4EA051E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683354   (128527) от 10.12.2023
+
+Tyrants - Beyond The Horizon (2023) EP [FLAC|Lossless|image + .cue] <Black Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven Attack 05:37
+02. Black Star 04:28
+03. March of Darkness 04:28
+04. Dark Monument 05:27(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FFDD2A557D98DA0ABBE6393520A28F7078F148
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683125   (128528) от 10.12.2023
+
+Хаме-леон - Крики! (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Утро Мёртвых 1:09
+02. Бежать! 4:43
+03. Навигатор 6:34
+04. Я Знаю Имя 5:19(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:915EEBADE415007EAD86379FC44088D492490093
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683383   (128529) от 10.12.2023
+
+Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Млекопитательница» (2015) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акафист Пресвятой Богородице в честь иконы Ее «Млекопитательница».Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE36D0FC17F11B7D5D98625345D4BE313DEFE36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683140   (128530) от 10.12.2023
+
+Supuration - Incubation (2003) [APE|Lossless|image + .cue] <Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Confusion (November)
+02. The Old Mirror (December)
+03. Incubation (January)
+04. The Nameless Boys (February)(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A1B4CC1A2D28DE3454A28C5BC6874D070E5380
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683180   (128531) от 10.12.2023
+
+Dave Kelly - Sun On My Face (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Do It, Let's Fall In Love (4:03)
+02. Lovin' Arms (4:16)
+03. Sun On My Face (3:32)
+04. Georgia On My Mind (4:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD064D23255E34EC2AD9E56A5CA957B73CD47A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683369   (128532) от 10.12.2023
+
+Polkadot Cadaver - Echoes Across The Hellscape (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-Garde Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Emotional Creatures
+02 – Where Do I Belong
+03 – Godless Noise
+04 – A Dog Without Water(   Читать дальше...   )Жанр: Avant-Garde MetalПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E033DA3276C7AF2A60AAECCFA7C232BA7D52EE16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683389   (128533) от 10.12.2023
 
 Благовест | Акафист святой преподобномученице великой княгине Елисавете (2022) [PDF]
@@ -491,192 +674,6 @@ magnet:?xt=urn:btih:0DBF64D4866689EAB0D02D63D55148A1A5A9ECD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29BA2CBF48AFA9C9B7EF31AD32DD023145BE6DC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683207   (128552) от 10.12.2023
-
-Revlin Project - Beyond The Dreams (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harder, Faster (3:18)
-02. Fighters, Dreamers! (4:07)
-03. The World Beyond Your Eyes (5:04)
-04. Where Are You Now (3:58)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9511578A92F0E556662FBBD7CA4701F0E0E7BADB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683178   (128553) от 10.12.2023
-
-Blacksilver - Blacksilver (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life in a Bubble (4:36)
-02. Whiskey and Beer (4:08)
-03. Sweet Lady (5:37)
-04. Beautiful (6:31)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E727318E8FC86BF085A9F86F65C39B8A46123381
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683214   (128554) от 10.12.2023
-
-Terri Lyne Carrington - Money Jungle: Provocative In Blue (2013) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money Jungle [6:21]
-02. Fleurette Africain [5:57]
-03. Backward Country Boy Blues [6:01]
-04. Very Special [4:11](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Jazz FusionПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE0315A946F64F0ED0B666CBB33FE7B421EE687
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683386   (128555) от 10.12.2023
-
-Благовест | Акафист Пресвятой Богородице в честь иконы Ее «Неувядаемый Цвет» (2019) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акафист Пресвятой Богородице в честь иконы Ее «Неувядаемый Цвет».Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B7DB2D2A3530B34A539054BB6997A603ACEF63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683127   (128556) от 10.12.2023
-
-Crazer - ФАКты (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Мы сами
-02.	ФАКты
-03.	Волшебный сад
-04.	Светом или тьмой(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0545AF17B3E8F7692C2EA37F0DD4BB3D416B42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683123   (128557) от 10.12.2023
-
-Rubicon - Aliapolis (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Aliapolis
-02 District Of The Black Flame
-03 No Place To Run
-04 The Show(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:320416B29E4D7026BFAAB0FAB8F315013561702B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683212   (128558) от 10.12.2023
-
-Lisa Hilton - Paradise Cove (2022) Ruby Slippers Productions [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_128558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birks' Works [4:14]
-02. Fast Time Blues [3:54]
-03. Blues Vagabond [4:58]
-04. Another Simple Sunday with You [6:29](   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18459E336D4E663D71969075CDCCACD2EA12DEB4
 ```
 
 

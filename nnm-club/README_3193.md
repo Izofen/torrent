@@ -1,3 +1,188 @@
+###  Публикация: 1764612   (102702) от 07.12.2024
+
+RegCool 2.019 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа редактор системного реестра с простым и удобным интерфейсом в стиле Проводника Windows и несколькими дополнительными возможностями, которые позволяют работать быстрее и эффективнее выполнять задачи, связанные с обслуживанием реестра. При этом, главное отличие от штатного RegEdit это возможность сравнивания двух реестров с показом всех отличий между ними. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:253BA2AB099B730910F541C1E4A05C49FDCB4C77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764395   (102703) от 07.12.2024
+
+Moby - always centered at night - remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Electronic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - should sleep (Prins Thomas diskomix) [5:20]
+02 - precious mind (cassette remix) [5:05]
+03 - dark days (Vanco remix) [6:46]
+04 - dark days (Undercatt remix) [4:30](   Читать дальше...   )Жанр: Downtempo, Ambient, ElectronicПродолжительность: 05:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B3836AB9D2D25EE5DA6D7EB689CFA03F810618
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764362   (102704) от 07.12.2024
+
+Thievery Corporation - Best (1996-2018) [MP3|320 Kbps] <Duby Downtempo, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amerimacka
+02. Take My Soul
+03. Tomorrow
+04. Stargazer(   Читать дальше...   )Жанр: Duby Downtempo, Electronic, Trip-HopПродолжительность: 04:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C38EACF67EBF33EF778337B45BE94DB1949427
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764427   (102705) от 07.12.2024
+
+Антон Чехов | Сборник радиопостановок (Часть 5). (2017) [MP3, Т. Пельтцер, Т. Васильева и др]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102705.jpg" />
+</div>
+
+
+###  Подробнее
+
+— А вы, я слышал, женитесь! — обратился к Петру Петровичу Милкину на дачном балу один из его знакомых. — Когда же мальчишник справлять будете?
+— Откуда вы взяли, что я женюсь? — вспыхнул Милкин. — Какой это дурак вам сказал?
+— Все говорят, да и по всему видно… Нечего скрытничать, батенька… Вы думаете, что нам ничего не известно, а мы вас насквозь видим и знаем! Хе-хе-хе… (   Читать дальше...   )Жанр: Радиопостановка, Классическая прозаИздательство: Театр у микрофонаПродолжительность: 01:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B422E38C330132188866C92F176F700E3FA46B90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764521   (102706) от 07.12.2024
+
+VA - Ibiza Winter 2025 (Deep-House Smoothies from the Heart) (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steen Thottrup & Eva Scolaro - Deeper Love (Calmabohain Remix) [03:22]
+02. Nykoluke - Summer '04 [02:23]
+03. Seumas Norv - Baby (Radio Edit) [03:11]
+04. Kay Portman - Deep Down [03:02](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659F0883A8A61E3DFA9311B384339AA859051FFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764551   (102707) от 07.12.2024
+
+Instrumental Jazz Musica Ambiental - Hot Jazz Lounge: Sexy Moments with Erotic Jazz (2023) 2024 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexy & Noir (3:29)
+02. Music for Quiet Moments (4:28)
+03. Jazz Mood – Erotic Dance (4:03)
+04. Sentimental Sounds (3:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74587E7FCDB07085AE7159DD824DAD9E0324F155
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764478   (102708) от 07.12.2024
+
+VA - Christmas Dance Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JLUIS - Parachute (02:48)
+02. Rene Rodrigezz, Basslovers United & Dan Winter - Wherever You Go (02:17)
+03. Stephan F & Ya-Ya - No Broken Heart (03:09)
+04. Dropix DJ - Far in Love (02:34)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5C54E61910ECDA845E0F72F2DA4936E3372B61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764508   (102709) от 07.12.2024
 
 VA - Christmas Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -483,192 +668,6 @@ magnet:?xt=urn:btih:0E7EFE6463D18FA901A93DE841A0CBCB8EEF6F9C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAE32A0404F5FBCB6F7EE63EB35FB7F3BCC0192A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764273   (102728) от 06.12.2024
-
-Мишени / Targets (1968) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102728.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом фильме две сюжетные линии, которые развиваются параллельно и независимо. Но это только на время... Известный всем актёр, который решил закончить сценическую карьеру, и молодой человек, весьма уравновешенный и благополучный, на первый взгляд. Что же между ними общего? И какова будет причина их встречи в финале?... Фильм снят по мотивам дела Чарльза Уитмена, (   Читать дальше...   )Производство: США / Saticoy ProductionsЖанр: драма, криминал, триллерРежиссер: Питер БогдановичАктеры: Тим О`Келли, Борис Карлофф, Артур Петерсон, Монте Лэндис, Нэнси Хсю, Питер Богданович, Даниэль Адес, Джеймс Браун, Стэффорд Морган, Мэри ДжексонПеревод: профессиональный многоголосый, профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366FF133160E1FAD59BA1C9908FD5AD483A40F5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764312   (102729) от 06.12.2024
-
-Феникс - Мы не доживем до рая (2014) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Отрекись
-02 - Мы не доживем до рая
-03 - Тишина
-04 - На арене(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD13B84B01E7A469CE2AB8B7F9E066E679BBDB5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764259   (102730) от 06.12.2024
-
-VA - Anjunadeep The Yearbook 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CRi - Dark In This Room (Original Mix) (04:12)
-02. Qrion - Miyanosawa (Extended Mix) (05:42)
-03. Steven Weston & Ormella - Give Me Something (Extended Mix) (06:11)
-04. Romain Garcia - Digital Diva (Extended Mix) (06:15)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279D2E7980A59C4C4CB7EC2EB97BE9DBE91EE11F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764265   (102731) от 06.12.2024
-
-VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristiano Cento & Panico - Smooth Criminal (Panico Extended Remix) (05:24)
-02. Francesco Castelli, Paolo Lofrè & Alicia Wilkson - Bang Bang (Radio Edit) (04:03)
-03. Shock Mama - Let's Party (Euro Mix) (05:23)
-04. Fabio Pazzaglia, RaFF T & Gabriel - Summer Jam (Radio Edit) (03:13)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 03:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:094EB9626B85C6BAE54DE8CED399F7C6A79B6CB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763942   (102732) от 06.12.2024
-
-Maleficium Arungquilta - Искусство драм (2010) [FLAC|Lossless|image + .cue] <Dark Metal, Gothic Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Акт разврата
-02. Ангелы в слезах
-03. Пропасть
-04. Искусство драм(   Читать дальше...   )Жанр: Dark Metal, Gothic Metal, Symphonic MetalПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:515984102BD0B03004FB817BB0A91137EE0F697B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764195   (102733) от 06.12.2024
-
-Voodoo Angel - Midnight Rouge (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're Still Alive
-02. When Life Passes You By
-03. Broken
-04. It's Gonna Hurt(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B23D2ED180EA22BDD31E2215BEF8931F00CF73A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764325   (102734) от 06.12.2024
-
-Торба-на-Круче - Части света (2014) [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прометей
-02. Река
-03. Космос впереди
-04. Драконы(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63B329997C912FC649BC89D7819923EB78276DF
 ```
 
 

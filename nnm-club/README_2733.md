@@ -1,3 +1,54 @@
+###  Публикация: 1771899   (71806) от 08.01.2025
+
+John Skelley - Dusk 'Til Dawn (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dusk 'Til Dawn Blues (3:29)
+02.  Midnight Confessions (4:41)
+03.  River's Edge Blues (3:58)
+04.  Ladies Man (4:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5708763E06A1A105D4D50D458953AA70364F1FC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771894   (71807) от 08.01.2025
+
+Федор Достоевский | Идиот (2009) [MP3, Александр Васильев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федор Михайлович Достоевский – великий русский классик и психолог. В его произведениях неподражаемо реалистично раскрываются ключевые стереотипные характеры общества. Видимо, это общество не только русское, ибо не имел бы всемирного признания гений Достоевского. В романе, пятом по счету написания, Федор Михайлович представляет читателю своеобразное видение явления (   Читать дальше...   )Жанр: Русская классика, романИздательство: Вира-МПродолжительность: 25:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF4BDFC2A386A211226C192A48BDCA3548DB206
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771855   (71808) от 08.01.2025
 
 VA - Disco Down The Best of 2022 (2022) [MP3|320 Kbps] <House, Nu-Disco, Electro>
@@ -608,60 +659,6 @@ magnet:?xt=urn:btih:1B265264BBD237C2ED65652DED2BD123D54FDB89
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E67A4F9862CA7D9F497F5593F7EAC44625C67BF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771684   (71832) от 07.01.2025
-
-Singlets Labarca - Foggy River (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bells of Freedom Ringing (2:16)
-02.  Foggy River (2:46)
-03.  Down Where the Tears Are Flowin (2:22)
-04.  Feeling Lost in a Maze (2:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0784F4573B2341DDE835D27F22AFBB9FF4EF1FC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771682   (71833) от 07.01.2025
-
-MC BabaYaga - Leader’s Flame (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Leader’s Flame (3:47)
-02.  Divide to Conquer (4:00)
-03.  Fuel the Spirit (4:00)
-04.  Master the Ground (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:385A8A7877AF3D0149B86C39D8C4DDD5846B23D0
 ```
 
 

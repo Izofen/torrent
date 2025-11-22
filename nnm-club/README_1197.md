@@ -1,3 +1,57 @@
+###  Публикация: 1772122   (31475) от 09.01.2025
+
+My Arrival - Lost 3mbers (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Mind Caves (02:05)
+ 02 - Alone (04:41)
+ 03 - Sleep of No Dreaming (04:29)
+ 04 - Rock (05:50)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CC2A61658E4044A95484CE73B277ECA4926D726
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771902   (31476) от 09.01.2025
+
+Iskald - Innhostinga (2018) [FLAC|Lossless|image + .cue] <Melodic Black Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Atrocious Horror 04:41
+02. No Amen 04:36
+03. Offer av livet 05:38
+04. Even Dawn Drew Twilight 06:09(   Читать дальше...   )Жанр: Melodic Black Thrash MetalПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2708DA6EB886A99255C47D6CA75AD41126B68F7B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772082   (31477) от 09.01.2025
 
 Anita O'Day - Cool Heat: Anita O'Day Sings Jimmy Giuffre Arrangements (1959) 1998, Verve [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -585,54 +639,6 @@ Mullet MadJack - это динамичный шутер от первого ли
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:756E58558F4AEFCA99E65C1DE4C3A59E96E0C967
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771982   (31501) от 09.01.2025
-
-Clipboard Master 5.8.3.0 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clipboard Master — удобный и всеобъемлющий инструмент для копирования и вставки текста и изображений практически во все программы Windows. С помощью бесплатной программы Clipboard Master вы можете копировать, вставлять, собирать, упорядочивать и хранить не только текст, но и изображения, файлы и папки. Он работает во всех программах Windows. Обладает широкой функциональностью, (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A662226DFA468F84D6EA152EE0CAA7E301819A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772067   (31502) от 09.01.2025
-
-PowerISO 9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Запись, создание, редактирование, эмуляция дисков и образов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_31502.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerISO - программа позволяет создавать, конвертировать, распаковывать, сжимать, редактировать и шифровать образы CD/DVD, а также открывать их с помощью встроенного эмулятора. В PowerISO используется технология компрессии-декомпрессии в реальном времени файлов образов с расширением DAA, что существенно уменьшает размеры файлов образов. Файлы образы можно резать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D90A292BE0B921D9FAD73026C71284B0D79F390
 ```
 
 

@@ -1,3 +1,186 @@
+###  Публикация: 1705289   (113857) от 08.03.2024
+
+Dan Patlansky - Movin' On (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Velvet Suit (4:28)
+02. Who I Am (5:10)
+03. Humbled (4:56)
+04. Movin’ On (6:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10AAF684575FC3DB0B45573E4E6BBBEE8301C49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705296   (113858) от 08.03.2024
+
+Handsome Jack - A Good Thing (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind It Up (3:39)
+02. Tough Love (3:33)
+03. She Don't Know How to Rock and Roll (3:34)
+04. It's Understood (3:47)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22B93BB315F7E7889ADA74CF63F40355E2431CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705312   (113859) от 08.03.2024
+
+Stephane Grappelli - Just One Of Those Things (1973) 1992, Black Lion [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just One of Those Things [6:39]
+02. Misty [5:25]
+03. More [8:50]
+04. All God's Chillun' Got Rhythm [5:03](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Violin JazzПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C7E4F8D12CB6086F9BE5B333B0EDBE56FBB31D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705309   (113860) от 08.03.2024
+
+Dick Haymes - Till The End Of Time (1940 - 1950) 2CD, 2004, Living Era [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little White Lies [3:16]
+02. Serenade in Blue [3:17]
+03. Long Ago and Far Away [3:26]
+04. Love Letters [2:47](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 02:23:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C0F88FF050FD98A89C5D6D1FCDDE7D9CD19920
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705335   (113861) от 08.03.2024
+
+The End Machine - The Quantum Phase (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Hole Extinction
+02. Silent Winter
+03. Killer Of The Night
+04. Hell Or High Water(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2010D32463107EBE9330F76DB00D503D00C1C02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705458   (113862) от 08.03.2024
+
+Роберт Янг | Девушка-одуванчик (2023) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113862.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Встретив однажды во время прогулки за городом девушку, он и предположить не мог, что она действительно пришла из Будущего, и что это Будущее может стать частью его Прошлого." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:480F7FF35CA8675DDFB551B9B8EADB92AB084F04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705403   (113863) от 08.03.2024
+
+QOwnNotes 24.3.0 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113863.jpg" />
+</div>
+
+
+###  Подробнее
+
+QownNotes – менеджер заметок, позволяющий четко организовать свои заметки, эффективно управлять записями. Удобные функции сортировки, вывода на печать, расшаривания, синхронизации заметок с облачным сервисом. Такая синхронизация позволит открывать и редактировать файлы, например в мобильном устройстве. Записи хранятся в простых текстовых файлах. Есть возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADC141F7E03F3F1998450EBE7D65CCCEBF2A11B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705250   (113864) от 08.03.2024
 
 Dion - Girl Friends (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock, Singer-Songwriter>
@@ -476,182 +659,6 @@ magnet:?xt=urn:btih:FADD0CF9BCC19AE8C62F26B488825F2B0158C9F4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEB3BF312FF5FABA2F00A09D2CDFA3F49158083A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705337   (113883) от 08.03.2024
-
-Norah Jones - Visions (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All This Time
-02. Staring at the Wall
-03. Paradise
-04. Queen of the Sea(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B307CACE4CC030C38B35133012616849F43D77E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705531   (113884) от 08.03.2024
-
-SQL Dynamite 2.5.2.1 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа исследует объекты базы данных различных типов (определяемых пользователем функций, хранимых процедур, триггеров, представлений, таблиц и индексов, внешних и первичных ключей, типов, синонимов, последовательностей, типов) для поиска вхождений искомого текста по их именам и по их содержанию. Поиск можно вести с учетом или без учета регистра.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972FDADBE108B955EF5F6E8228DAFA7FA8E4A361
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705419   (113885) от 08.03.2024
-
-Ariana Grande - eternal sunshine (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. intro (end of the world)
-02. bye
-03. don't wanna break up again
-04. Saturn Returns Interlude(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF64F97FBA3EF56729090EAA664411FE5BDF1D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705433   (113886) от 08.03.2024
-
-Brave Browser 1.63.169 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brave - защищённый веб-браузер на базе Chromium, построенный на принципах блокировки раздражающих объявлений и предотвращения мониторинга активности со стороны навязчивых рекламных трекеров. Насладитесь более быстрым и приятным сёрфингом в Интернете без раздражающих рекламных модулей и навязчивых трекеров, используя привлекательный и интуитивный браузер Brave.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA871DC3D68F54CD348C2B646B335533880D4A9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705372   (113887) от 08.03.2024
-
-Skype 8.114.0.214 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D6E110173CAA727F12250C8E63F9300BB62D9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642059   (113888) от 08.03.2024
-
-Shylmagoghnar - Studio Albums (3 releases) (2014-2023) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Progressive/Melodic Death/Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shylmagoghnar - Progressive/Atmospheric Black Metal from the Netherlands.2014 - Emergence
-2018 - Transience
-2023 - ConvergenceЖанр: Progressive/Melodic Death/Black MetalПродолжительность: 03:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E96C01BB7C71323E289BDAA377CF865809618A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705469   (113889) от 08.03.2024
-
-Opera One 108.0.5067.20 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF6F6B19EBC2470CEA6CBA6CCBE938E5135A4129
 ```
 
 

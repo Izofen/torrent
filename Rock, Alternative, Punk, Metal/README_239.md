@@ -1,3 +1,354 @@
+###  Публикация: 1601079   (152451) от 30.12.2022
+
+Kreator - Maximum Hate (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152451.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hate Uber Alles (Album version)
+2. Strongest Of The Strong (Album version)
+3. 666 World Divided (Markus Ganter mix)
+4. Earth Under The Sword(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF66BE0D0403F9BEFBD9974BB71B6F735F97EDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271256   (152477) от 22.12.2018
+
+Foghat - The Best Of Foghat (1989) Compilation, Reissue, Rhino Records [MP3|320 Kbps] <Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Just Want To Make Love To You
+02. Maybelline
+03. Ride, Ride, Ride
+04. Take It Or Leave It(   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A4CE9394EBA0F0A41DE339162C3A09F91998C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271103   (152505) от 22.12.2018
+
+Phlebotomized - Deformation Of Humanity (2019) [MP3|320 Kbps] <Progressive Death Metal, Avant-garde Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152505.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Premonition (Impending Doom)
+2. Chambre Ardente
+3. Descend To Deviance
+4. Eyes On The Prize(   Читать дальше...   )Жанр: Progressive Death Metal, Avant-garde MetalПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B1D866304BC705B97DE6CE0FBD68DCD543EB0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601082   (152550) от 30.12.2022
+
+Julio Iglesias - Crazy (1994) Reissue, 2015, Sony Music [OGG Vorbis|480 Kbps] <Rock, Soft Rock, Chanson>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy (Album Version)
+02. Let It Be Me
+03. Mammy Blue (Album Version)
+04. Fragile (Album Version)(   Читать дальше...   )Жанр: Rock, Soft Rock, ChansonПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D54D6EEE0BB23B512925D3CE12DDB25D7C66D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086324   (152566) от 24.12.2016
+
+Billy Idol - Happy Holidays (2006) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock, Christmas>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frosty The Snowman (2:28)
+02. Silver Bells (2:43)
+03. Happy Holidays (2:04)
+04. Merry Christmas Baby (4:09)(   Читать дальше...   )Жанр: Rock, Pop Rock, Holiday, Christmas, CoversПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4675A9ADE34A0BC315F5CE7EA35E46338FBFC94A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086319   (152577) от 24.12.2016
+
+Elvis Presley - Ultimate Christmas (2015) Walmart Limited Edition [FLAC|Lossless|image + .cue] <Christmas, Rock & Roll, Pop, Soul, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Christmas (with Martina McBride ) - 2:31
+02. I'll Be Home For Christmas (with Carrie Underwood) - 3:36
+03. Here Comes Santa Claus (Right Down Santa Claus Lane) (with LeAnn Rimes) - 1:58
+04. Santa Claus Is Back In Town (with Wynonna Judd) - 2:26(   Читать дальше...   )Жанр: Rock, Pop, Soul, Pop Rock, Rock & Roll, Christmas, HolidayПродолжительность: 01:24:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A804A8718F31F106A4895916637CE12483CDCBF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968542   (152594) от 24.12.2015
+
+David Gilmour - Greatest Hits (2015) 2CD, Japanese Edition [MP3|320 кб/с] <Progressive rock, Art rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love On The Air
+02. No Way
+03. Out Of The Blue
+04. Short And Sweet(   Читать дальше...   )Жанр: Progressive rock, Art rockПродолжительность: 01:25:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:802D9B529CD149E844A3441721D102F61A1BDFA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601257   (152613) от 30.12.2022
+
+Feuerschwanz - Todsunden (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimme! Gimme! Gimme! [00:03:07]
+02. Twilight of the Thunder God [00:03:45]
+03. The Bad Touch [00:04:16]
+04. Limit [00:03:13](   Читать дальше...   )Жанр: Folk Metal, Power MetalПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18A8F728373913DEA7740651863CF1D2FDCB07C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601210   (152650) от 30.12.2022
+
+Gary Eisenbraun - Stepping Stones (2022) [MP3|320 Kbps] <Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clear The Air (06:31)
+ 02. Telling Me Lies (05:06)
+ 03. (Back To) Square One (05:22)
+ 04. Crying Out Loud (06:32)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE024941BC12CD45097B075307297C9810A9CF9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086321   (152666) от 24.12.2016
+
+Chris Isaak - Christmas (2004) Target Exclusive Limited Edition [FLAC|Lossless|tracks + .cue] <Christmas, Pop Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rudolph The Red-Nosed Reindeer (2:12)
+02. Have Yourself A Merry Little Christmas (3:10)
+03. Santa Claus Is Coming To Town (feat. Stevie Nicks) (2:30)
+04. Washington Square (3:22)(   Читать дальше...   )Жанр: Rock, Pop Rock, Soft Rock, Blues Rock, Rock & Roll, Rockabilly, College Rock, Ballad, Holiday, ChristmasПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8299BFD59823390A300A2892C1CDEFA9341F8552
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601150   (152710) от 30.12.2022
+
+Boudreaux - Fallen Angel (1994) Reissue, 2021, Metallic Blue Records [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road To Nowhere
+02. Fallen Angel
+03. Baby Don't Leave
+04. Without Love(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243D1856F6BFD06EFD1D3C8E8FE751DBB7EB736A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601219   (152770) от 30.12.2022
+
+Monster God - Clouds Of Grey (2022) [MP3|320 Kbps] <Stoner Doom Meatal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (pre) Mortal (01:22)
+ 02. Sorrow (05:52)
+ 03. Infliction (05:16)
+ 04. Dark (04:48)(   Читать дальше...   )Жанр: Stoner Doom MeatalПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:217CEEB6360EE386BDAC6F60DEA892660A614048
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601163   (152806) от 30.12.2022
+
+7 Wishes - Out In The Light (1996) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_152806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crashkids
+02. Look Around
+03. Out On The Road
+04. The Wrong One(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62FA8BA9C2FAE373E9B4B4992484C5639054A90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601249   (152855) от 30.12.2022
 
 Chabtan - Compelle Intrare (2022) [FLAC|Lossless|WEB-DL|tracks] <metalcore, melodic death metal>
@@ -351,357 +702,6 @@ Lacey Sturm (ex Flyleaf) - Kenotic Metanoia (2023) [MP3|320 Kbps] <Alternative R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFAAC92523C78EA22406F0172440051C062C0155
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657759   (153088) от 23.12.2020
-
-Battle Beast - Battle Beast (2013) [FLAC|Lossless]<Heavy Metal, Female Fronted>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Roar
-02. Out Of Control
-03. Out On The Streets
-04. Neuromancer(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D02FD777022F940DFEA403FE2593FF67E092FE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968709   (153089) от 24.12.2015
-
-Мамульки Bend - Coverock (2015) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153089.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ансамбль
-2. Ay
-3. Лимония
-4. Оранжевое настроение(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D268D2746045163A2F1C75690F6FE49893A246B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518784   (153100) от 21.12.2021
-
-Reap The Light - Deliver Hell (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn in Hell (feat. Serouj Guidanian) (05:06)
-02. Fade to Black (feat. Nathalie Astrada) (04:04)
-03. The Reckoning (feat. Jo Down) (04:58)
-04. Deliver Hell (feat. Chris Lion) (05:16)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68900B1739BB23033015107C436559C739284CE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518831   (153123) от 21.12.2021
-
-Parasyche - Sons Of Violence (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Rebellion)
-02. Rebellion
-03. Black Mamba (feat. Aquiles Priester)
-04. Vile Rejection (feat. Diva Satánica & Nidra)(   Читать дальше...   )Жанр: Progressive Heavy Metal, Thrash MetalПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FF06568579DE035B9BFB0E30CCBF37A87D8D5B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677132   (153129) от 16.11.2023
-
-McHale's Permanent Brew - Lesson's from the Darkest Storms (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of Luck (4:44)
-02. Dead Magpie (6:18)
-03. Drowning by Numbers (7:33)
-04. Breaking Smile (4:53)(   Читать дальше...   )Жанр: Classic Rock, BluesПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8411E0CEF88EAFC122568D99D6D693F6D60F0455
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677234   (153219) от 16.11.2023
-
-Apocalyptica - Live In Helsinki St. John's Church (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Neoclassical Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro To The Mind (1:55)
-02. Deathzone (2:47)
-03. Sacra (3:44)
-04. Kaamos (4:20)(   Читать дальше...   )Жанр: Symphonic Metal, Neoclassical MetalПродолжительность: 01:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA646A2B2AE8A1D6B013658B6BEDC1D379172231
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968692   (153305) от 24.12.2015
-
-Ладушка - Солнцекараул (2015) [MP3|320 кб/с] <Folk Metal, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153305.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Солнцекараул
-2. Неба Берега
-3. Друже Кубки
-4. Тихо Пел Горицвет(   Читать дальше...   )Жанр: Folk Metal, Folk RockПродолжительность: 00:29:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08B0B99B6AC07EB9F5B24694FF1DE95087CAFC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677043   (153314) от 16.11.2023
-
-Nita Strauss - The Call of the Void (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Storm 04:31
-02. The Wolf You Feed (feat. Alissa White-Gluz of Arch Enemy) 03:52
-03. Digital Bullets (feat. Chris Motionless of Motionless in White) 03:58
-04. Through The Noise (feat. Lzzy Hale of Halestorm) 03:20(   Читать дальше...   )Жанр: Heavy Metal, Modern MetalПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D41D1C1FB89433F44A6C7A1A64641ABA16F3B156
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677124   (153338) от 16.11.2023
-
-The Flower Kings - Back in the World of Adventures (1995) Reissue, 2003, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Of Adventures
-02. Atomic Prince / Kaleidoscope
-03. Go West Judas
-04. Train To Nowhere(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:11:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888301E47C06651E968E6D50246A8B8065C6AE90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677172   (153368) от 16.11.2023
-
-Signum Regis - Undivided (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel's Prophecy (4:29)
-02. Ministry of Truth (4:49)
-03. Salt of the Earth (4:46)
-04. Interpreter of Dreams (3:34)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:219303EED145CD12D0E0C96352535C08848658DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968630   (153405) от 24.12.2015
-
-Last Autumn’s Dream - Paintings (2015) Japanese Edition [MP3|320 кб/с] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Mistake To Make
-02. Bring Out The Heroes
-03. Out Of Love
-04. Too Late(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95C99095FA5249BE12F2163E9E518E34BE3A75FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347177   (153454) от 22.12.2019
-
-Ozzy Osbourne - The Essential Ozzy Osbourne (2003) 2019 remastered Epic [FLAC 2.0|96/24|tracks|WEB-DL] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Crazy Train [4:53]
- 02 - Mr. Crowley [5:03]
- 03 - I Don't Know (Live 1981) [5:42]
- 04 - Suicide Solution [4:18](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 02:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A01DE2F21AA895A97AE46F9F727B87B75AFCEBFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086057   (153459) от 24.12.2016
-
-E1NS - Вечная мерзлота (2016) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пурга
-02. Потёмкинский острог
-03. Флаг
-04. Север зовет(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99AA6DF3D0948DDE62FEDD42B511891C3CC1BC09
 ```
 
 

@@ -1,3 +1,192 @@
+###  Публикация: 1761966   (102988) от 23.11.2024
+
+Moondive - Dive With Me (2004) [FLAC|Lossless|image + .cue] <Power Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight (0:40)
+02. End The Night (4:25)
+03. Dive With Me (4:06)
+04. Chanceless (4:06)(   Читать дальше...   )Жанр: Power Progressive MetalПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC1978E99AE8BCB7D7CE74E42EBE082F15AA6D3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761900   (102989) от 23.11.2024
+
+Bleed The Sky - Paradigm In Entropy (2005) [FLAC|Lossless|image + .cue] <Metalcore, Melodic Death Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minion 4:11
+02. Killtank 3:37
+03. Paradigm In Entropy 3:34
+04. Skin Un Skin 4:08(   Читать дальше...   )Жанр: Metalcore, Melodic Death Metal, Groove MetalПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE15C1B9A85F214520B486EE5B49DD721337EB25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761965   (102990) от 23.11.2024
+
+Herod - For Whom the Gods Would Destroy (2004) [FLAC|Lossless|image + .cue] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are Those People 04:45
+02. Revelations 05:00
+03. I Will 04:37
+04. A New Hope 05:02(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C755DF5BD252BE2ABB15FD5F2468DD16943647F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761912   (102991) от 23.11.2024
+
+Maggoth - System Error (2011) Ressued, 2017, Defense Records [FLAC|Lossless|image + .cue] <Thrash Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liars 04:21
+02. Brutal Morality 04:17
+03. Lunatic Soldier 04:44
+04. True Falsness 01:47(   Читать дальше...   )Жанр: Thrash Metal, Groove MetalПродолжительность: 00:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:195F2C4393D6F243A2F57D86228135F1A12C927E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761910   (102992) от 23.11.2024
+
+Coldness - Poisoned Gift (2004) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Destroyed the I 03:12
+02. Living a Lie 02:48
+03. That Is All 02:43
+04. None 03:31(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30403D71F1EA01FA000694A3B23F74E5DCD3B9F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761968   (102993) от 23.11.2024
+
+Plague Widow - Plague Widow (2012) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Womb
+03. Mabus Incarnate
+04. Abyss I(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2743DF15621F18DB5861A413462D29F30DB64E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761970   (102994) от 23.11.2024
+
+Psychotomy - Antinomia (2015) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antinomia 01:50
+02. The Worship of Contempt 04:01
+03. Reprieve 03:01
+04. Neglected Entropy 03:43(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E6CBFF67695B43B11BC515C42CC727354D3FF0B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761902   (102995) от 23.11.2024
 
 Carmina - Carmina (2008) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -492,186 +681,6 @@ Big Big Train - The Likes Of Us (2024) [FLAC|Lossless|image + .cue] <Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BD713557488D9C109A7F51DA81042B11E576C97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761939   (103014) от 23.11.2024
-
-Mates of State - Bring It Back (2006) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Hard (4:43)
-02. Think Long (4:23)
-03. Fraud in the ’80s (3:58)
-04. Like U Crazy (4:39)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:340A211B964B501AF965EF1892FCA2DE89CD8ACC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762119   (103015) от 23.11.2024
-
-Silent Winter - Utopia (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103015.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. We Burn The Future
-2. Hellstorm
-3. Hands Held High
-4. Reign Of The Tyrants(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D33AB5CA6E618E4EE9B982C42987EB3D138123
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762028   (103016) от 23.11.2024
-
-Max Lorens - Танцы под луной (2008) [FLAC|Lossless|tracks + .cue] <Hip Hop, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro: Килиманджаро 2:53
-02. Схожу с ума 4:56
-03. Город-Эльдорадо 3:06
-04. Танцы под луной 3:22(   Читать дальше...   )Жанр: Hip Hop, PopПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE6B014D293F4520FC188A78721C1A10E6703B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761951   (103017) от 23.11.2024
-
-Клад рыцаря Милоты / Poklad rytire miloty (1989) Screener [H.264/1080p]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103017.jpg" />
-</div>
-
-
-###  Подробнее
-
-12-летний Индра и его младший брат Томаш становятся участниками поиска преступников, похитивших из средневекового замка уникальную восточную вазу.Производство: Чехословакия / filmové studio GottwaldovЖанр: детектив, приключения, семейныйРежиссер: Юджен Соколовский мл.Актеры: Ярослав Томана, Мариан Глузин, Любор Токош, Кристина Мадерикова, Карел Аугуста, Йозеф Блага, Томаш Чизарик, Камил Коула, Михал Суханек, Бронислав Полочек и др.Перевод: Дублированный (Студия имени Горького)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94EAD89693249B0C0658D6412BC76BEB08BE8CEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762096   (103018) от 23.11.2024
-
-Hamidshax - Compilation Cd 4 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I'm Lost
- 02.  Don't Cheat Me
- 03.  Patience
- 04.  For You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:22:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B105187573964475627857486EEE6C59DE2654D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761945   (103019) от 23.11.2024
-
-GeoGebra 6.0.868.0 Classic + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103019.jpg" />
-</div>
-
-
-###  Подробнее
-
-GeoGebra — мультиплатформенная программное обеспечение для математиков, распространяемое авторами бесплатно, позволяющее открыть новые горизонты понимания геометрии и алгебры, визуализировать сложные выражения, научиться в интерактивной форме понимать, как происходит построение сложных геометрических фигур. Такой симбиоз нескольких наук в едином интерфейсе приложения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF0B213947A78BDBDBC706EDE6BC7AF4970DA9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761957   (103020) от 23.11.2024
-
-Владимир Ивашков | Всё о груди (2024) [MP3, Сергей Двинянинов]
-
->>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что полезно для груди, а что нет, на какие симптомы нужно обращать внимание, а какие состояния не требуют лечения? Как найти баланс между сексуальностью и здоровьем? Как грудь меняется с возрастом, во время беременности и менопаузы? Какие факторы снижают риск рака молочной железы? Вредно ли загорать, носить белье и пользоваться дезодорантом? Этими вопросами задается (   Читать дальше...   )Жанр: Популярно о медицине, Женское здоровьеИздательство: Альпина ПаблишерПродолжительность: 07:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E916B1C31D6015A886116F496C4539A59E58531E
 ```
 
 

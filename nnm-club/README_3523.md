@@ -1,3 +1,183 @@
+###  Публикация: 1715571   (111283) от 18.04.2024
+
+Лёша Закон (Алексей Глухов) и ''Златоглавая Тверь'' - ''Тверь Над Всем Миром'' (2022) [MP3|320 Kbps] <Acoustic, Punk, Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Ждите [00:03:41]
+02-Партак [00:01:41]
+03-Монтировочка [00:02:47]
+04-Хочу [00:02:41](   Читать дальше...   )Жанр: Acoustic, Punk, ChansonПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3CC2452583152C40420149714E866D4BF65553
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717130   (111284) от 18.04.2024
+
+Waterfox Current G6.0.12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Waterfox — это браузер, основанный на исходном коде популярного обозревателя Mozilla Firefox, и предназначенный специально для 64-разрядных операционных систем семейства Windows. Waterfox обладает всеми функциональными возможностями, присущими Firefox, но благодаря наличию оптимизации кода позволяет пользователю добиться более высокой скорости работы веб-браузера. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EB438636CA9E6AED1499B0883F36E581B9B3F2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717105   (111285) от 18.04.2024
+
+Марина Баринова | Криасморский договор (Книга 2). Плата за верность (2022) [MP3, Денис Тимофеев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Власть часто вынуждает тех, кто обличён ею, совершать неблаговидные поступки. Власть меняет человека или заставляет его проявить своё истинное лицо. В империи, где за власть борются духовенство и маги, умирает бездетный правитель, а его вдова странным образом исчезает. Это вызывает массу интриг вокруг возможных претендентов на престол. Лорд Демос, которому поручили (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: 1С-ПаблишингПродолжительность: 16:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491C72C0DA0367699F54BDA389D010CE197A00BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717040   (111286) от 18.04.2024
+
+Joe Sedita - They All Love Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Rita (3:01)
+02. Freeway Drivn (2:28)
+03. Miss Me (2:55)
+04. Part Time Lover (3:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27FA9B19CE270DBD0776E1E6EA280A0B8770C3E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717080   (111287) от 18.04.2024
+
+Bless Her Evil - We Are Mystery... (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Brother The Crow (03:32)
+02 - The Moon Upside Down (04:16)
+03 - Dark Cluster (03:58)
+04 - Life (04:52)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1301FD59D98EEAC7EE75690FA753A332798BB8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717069   (111288) от 18.04.2024
+
+Журнал | Цветы в саду и дома №4 (апрель 2024) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание является приложением к журналу "Приусадебное хозяйство". Каждый номер журнала посвящен либо одному виду растений/кустарников (выбор места посадки, почвосмеси, уход), либо одному виду работ (обрезка), либо элементам садового дизайна.Жанр: ЦветоводствоИздательство: ООО "Приусадебное хозяйство"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FBD63309121D9578600C5B3160017BEF2EDAB55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717044   (111289) от 18.04.2024
+
+Louis Prima & Keely Smith - Live from Las Vegas (1958) 2005, Capitol Records [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them There Eyes/Honeysuckle Rose [4:54]
+02. I've Got You Under My Skin [2:11]
+03. Should I/I Can't Believe That You're in Love with Me [5:55]
+04. Don't Take Your Love from Me [2:54](   Читать дальше...   )Жанр: Swing, Vocal JazzПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBEB2F3C073A1925C9F9CBE2B5F1000218F87403
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717046   (111290) от 18.04.2024
 
 Crimson Train - Crimson Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -495,193 +675,6 @@ Dave McKenna & Gray Sargent - Recorded Live At Maybeck Recital Hall (1993) Conco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:385B146980B5F1DD44DA29D10E2ED5C10AD94C09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716862   (111309) от 17.04.2024
-
-Нашедшиеся / Weergevonden (1914) WEBRip [H.264/720p-LQ]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот еще тема из вечных, порождающая массу драматических коллизий - любовь и религия. Когда Дора, старшая дочь слепого, овдовевшего ортодоксального еврея, влюбляется во врача христианина, ее отец отрекается от нее и изгоняет из дома.
-К сожалению титры к этому фильму не сохранились. Поэтому под спойлером более подробный пересказ сюжетаПроизводство: Нидерланды,  HollandiaЖанр: короткометражный, драма, мелодрама, немое киноРежиссер: Луи Х. ХриспейнАктеры: Луи Х. Хриспейн, Энни де Леуве, Jan van Dommelen, Eugenie Krix, Алекс Бенно, Энни Бос, Christine van Meeteren, Louis van Dommelen, Ansje van Dommelen-Kapper, Lau EzermanПеревод: не требуется (нет диалогов и озвученных комментариев)Субтитры: отсутствуютПродолжительность: 00:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D94FED4194BBB994A23DFE8FFE9B4AE2DC65AE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714636   (111310) от 16.04.2024
-
-Daevar - Amber Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom, Psych>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lilith's Lullaby [00:07:53]
-02. Pay To Pray [00:06:09]
-03. Caliban And The Witch [00:08:15]
-04. Amber Eyes [00:04:01](   Читать дальше...   )Жанр: Stoner, Doom, PsychПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9569F7BF1E48C6628F511C25CC59EE3C650C1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715814   (111311) от 16.04.2024
-
-7000$ (Семь Штук Баксов) - Ярче огней (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Disss [00:03:22]
-02 - До конца своих дней [00:03:42]
-03 - I Need More [00:03:58]
-04 - Обесточен [00:03:38](   Читать дальше...   )Жанр: Alt.Metal, RapcoreПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F384D057E851859CB734BCCE0BEB9FC8A096468B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716535   (111312) от 16.04.2024
-
-VA - Klavier - Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duke Ellington - Take the 'A' Train (Live at the Blue Note Club, Chicago, 1994) [1994 Remix] (3:17)
-02. Ahmad Jamal - Swahililand (4:09)
-03. Freddie Redd - Dawn Mist (2:52)
-04. Phineas Newborn Jr. - Afternoon In Paris (6:46)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DEEC2BE56DDE3AF6BD50894858F8713F6E2DE3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716626   (111313) от 16.04.2024
-
-Erroll Garner - Piano Magic (1940-e - 1950-e) 1999, Hallmark [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Play, Piano, Play [3:15]
-02. Pastel [2:58]
-03. Frankie & Johnny Fantasy [2:57]
-04. Stardust [2:49](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:01:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF484C0ED12D36EFFC9A010A67FD9AE0B947F73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716665   (111314) от 16.04.2024
-
-Kevin & JD - Island Of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bluesin' (2:57)
-02. Hauntcha (3:51)
-03. Bein' Down (Ain't No Place To Be) (3:14)
-04. Island Of Blues (7:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76392E76F3AE7556626A74610CCAF4BC15D2FAB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716628   (111315) от 16.04.2024
-
-Erroll Garner & Billy Taylor - Separate Keyboards (1945, 1949) 1993, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erroll Garner - Cottage for Sale [2:59]
-02. Erroll Garner - Rosalie [3:05]
-03. Erroll Garner - Everything Happens to Me [3:06]
-04. Erroll Garner - Stairway to the Stars [2:51](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 00:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FF7C9847D6FF594CA8271D2F744442FF7FCA8C
 ```
 
 

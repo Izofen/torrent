@@ -1,3 +1,214 @@
+###  Публикация: 476086   (98310) от 01.04.2012
+
+Continuo Renacer - The Great Escape (2011) [MP3|320 кб/с]<Progressive Technical Death / Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98310.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Great Scape[06:38]
+ 2. Give Up Tomorrow [06:42]
+ 3. For Those Things To Come [06:51]
+ 4. Facing Fears [05:37]
+ 5. The Newborn [15:12]2011Жанр: Progressive Technical Death / JazzПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D5E572B2F7330351BF705B9FD6EC3BB51DB4FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476443   (98312) от 01.04.2012
+
+Авто плюс - Наши тесты / Volkswagen Passat Alltrack (2012) IPTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98312.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Наши тесты" - это знакомство с новым, как правило еще не появившимся на рынке автомобилем. Только комплексный тест на полигоне и дорогах общего пользования способен выявить все преимущества и недостатки автомобиля. Ведущие сами испытывают новинку, моделируя всевозможные ситуации, от спортивных заездов до серьезного бездорожья.Жанр: ТелепередачаПродолжительность: 00:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E9DCAC6BC80C33E0329CF68676668B37E014514
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475978   (98313) от 01.04.2012
+
+Destruction - Best Of (1992) [MP3|320 кб/с]<Thrash Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98313.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность:01:08:38
+01 - Intro (1:15)
+02 - Total Desaster
+03 - Mad Butcher
+04 - Devil's Soldiers
+05 - Invincible Force
+06 - Death Trap
+07 - The Ritual
+08 - Tormentor(   Читать дальше...   )1992Жанр: Thrash MetalПродолжительность: 02:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C54B97E9B1F5B997B2E3A81C07A574F9A55AFD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476132   (98314) от 01.04.2012
+
+Burzum - Umskiptar (2012) [MP3|192 кб/с]<Black Metal, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blóðstokkinn (Soaked in Blood) (1:10)
+02. Jóln (Deities) (5:47)
+03. Alfadanz (Elven Dance) (9:18)
+04. Hit helga Tré (The sacred Tree) (6:48)
+05. Æra (Honour) (3:55)
+06. Heiðr (Esteem) (2:57)
+07. Valgaldr (Song of the Fallen) (7:58)
+08. Galgviðr (Gallow Forest) (7:13)
+09. Surtr Sunnan (Black from the South) (4:12)
+10. Gullaldr (Golden Age) (10:15)(   Читать дальше...   )2012Жанр: Black Metal, AmbientПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68DDD8DBB695DB75DF541DAAE2707EFBDBEE2721
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476572   (98317) от 01.04.2012
+
+VA - Klubnye novinki Vol.58 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulsar - I Wish You All Happiness
+02. Feu d'Or - Chasin Joe (Original Mix)
+03. Electric Rescue - Helice (Original Mix)
+04. idenline - You & Me (Original Mix)
+05. ESC - Oceans (Original Mix)
+06. Marcos - Hypnotic (Original Mix)
+07. DJ Feel feat. Loona - I'll Find Myself (Mike Danis Remix)
+08. Rihanna - Where Have You Been (Cosmic Dawn Club Mix)
+09. Rank 1 & Jochen Miller feat. Sarah Bettens - Wild & Perfect Day (Cosmic Gate Remix)
+10. Da Fresh & Andrea Roma - No Sun (Original Club Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5769EB2853CDDDDF3FB6A2BF514D55C9587F37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476706   (98321) от 01.04.2012
+
+VA - Head Over Dancing (27.03.2012) [MP3|~200-320 кб/с]<Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ricky Rinaldi Feat. Susan Blake - Hypocrisy (Demolition House Mix) 05:59
+02. Daniel Bob - Panther 05:35
+03. Coldbeat - Evil Toy Box (Slam Da Toy Mix) 05:29
+04. Dr Kucho & Zenbi - Echale Candela (Dj Kone & Marc Palacios Remix) 06:36
+05. Ron Hall & Thommy Davis - Fugue in Baltimore (Original Mix) 06:34
+06. MR Fire Feat Big Diddo - I Need More Music (Radio Edit) 03:18
+07. Jay Marks - Oh Baby (Joe Pompeo Remix) 06:09
+08. Francesco Tarantini - Cantor (Original Mix) 08:41
+09. J Paul Getto - Booty (Original Mix) Inhouse 05:10
+10. The Wisemen Feat. Johan Greaves - Stay the Same (Shoe Print Instrumental) 08:42(   Читать дальше...   )27.03.2012Жанр: Dance, HouseПродолжительность: 03:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3878ED0CF877911E9E251B176EC2E43FB0C81170
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476602   (98322) от 01.04.2012
+
+Роман / The Romance (2006) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Под звуки страстного танго перед нами разворачивается трагическая история о любви и власти. Любовь, смерть, власть денег и сила положения - что правит этим миром?..
+ Жила на свете прекрасная девушка по имени Юн Хи, которая любила танцевать и любила жизнь. Но в один день всё рухнуло - она стала женой рвущегося к власти беспринципного безумца, вымещающего свои комплексы на Юн Хи. И каждый день для неё стал мучительной пыткой.
+ А ещё на свете жил бесстрашный борец за справедливость - полицейский детектив Ким Хён Чжун, жизнь с которым не выдержала его супруга и ушла, прихватив с собой сына. Ён Чжун был сломлен, и потому бросился во все тяжкие. Жизнь для него потеряла всякий смысл и превратилась в лохмотья.
+ "Любовь придёт, когда её уже совсем не ждут"... Самая тёмная ночь - перед рассветом, этим рассветом для Хён Чжуна и Юн Хи стала их случайная встреча. Порой, даже единственного мимолётного взгляда достаточно, чтобы он навсегда запомнился сердцу... Но судьба - коварна, и отныне неумолимый отсчёт времени, отпущенного (   Читать дальше...   )Жанр: Драма, КриминалРежиссер: Мун Сюн-Ук / Mun Seung-WukАктеры: Чу-бон Джи, Чан Янг, Яе-хьон Джо, Чжи-Су Ким...Перевод: Двуголосый закадровыйПродолжительность: 01:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C58AE5B0F0FEBD6D19C8916EC849DDB2D41376
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476600   (98323) от 01.04.2012
 
 [Ukr/Ru] Украина имеет талант - 4 / Україна має талант - 4 (2012) SATRip (вып.-4)
@@ -510,205 +721,6 @@ Melanie Fiona - The MF Life (Deluxe Edition) (2012) [MP3|320 кб/с]<Soul, Hip-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D7D3917D5B71438900022157B536E62359DD825
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475535   (98376) от 01.04.2012
-
-Товарищ Дон Камилло / Il compagno Don Camillo (1965) [1080p] BDRemux
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о поездке в СССР делегации итальянских коммунистов, в которую, естественно, затесался и переодевшийся в мирское платье дон Камилло.Жанр: комедияРежиссер: Луиджи КоменчиниАктеры: Фернандель, Джино Черви, Леда Глория, Джанни Гарко, Саро Урци, Грациэлла Граната, Пауль Мюллер, Марко Тулли, Жак Эрлен, Силла БеттиниПеревод: Многоголосый закадровыйПродолжительность: 01:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0973C1B393F283B606D749E56010807C01F9715E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477429   (98378) от 02.04.2012
-
-VA - Perfect Together Dreams (2012) [MP3|320 кб/с]<Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabiani - Classic Sequence (Original Mix) 06:31
-02. Craig Connelly - Robot Wars (Original Mix) 06:49
-03. Senadee - Life Support Machine (Original Mix) 04:16
-04. Smart Apes - Phobia (Original Mix) 07:07
-05. Timur Shafiev - Together Original Mix 08:03
-06. Paul Miller - classically (original mix) 07:06
-07. S.Y.S. - Weiber (Original Mix) 07:27
-08. Phil Wilde & Toby Traxx - redemption (radio edit) 03:26
-09. Timur Shafiev - Seductive Movement (Original Mix) 07:24
-10. The Stunning Sound - My Dreams (First Version) 08:42(   Читать дальше...   )2012Жанр: Trance, Progressive TranceПродолжительность: 02:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B6F54A34A00071D4EC7AE3C3C891DACA94CFE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477168   (98379) от 02.04.2012
-
-[Wallpapers] Best HD Wallpapers Pack (02.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87C234BF34E792B22BFA2F93C83665D915BD63F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477300   (98381) от 02.04.2012
-
-Adam Beyer - Drumcode 080 - 087 (2012) [MP3|256 кб/с]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arjun Vagale & Tim Richards - Tonkatsu (Original Mix)
- 02. Kaiserdisco - Aymara (Original Mix)
- 03. Denis Horvat - She Never Reach The Climax (Arjun Vagale Remix)
- 04. Remerc - Pacchioni (Original Mix)
- 05. Yooj - Mademoiselle (Original Mix)
- 06. Maher Daniel & Casa - Malgra (Kaiserdisco Remix)
- 07. Nicole Moudaber - Im A Gansta (Alli Borem Remix)
- 08. D.Diggler & Franksen - Morning Blue
- 09. Dave Brody - Blood (Original Mix)
-10. Edgar De Ramon - 7UP (Original Mix)(   Читать дальше...   )2012Жанр: TechnoПродолжительность: 07:29:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF3C352502BE3A488C69927068E9E2497AA26C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477218   (98382) от 02.04.2012
-
-Bejelit - Emerge (2012) [MP3|320 кб/с]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98382.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Darkest Hour
-2. C4
-3. Don't Know What You Need
-4. Emerge
-5. We Got The Tragedy
-6. To forget And To Forgive
-7. Dancerous
-8. Triskelion
-9. Fairy Gate
-10. The Defending Dreams Battle(   Читать дальше...   )2012Жанр: Power MetalПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD3DDB2F515437A66D64FE48867A5F319DECFC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476084   (98385) от 02.04.2012
-
-Eastwood - North-Eastern Massive (2012) [MP3|320 кб/с]<Atmospheric Dark / Post-Metal / Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 summer breathe (6:38)
- 02 breakwater sleep (6:15)
- 03 pillars of ashes (8:25)
- 04 firing the burning woods (9:01)
- 05 terra incognita (7:38)2012Жанр: Atmospheric Dark / Post-Metal / ExperimentalПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21241963B40A2A893C454F398834219C76992E8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476705   (98387) от 02.04.2012
-
-Огонь любви (2007) SATRip (21-50 серия из 304)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня Светлана несправедливо обвинена в умышленном поджоге автомастерской, где во время пожара погиб ее отец. За это Света попадает в тюрьму и выходит из нее через три года.Жанр: МелодрамаРежиссер: Андрей Комков, Константин Серов, Раду Крихан, Максим Мокрушев, Анатолий ГазиевАктеры: Елена Левкович, Михаил Химичев, Екатерина Соломатина, Илья Соколовский, Степан Старчиков, Анна Исайкина, Игорь Воробьев, Эвелина Бледанс, Любовь Руденко, Валерий Афанасьев, Александр Макаров, Андрей Лавров, Ксения Виват, Марина Чижевская, Евгений Березовский, Валерия Забегаева, Михаил Станкевич, Максим Житник, Андрей Межулис, Екатерина Приморская, Тамара СпиричеваПродолжительность: 30х ~00:43:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 

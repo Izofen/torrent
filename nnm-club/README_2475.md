@@ -1,3 +1,57 @@
+###  Публикация: 1807716   (65098) от 20.07.2025
+
+Tomas Jo´ Group - Be A Little Kind (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Two Time My Lovin' (4:10)
+02.  Let Me Free (4:36)
+03.  Blues Ain't Noting But A Good Woman On Your Mind (3:47)
+04.  Be A Little Kind (2:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E56ED7BF9C39FE020B171642BC660218E4D08CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807732   (65099) от 20.07.2025
+
+We Are Scientists - Qualifying Miles (2025) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65099.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Prelude To What [00:05:29]
+2. Starry-Eyed [00:03:52]
+3. Dead Letters [00:03:49]
+4. The Big One [00:02:58](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B56063BE750092C94A1BE522BEF9FDCBF87E9BBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807753   (65100) от 20.07.2025
 
 Asphodelus - Sculpting from Time (2023) [MP3|320 Kbps] <Doom, Death Metal>
@@ -609,56 +663,6 @@ magnet:?xt=urn:btih:DC57B6C65C6278922FC27A1B888100F8382128A3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:700DABDC633EC6765384F8E307532465890F2459
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807661   (65124) от 20.07.2025
-
-Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation | Альтернативная игра богов | Игровое гиперпространство Нептунии [2019, OVA, 3 из 3] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четыре богини вместе со своими сёстрами встречаются на знаменитом горном курорте в королевстве Ластейшн. Но в самый разгар отдыха младших сестёр уносит в портал, который ведёт в параллельную вселенную.Производство: Okuruto Noboru / オクルトノボルЖанр: приключения, фэнтези, комедия, фантастика, махо-сёдзёРежиссер: Мукай МасахироПеревод: RinaIchigo & SpiderDanger (эп. 01-03), warqsize (эп. 01), Serious Livsi (эп. 02, 03)Язык озвучки: японскийСубтитры: русскиеПродолжительность: 3 эп. по 30 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D149FB2155ABCBF5281E2FB79EBEF10ABC23E2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807807   (65125) от 20.07.2025
-
-Шрифты - MyFonts - SkyWing [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современный округлый шрифт, вдохновлённый японскими консольными компьютерными играми.
-
-Кириллица не поддерживаетсяФормат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A459FD397BCF240C4345A270D3A126131A97D276
 ```
 
 

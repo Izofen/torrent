@@ -1,3 +1,57 @@
+###  Публикация: 1662671   (187437) от 19.09.2023
+
+The Who - Who’s Next : Life House (Super Deluxe) (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187437.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01
+01. Baba O'Riley (Remastered 2022) [5:04]
+02. Bargain (Remastered 2022) [5:35]
+03. Love Ain't For Keeping (Remastered 2022) [2:12](   Читать дальше...   )Жанр: RockПродолжительность: 09:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD2346C677D75BCB07502ED54E6B6F2DE708A23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662814   (187452) от 19.09.2023
+
+VA - Favourite Operatic Duets - Duets From Composers Operas Rossini, Verdi, Puccini, Berlioz and Bizet (1976) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Opera, Romantic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187452.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Serbami Ognor (Semiramide, Act I)
+A2 Se M'Ami Ancor ... Al Nostri Monti Ritorneremo (Il Trovatore, Act IV)
+A3 Un Di Felice (La Traviata, Act I)
+A4 Ascoltai Le Porte Dell'Asil S'Apron Gia, Dio, Che Nell'Alma Infondere (Don Carlo, Act II)(   Читать дальше...   )Жанр: Classical, Opera, RomanticПродолжительность: 01:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870A41064ADDD114E0F45E11BFF88C53539B6227
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662856   (187530) от 19.09.2023
 
 Timo Tolkki's Avalon - Angels of the Apocalypse (2014) [FLAC|24/96|tracks|Vinyl-Rip]<Symphonic Power Metal>
@@ -105,6 +159,33 @@ magnet:?xt=urn:btih:3859703AFDF4F32DD867C90A54641393996B9248
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583852   (188193) от 16.09.2023
+
+Stone Sour (Corey Taylor, Slipknot) - Studio Albums (10 releases) (2002 - 2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Heavy Metal ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_188193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stone Sour — американская метал-группа, образованная в 1992 году в Де-Мойне, штат Айова. Её основатели — Кори Тейлор, ставший известным как вокалист группы Slipknot, а также барабанщик Джоел Экман. Просуществовав до 1997 года, коллектив прекратил свою деятельность, но в 2000 году, после успеха дебютного альбома Slipknot, Тейлор с Экманом решили вернуться к своему (   Читать дальше...   )2002 - Stone Sour
+2006 - Come What(ever) May
+2010 - Audio Secrecy
+2012 - House Of Gold And Bones - Part 1Жанр: Hard Rock, Heavy MetalПродолжительность: 09:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E4519727C61B26E164259B1C28DFA4215BA805
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662007   (188255) от 16.09.2023
 
 Mark Boals (Shining Black; The Codex) - Studio Albums (6 releases) (1998-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
@@ -206,6 +287,33 @@ Demons & Wizards - сайд-проект вокалиста Ханси Кюрш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9F289415C25FB83EC3A588668ADE9BA9750965E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543805   (188589) от 14.11.2022
+
+Red Hot Chili Peppers - Дискография (16 releases) (1983 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_188589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Hot Chili Peppers (RHCP) — американская рок-группа, образованная в 1983 году в Калифорнии вокалистом Энтони Кидисом, басистом Майклом Бэлзари (больше известным как Фли), гитаристом Хиллелом Словаком и барабанщиком Джеком Айронсом.1984 - The Red Hot Chili Peppers
+1985 - Freaky Styley
+1987 - The Uplift Mofo Party Plan
+1989 - Mother's MilkЖанр: Alternative Rock, Funk RockПродолжительность: 21:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A11D77E3D0177B2967C16310A58FC22C6C064B
 ```
 
 
@@ -581,114 +689,6 @@ B1 Y.M.C.A.(   Читать дальше...   )Жанр: Funk, SoulПродол�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DCC63DF0768043A9CFC2C9264393260FE0CED17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658993   (190636) от 10.09.2023
-
-OSI - Дискография (4 releases) (2003-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190636.jpg" />
-</div>
-
-
-###  Подробнее
-
-OSI — американская прогрессив-рок-группа, первоначально созданная гитаристом Fates Warning Джимом Матеосом в 2002 году.2003 - Office of Strategic Influence
-2006 - Free
-2009 - Blood
-2012 - Fire Make ThunderЖанр: Progressive MetalПродолжительность: 04:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCA46E77299BC47155CC898F96B6AFAB5FA748A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658727   (190968) от 09.09.2023
-
-Mad Butcher - Metal Meat (1987) Reissue, 2021, Relics From the Crypt [FLAC|24/192|tracks|Vinyl-Rip] <Heavy, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190968.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Remember
-A2 Drivin' Drivin'
-A3 U Can't Stand It
-A4 Looser(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D73EF8AD4A278F145A7498DC4E472EC062CCE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658410   (190972) от 09.09.2023
-
-OOMPH! - Richter und Henker (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industrial Metal, Neue Deutsche Härte>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wem die Stunde schlägt [00:05:04]
-02. Richter und Henker [00:04:37]
-03. Soll das Liebe sein? [00:04:11]
-04. Nur ein Mensch [00:04:14](   Читать дальше...   )Жанр: Industrial Metal, Neue Deutsche HärteПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68F2FEB897CB57B7F3D3E5AA91EB2A8C6FFF96E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012354   (191028) от 06.11.2022
-
-Peter Lipa - Moanin' (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes The Nights
-02. Got To Get You Into My Life
-03. Rain
-04. Tell All The World About You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00A2FC411DA26BC13261C2B0DA89B17E228C234
 ```
 
 

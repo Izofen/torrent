@@ -1,3 +1,192 @@
+###  Публикация: 479679   (98816) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №5
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98816.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №5
+Название: Desktop Wallpapers №5
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0467081298E42C9E6F930623C1E5B3E49DFAE429
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479466   (98819) от 07.04.2012
+
+[Wallpapers] Best Wallpapers (07.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C871BB0F09C4A26B020C6354F348C7AC498522
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478461   (98820) от 07.04.2012
+
+Various Artists - Tranceffect 18 (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tomas Heredia- Hurricane (Radio Edit)
+ 02. Max Graham feat. Susana-Down To Nothing ({am} Extended Mix)
+ 03. Solarstone & Haris C-Ultraviolet (Haris C Mix)
+ 04. Meridian vs. Arctic Moon vs. ReOrder-Smile In Biscay Bay (LarSson & Lucas Comes Mashup)
+ 05. Running Man & Ahmed Romel-Azure (Running Man Edit)
+ 06. John OCallaghan-Psychic Sensor (Indecent Noise Remix)
+ 07. Talla 2XLC-Salvation (Club Mix)
+ 08. Keelin Temple vs Heatbeat-Iridescent (Reach & Height Rosary Mashup)
+ 09. Skylight-Autumn Wonderland (Aero 21 Remix)
+ 10.  7 Baltic-Hidden Life (Original Mix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B83DE5352DEAD7699A1ED299127BA658B8211D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479700   (98822) от 07.04.2012
+
+[Wallpapers] Anime Wallpaper (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D16F16A6A4501B465E48D27681373BF7B345D02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479752   (98823) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №13
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98823.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №13
+Название: Desktop Wallpapers №13
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9909F1F839812D790DD84E5C174CB3C78A832968
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479432   (98825) от 07.04.2012
+
+[Wallpapers] HD Wallpapers №7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98825.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers №7
+Название: HD Wallpapers №7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C50C6C589C26B526D2F36B1F66904B0ED4BE0EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479459   (98826) от 07.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (07.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:785824954076D2B64F5101F049765558BF11A591
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479433   (98827) от 07.04.2012
 
 [Wallpapers] Desktop Wallpapers №4
@@ -497,200 +686,6 @@ VA - Клубная энергия танцпола (2012) [MP3|160-256 kbps]<Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5970025E4858819075F667CA1604C6BE0B605726
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479460   (98855) от 07.04.2012
-
-[Wallpapers] Music Wallpapers (07.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C0012E43631A02E3A6E2222FC1700A51E94B87D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479461   (98856) от 07.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (07.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFE9AB6F213EBB2179068C7BB67B412185A091F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479335   (98857) от 07.04.2012
-
-VA - The Chillout Lounge 2 (2012) [MP3|320 kbps]<Chillout | Downtempo | Lounge>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheena Jordan-Yureema - A Daughter Of The Sea
-02. Jamie Bamford - Show Me An Open Sky
-03. Ascendent Star - Wherever You Are
-04. Muted Ecstasy - You Showed Me
-05. Silver Heart - Everywhere With You
-06. Star & Emotion - Its Unconditional
-07. Oliver Lockman - Pure & Everlasting
-08. Phalgun Radha - Constant Flow
-09. Nachiketa Harisnakshi - Forest Of Knowledge
-10. Ricardo Vionaika - Of Blue Red White & Star(   Читать дальше...   )2012Жанр: Chillout | Downtempo | LoungeПродолжительность: 03:26:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DAA2D521E3E0E449DAC5101FC936DFCAEBCB1BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479733   (98858) от 07.04.2012
-
-[Wallpapers] Desktop Wallpapers №12
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98858.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №12
-Название: Desktop Wallpapers №12
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6DB8F26E8FE92D189ED8284322376CFF846CFCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477759   (98862) от 07.04.2012
-
-Ферма Альбино / Albino Farm (2009) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверо студентов-друзей, исследующих местность известную как Горы Озарка, забрели на чужую ферму, чтобы уже никогда с нее не выбраться. Их ждал тепленький, смоченный кровью прием в лице семейки генетических уродов…Жанр: УжасыРежиссер: Джо АндерсонАктеры: Таммин Сурсок , Крис Джерико , Санкриш Бала , Ник Ричи , Алисия ЛаганоПеревод: Двуголосый закадровыйЯзык субтитров: испанскийПродолжительность: 01:25:06
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479365   (98863) от 07.04.2012
-
-Return To Base - Behind The Sun (2011) [MP3|320 кб/с]<Drum'n'Bass / Industrial Djent>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Biopunk
- 02. Collective Mind
- 03. Alive Creature
- 04. Devastator
- 05. Behind The Sun2011Жанр: Drum'n'Bass / Industrial DjentПродолжительность: 00:21:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC82207169C45C0FE1E587E2F3C931041C4D4206
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477985   (98866) от 07.04.2012
-
-Necronomicon - Invictus (2012) [FLAC|Lossless]<Thrash Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invictus (6:45)
-02. Unleashed (4:05)
-03. Bloody Bastards (4:03)
-04. Thoughts Running Free (5:49)
-05. Unconquered (5:56)
-06. Upon Black Wings (4:40)
-07. Face To The Wall (5:16)
-08. Pandora's Box (4:03)
-09. Before The Curtain Falls (4:42)
-10. Possessed By Evil 2011 (5:01)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:10:37
-
-## Скачать торент
-```bash
-нет
 ```
 
 

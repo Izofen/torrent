@@ -1,3 +1,189 @@
+###  Публикация: 1700884   (116821) от 18.02.2024
+
+iBarcoder 3.14.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cristallight iBarcoder - профессиональный генератор штрих-кодов Mac для создания любого количества отдельных или последовательных штрих-кодов, и их печати в виде красочных этикеток со штрих-кодом в собственном стиле, любого размера или формы или их экспорта в виде файлов графических изображений в обычном векторном и растровом изображении.Тип издания: macOS SoftwareРелиз состоялся: 17.01.2024Разработчик: © 2022 Cristallight SoftwareПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B02C14F6764F2C47409F399D84E0F7E2FE9A54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700743   (116822) от 18.02.2024
+
+Bonestorm - Under The Sight Of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Old School Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Cycle (Intro)
+02. Origin
+03. Homo Ad Circulum
+04. Under the Sight of Time(   Читать дальше...   )Жанр: Old School Death MetalПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78230F4A2516BE091DB5E7906AE89C676D10548F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700704   (116823) от 18.02.2024
+
+Barry Harris Trio - Plays Tadd Dameron & Thelonious Monk (1975 - 1984) 2008, Jazz Lips [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot House [4:33]
+02. Soultrane [5:41]
+03. The Chase [5:09]
+04. Lady Bird [5:05](   Читать дальше...   )Жанр: Hard Bop, Bop, Piano JazzПродолжительность: 01:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BBF5F83545A6565E07CD4DB5CB58CDC857F3491
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700712   (116824) от 18.02.2024
+
+Joshua Redman, Ron Miles, Scott Colley, Brian Blade - Still Dreaming (2018) Nonesuch [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Year [6:37]
+02. Unanimity [5:09]
+03. Haze and Aspirations [5:58]
+04. It's Not the Same [2:46](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE66D3DB9D37896B6AF4879EB99CDA9478001523
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700782   (116825) от 18.02.2024
+
+Sujin - Save Our Souls (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ...---… 00:41
+02. Save Our Souls 04:22
+03. Ashes from the Abyss 04:27
+04. Dead World Beyond 04:03(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB561290A37875ADFF5281A44A7B5E73141D274
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700780   (116826) от 18.02.2024
+
+Chimeras - Silent Cries in the Stifling Haze (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Devoidness (00:07:33)
+02 - Hidden Label (00:06:24)
+03 - The Seven Doors - Barbe Bleue - (00:07:33)
+04 - Mind Deception (00:08:29)(   Читать дальше...   )Жанр: Atmospheric Doom MetalПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA46FD5648CD99FBAE937422A61B3C1D9A27BB02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700701   (116827) от 18.02.2024
+
+Dick Haymes - The Name's Haymes! (1958) 2015, Sepia Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Long Hot Summer [2:55]
+02. So Far [3:40]
+03. You Stepped Out of a Dream [2:16]
+04. This Time the Dream's on Me [3:16](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 01:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD41280D328427A3C7AF84508A0C45C3DC0C7CEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700887   (116828) от 18.02.2024
 
 Sundrifter - An Earlier Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -487,190 +673,6 @@ magnet:?xt=urn:btih:5B502BD91A873516C91F794C63B72B1D31FEE8A7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D992DC97F11CDE957C91CF544785836A4CF1D6C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700800   (116847) от 18.02.2024
-
-Unheilig - Zelluloid (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Filmrolle
-02. Zauberer
-03. Hört Mein Wort
-04. Willst Du Mich(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934A76C055C325057C9FB8071FCD2F2514063C86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700708   (116848) от 18.02.2024
-
-Svend Asmussen - June Night (1983) 1993, Sony Music [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. June Night [4:20]
-02. Sweet Georgia Brown [3:29]
-03. Lazy River [5:19]
-04. Nadja [5:01](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0518A89AF8F6122FE53B25B7D37EBFFD35D28C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700673   (116849) от 18.02.2024
-
-Unheilig - Frohes Fest (2002) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sternzeit (1. Strophe)
-02. Kling Glöckchen Klingelingeling
-03. Leise Rieselt Der Schnee
-04. O Tannenbaum(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E051C9F8E01C30629A8BB0A899F681DD9B7AFFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700834   (116850) от 18.02.2024
-
-Desktop Stickers 2.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Desktop Stickers поможет вам в выборе вашей самооценки.
-Ваши мысли являются источником ваших эмоций и настроения. Разговоры, которые вы ведете сами с собой, могут быть разрушительными или полезными. Большинству людей необходимо научиться культивировать позитивные мысли и рассеивать негативные. Разговор с самим собой может улучшить вашу производительность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.02.2024Разработчик: © 2024 Marian RaafatПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4B51864C0B440D1B58E4D28C1E06AC4F81B760
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700775   (116851) от 18.02.2024
-
-For I Am King - Crown (2024) (Deluxe) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Avarice [5:12]
-02 - Liars [3:23]
-03 - Trojans [3:15]
-04 - Pariah [3:23](   Читать дальше...   )Жанр: Melodic Death Metal, Metal, MetalcoreПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD82114CF7795A7ADC3E38874A446BE2DF685EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700879   (116852) от 18.02.2024
-
-Swanee - Bushido (1985) [FLAC|Lossless|WEB-DL|tracks] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hasn't Anybody Told You (04:03)
-02. I'll Fall in Love Again (03:56)
-03. Turn Away (04:07)
-04. Surrender (02:58)(   Читать дальше...   )Жанр: AORПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC470F68197B9472F6BD7353FBC1A8FE7170A492
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700859   (116853) от 18.02.2024
-
-Photo Studio PRO v2.7.3.2306 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: ProРелиз состоялся: 14.02.2024Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C221EF944AAAB00678D0EA30574939F102F13E5
 ```
 
 

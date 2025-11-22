@@ -1,3 +1,56 @@
+###  Публикация: 1782964   (69856) от 03.03.2025
+
+Joey DeFrancesco, Massimo Farao - Estate (2008) Zucca Records [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Estate [13:41]
+02. On a Clear Day [9:04]
+03. Fly Me to the Moon [11:10]
+04. Voyage [9:47](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 01:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A68152C5F5D964226C70871A3E730A2677F9FE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782902   (69857) от 03.03.2025
+
+Thrashfire - Studio Albums (3 releases) (2011-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thrashfire - турецкая метал-группа, основанная в январе 2006 года2011 - Thrash Burned The Hell
+2015 - Vengeance of Fire (EP)
+2019 - Into the ArmageddonЖанр: Thrash MetalПродолжительность: 01:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E025A726FE4BED589DE7273F818F6C3BE46AC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782962   (69858) от 03.03.2025
 
 Joey DeFrancesco - Live: The Authorized Bootleg (2007) Concord Jazz [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
@@ -619,57 +672,6 @@ magnet:?xt=urn:btih:ADB491ED057613C555F5D1F92B16FDEF0E0DBC14
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8722DBF6A3D04D79DCBBE5B73D910B136495F95E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782896   (69882) от 03.03.2025
-
-Пресеты - Pixflow - CL-BlackMagic [CUBE]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69882.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 LUT, воссоздающие вид, цвет и ощущение кинокамер линейки BlackMagic. Все LUT являются файлами .cube и могут использоваться в любой программе редактирования, окраски и видеозахвата, которая поддерживает LUT.Формат: CUBE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72C9FDF21838FA6EB3F435BAC6AC8AA8CD73846
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782960   (69883) от 03.03.2025
-
-VA - Car Rides: Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)
-02. Dina Bolshakova - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (2:34)
-03. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, K. 331300i III. Alla Turca Turkish March (3:43)
-04. Katya Kramer-Lapin - The Well-Tempered Clavier Book 1, BWV 846-869 I. Prelude in C Major, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:27:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7DDC253C3C5EA9BD1E51A5CB108AC23A800EED
 ```
 
 

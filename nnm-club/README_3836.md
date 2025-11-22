@@ -1,3 +1,192 @@
+###  Публикация: 1696827   (119421) от 04.02.2024
+
+VA - Deep Night Deep House 6 (2024) [MP3|320 Kbps] <Deep House, House, G-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pete Tong, Jem Cooke, Jules Buckley - Heat Rising (CamelPhat Extended Remix) (7:52)
+02. Anton Ishutin - Eternal (7:43)
+03. Gar1sson, Margaryan - HOT (Original Mix) (7:36)
+04. Forrest - Bad Girls Go to Heaven (Los Suruba Remix) (7:28)(   Читать дальше...   )Жанр: Deep House, House, G-HouseПродолжительность: 08:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F2D6B84AD44DD1B474E40B5748FF51C80C8876
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696586   (119422) от 03.02.2024
+
+Bubble Bones - Go Back to the Mojo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Back to the Mojo (4:40)
+02. Down in my Hole (3:28)
+03. The Shot (5:00)
+04. Green Pearls and Coffee (2:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47890F2D6CFCE75567DD157F98CE67662C22C6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696624   (119423) от 03.02.2024
+
+Suicide Bombers - All For The Candy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Glam, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. iNTRO: Candy Girls Worldwide (0:29)
+02. Dynamite Playboys (4:02)
+03. Take It Off (3:44)
+04. Tonight Belongs To Us (4:35)(   Читать дальше...   )Жанр: Glam, Hard RockПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8EC5C634F9777B2B926DB1089B5888A2BFA7FB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696633   (119424) от 03.02.2024
+
+Dominia - Timeless (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man With a Heart-Crumb Within
+02. The Weeping Beauty
+03. Illusion
+04. Vikarma(   Читать дальше...   )Жанр: Gothic Doom MetalПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8C87CB43146AC0D4AD11C82155EFB3031D17E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696452   (119425) от 03.02.2024
+
+Mental Destruction - Road of Redemption (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Purifire (04:11)
+02 - Dark Passenger (05:50)
+03 - Road of Redemption (05:41)
+04 - Road Life (05:29)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E3A5B1A348289248E75EB1C2C2884D49CA843F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696496   (119426) от 03.02.2024
+
+Minenwerfer - Feuerwalze (2023) [FLAC|Lossless|WEB-DL|tracks] <Black metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cemetery Fields (06:07)
+02. Feuerwalze (06:48)
+03. Eternal Attrition (08:00)
+04. Nachtschreck (07:51)(   Читать дальше...   )Жанр: Black metalПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0266CB009F2611E814000C65B9D8B59D3D20D35B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696621   (119427) от 03.02.2024
+
+Rumboat Chili - All The Time In The World (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. While You Got It (5:39)
+02. City Of Lights (3:35)
+03. Livin' My Fantasy (3:52)
+04. Shot Down (5:08)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499E4C06BF8079658019991008E215ED11D42EE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696638   (119428) от 03.02.2024
 
 Dominia - Timeless (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic Doom Metal>
@@ -500,192 +689,6 @@ PowerPhotos - позволяет разбить ваши изображения 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2EE91AF9757824DEA1420A1AC02F11B5F4026F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696627   (119447) от 03.02.2024
-
-The Tibbs - Keep It To Yourself (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't It Funny (3:19)
-02. Can't Teach an Old Dog New Tricks (3:33)
-03. For Lack of Better Words (3:30)
-04. Give Me a Reason (2:59)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F15640D5B0DF97DB63E0ADA3E24210FEE680E05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696483   (119448) от 03.02.2024
-
-Batushka - Black Rituals (Liturgy in Budapest – Live 2021) (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Live 2021) [00:04:47]
-02. Irmos I (Live 2021) [00:04:11]
-03. Irmos III (Live 2021) [00:04:39]
-04. Irmos IV (Live 2021) [00:07:18](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:014DF9306059D9F20055B6282EF036613618EA9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696578   (119449) от 03.02.2024
-
-Theocracy - Mosaic (2023) [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flicker
-02. Anonymus
-03. Mosaic
-04. Sinsidious (The Dogs Of War)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 01:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D872B8DBE5FDDA665F8E18F09DCCA34E7BDC462
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696619   (119450) от 03.02.2024
-
-Larmet - Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don’t Start Me Talking (3:23)
-02. Stormy Monday (5:57)
-03. Stop Breaking Down (6:41)
-04. Long Grey Mare (2:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23E7D1A948D71C82F6D34FDB3B044DADCAFB0542
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696280   (119451) от 03.02.2024
-
-Olhava - Sacrifice (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever with You [00:16:22]
-02. Ageless River VI [00:06:44]
-03. I See Myself in Your Eyes [00:17:02]
-04. Ageless River VII [00:05:37](   Читать дальше...   )Жанр: Post-Black MetalПродолжительность: 01:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF040F76FE94E35E773D6EC491D57139C7A9E98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696591   (119452) от 03.02.2024
-
-PullTube 1.8.5.25 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 02.02.2024Разработчик: © 2020 MyMixAppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF211F188934A4D7ABF8481F6F3E6B3944FC001
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696504   (119453) от 03.02.2024
-
-Nekonomicon - Choose Your Fighter! (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Approaching the Void (03:38)
-02 - Race of Life (03:29)
-03 - Castlevanian Hunger (03:16)
-04 - Fog of War (03:16)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:260A0F30FE263EA6193AABB2D6AEE5214373447C
 ```
 
 

@@ -1,3 +1,189 @@
+###  Публикация: 1756954   (103482) от 24.10.2024
+
+Casandra's Crossing - Garden Of Earthly Delights (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger (5:01)
+02. Impatient (4:54)
+03. Closer to Heaven (5:21)
+04. Ring Me Around (4:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530F3B4FAF77F36603D8E82E5B3BDCE4832A2D38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756886   (103483) от 24.10.2024
+
+VA - Jazz For Halloween (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Philly Joe Jones Sextet - Blues For Dracula (8:15)
+02. Louis Armstrong - The Skeleton In The Closet (Single Version) (3:11)
+03. Vince Guaraldi - The Great Pumpkin Waltz (Reprise) (2:40)
+04. Ornette Coleman - The Disguise (2:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EAD6B5E7EC67FDEDF0ED7FF09ADA358C117ED31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757014   (103484) от 24.10.2024
+
+Mary Coughlan - Repeat Rewind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Repeat Rewind (4:22)
+02. Lumberjack (3:39)
+03. What If I Do (3:45)
+04. Once Upon A Fairytale (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532CD0CD59025DF49F62B3B963B6AB09DC628124
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756989   (103485) от 24.10.2024
+
+Todd Partridge - Desert Fox Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Depression (4:55)
+02. Gotta Do (2:19)
+03. Gentleman Blues (2:32)
+04. Interstellar Planetary (3:11)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC125A31B479BA02F4652AAD22162945A2AA2D51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756952   (103486) от 24.10.2024
+
+Nitrogods - Valley Of The Gods (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Left Lane To Memphis (3:02)
+02. Shinbone Kicker (3:16)
+03. Valley Of The Gods (3:54)
+04. Last Beer Blues (4:52)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB824A0BBDD6BB1617858B406673772276AC3EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756951   (103487) от 24.10.2024
+
+Франсуаза Саган | Четыре стороны сердца (2021) [MP3, Алла Човжик]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Саган. Коллекция.
+Франсуаза Саган (1935–2004) – французская писательница.
+В романе «Синяки на душе» (1972), как и во многих романах писательницы, речь идет о любви, хрупкой, нерешительной, мимолетной. Верная себе Саган заводит своих персонажей в лабиринт запутанных отношений: вокруг Себастьяна и Элеоноры кружатся странные люди, пытаясь проникнуть в тайны (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Алла БорисоваИздательство: Азбука-АттикусПродолжительность: 03:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B570B3D8302E85C9B0BADBE8C21FA785DA8E0FCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756937   (103488) от 24.10.2024
+
+Франсуаза Саган | Немного солнца в холодной воде (2020) [MP3, Алла Човжик]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Саган. Коллекция.
+Франсуазу Саган (1935–2004) называли Мадемуазель Шанель от литературы. Начиная с самого первого романа «Здравствуй, грусть!» (1954), наделавшего немало шума, её литературная карьера складывалась блестяще, она с удивительной легкостью создавала книгу за книгой, их переводили на различные языки, и они разлетались по свету миллионами экземпляров. (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Наталия НемчиноваИздательство: Азбука-АттикусПродолжительность: 04:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5783AC824EFEA0ECC32B984202B527210C61EF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756929   (103489) от 24.10.2024
 
 Gillian Welch & David Rawlings - Woodland (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Folk, Blues, Americana>
@@ -501,193 +687,6 @@ Gary Burton - New Vibe Man In Town (1960, 1961) 2012, American Jazz Classics [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E6A18FCE792D86B4037391E0575F0ED21F2057A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756334   (103508) от 20.10.2024
-
-НХЛ 2024-2025. Вашингтон Кэпиталз - Нью-Джерси Дэвилз (19.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103508.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 октября 2024, воскресенье. 02:00 МСК. Стадион: Пруденшиал-центр (Ньюарк, США), 16 514 зрителей (94% при вместимости 17 625)
-Главный судья: Картер Сандлак (Лондон, Канада); Главный судья: Крис Руни (Бостон, США)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:151F1A180957D03281724AB8519D804650BA3B02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756161   (103509) от 19.10.2024
-
-NRBQ - Brass Tacks (2014) 10th Anniversary Edition, 2024, Omnivore Recordings [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waitin' On My Sweetie Pie [00:02:55]
-02. Greetings From Delaware [00:03:31]
-03. Sit In My Lap [00:02:39]
-04. Fightin' Back [00:03:31](   Читать дальше...   )Жанр: RockПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB02E80C4AC3812AC3D2BA33E49BA628AE57EBEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756192   (103510) от 19.10.2024
-
-Smash Atoms - Smash Atoms (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bring The River (3:23)
-02. Black Cloud (3:19)
-03. Buried Under The Open Sky (3:41)
-04. Dead Season (4:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1BC0CCA4998E5A2E1E4F3636D0F50E6E64AD7C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756184   (103511) от 19.10.2024
-
-Malakye Grind - Dystopian Dream (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Night (4:04)
-02. Every Day Is Perfect (4:18)
-03. Seaside Cowboy Cult (2:33)
-04. The Not List (2:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7C45189AEC8973DD34B2BFB27D259C4EE0B86B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756176   (103512) от 19.10.2024
-
-Flamy Grant - CHURCH (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do It for the Song (4:01)
-02. Revenge (3:39)
-03. How to Find the Words (4:37)
-04. Start Again (M.J.'s Song) (4:05)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B60993AC442ECAA2FB987213DE2EA55F7B2B4F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755678   (103513) от 19.10.2024
-
-Eddie Henderson - Collective Portrait (2015) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunburst [8:21]
-02. Dreams [9:56]
-03. Morning Song [7:40]
-04. You Know I Care [5:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C566C59E7F7B92CBEC29CDCD032E09D37B1AFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756179   (103514) от 19.10.2024
-
-Heather Pierson - Back To The Light (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dusty House Blues (2:59)
-02. Up Here In The Mountains (4:04)
-03. Feel Something (3:06)
-04. Nails Trimmed and Clean (2:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73AE7198EFFFDA05EA3E055AA7B2385833FADC8D
 ```
 
 

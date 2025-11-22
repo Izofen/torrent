@@ -1,3 +1,57 @@
+###  Публикация: 1785594   (69232) от 16.03.2025
+
+Ben Lloyd - Leave No Stone Unturned (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Leave No Stone Unturned (3:00)
+02.  Narcisist (2:54)
+03.  Break Out (3:40)
+04.  Ghost (3:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03E1E1442C50BB77067C4C539B1B19468CE5B93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785612   (69233) от 16.03.2025
+
+Riot - Archives Volume 4 : 1988-1989 (2019) Compilation [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On Your Knees (Rough Mix)
+02. Runaway (Rough Mix)
+03. Killer (Rough Mix)
+04. Storming The Gates Of Hell (Rough Mix)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56ACC24776089AC6D1DBDF9D110555DE36A208A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785534   (69234) от 16.03.2025
 
 Sentenced - Down (1996) Reissue, 2020, 	Cosmic Key Creations [WavPack|32/192|image + .cue|Vinyl-Rip] <Death, Doom Metal, Gothic Metal, Rock>
@@ -614,55 +668,6 @@ magnet:?xt=urn:btih:C2D4456D81395FBB3B8C719B4353DBF740808104
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:822F83D02AA596331A52021666F74CF3FFE5E003
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785451   (69258) от 16.03.2025
-
-Шрифты - Oleh Lishchuk - Behance - Spaceland typeface - 87146835 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт c кириллицей 22 стиля.
-Разработчик: Oleh LishchukФормат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1E307F6A29A04B57B26D5986A3314B6DBBCCE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785617   (69259) от 16.03.2025
-
-Гарфилд 2: История двух кошечек / Garfield: A Tail of Two Kitties (2006) BDRip [H.265/1080p] [10-bit]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимец всей Америки кот Гарфилд пересекает океан с целью преподнести сюрприз своему хозяину Джону Арбаклу, отправившемуся в Лондон, чтобы сделать предложение своей возлюбленной, ветеринару Лиз Уилсон. Очутившись в Англии, Гарфилд случайно меняется местами со своим двойником — котом Принцем, принадлежащим королевской семье.Производство: Великобритания, США / 20th Century Fox Film Corporation, Davis Entertainment, Dune Entertainment, Ingenious Film Partners, Major Studio PartnersЖанр: комедия, приключения, семейный, фэнтезиРежиссер: Тим ХиллАктеры: Брекин Мейер, Дженнифер Лав Хьюитт, Билли Коннолли, Билл Мюррей, Йен Эберкромби, Роджер Рис, Люси Дэвис, Лена Кардвэлл, Вероника Алисино, Джейн КаррПеревод: дублированный (официальный)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:25:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BFABC987BB0BD71368587BDEB4466E328712B94
 ```
 
 

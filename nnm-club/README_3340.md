@@ -1,3 +1,181 @@
+###  Публикация: 1737478   (106525) от 17.07.2024
+
+Sandboxie plus 1.14.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandboxie plus - это продолжение Sandboxie с открытым исходным кодом - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB09908686270B780006A6C48E3D363F295730F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737453   (106526) от 17.07.2024
+
+CudaText 1.215.5.0 Portable + addons [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106526.jpg" />
+</div>
+
+
+###  Подробнее
+
+CudaText — абсолютно бесплатный мультиплатформенный редактор текста, но скорее, предназначен для написания кода. Как и все современные редакторы кода, поддерживает подсветку синтаксиса и готовые блоки кода для быстрой вставки готовых последовательностей. На данный момент программа поддерживает полторы сотни различных языков программирования.
+Дополнительно, возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687D852A82B662917333178A8D4CA5A31889A565
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737413   (106527) от 17.07.2024
+
+Евгений Поселянин | Сказание о святых вождях Земли Русской (2019) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106527.jpg" />
+</div>
+
+
+###  Подробнее
+
+В людях, правивших Русью, в противоположность правителям Западной Европы, мы видим одну замечательную черту – преданность своему долгу, убеждение, что дело правления ниспослано им от Бога, как жизненная задача, за которую Бог спросит у них ответа, – и всеми силами души служили они своему народу. Была только одна грустная эпоха, перед игом, когда князья из-за личных (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB87D68A4B561D4B0BEA1EA9E4736C5CD8746A43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737461   (106528) от 17.07.2024
+
+Виктория Алешко - Настоящее золото (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Настоящее золото [00:03:44]
+02 - Обалденная [00:02:53]
+03 - Чужая [00:03:15]
+04 - Ты будешь мой [00:02:31](   Читать дальше...   )Жанр: PopПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6E1B12197130BBF86B2B85BE5EFCB8FE19C346
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737428   (106529) от 17.07.2024
+
+Bad Boys - Turn On The Radio (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boy
+02. More Than She Can Handle
+03. Love Me Tonight
+04. Turn On The Radio(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB7A76B65DA2BD52CADD17E7263B2BB80ED5F78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737330   (106530) от 17.07.2024
+
+Астрал. Ночной кошмар / Malam Pencabut Nyawa / Respati (2024) TS [H.264]
+
+>>Горячие новинки
+>>Экранки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106530.jpg" />
+</div>
+
+
+###  Подробнее
+
+После гибели родителей студента Респати мучают кошмары, а сам он обнаруживает, что может проникать в чужие сны. Когда зло из сновидений начинает воздействовать на реальную жизнь и угрожать жизни девушки Респати, парню нужно научиться действовать в этих снах, чтобы ее спасти. Но попасть в сон - не самое сложное. Куда сложнее выбраться обратно.Производство: Индонезия, Корея Южная / Base Entertainment, Samara, Barunson E&AЖанр: ужасыРежиссер: Сидхарта ТатаАктеры: Девано Данендра, Кеисья Левронка, Миха Эрнан, Буди Рос, Фаджар Нугра, Рату Фелиша, Кики Нарендра, Шри Исворовати, Майчелина Анис, Эко Буди АнтараПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: Русские (Forced hardsub)Продолжительность: 01:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2111C508790DF5EFD8127D81A7D3573C25F3D96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737451   (106531) от 17.07.2024
+
+Табор возвращается - Берега (2023) [MP3|320 Kbps] <Цыганская песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Дэвэс и Рат (Цыганская песня) [00:02:33]
+02 - Пантелее Пантелей (Цыганская песня) [00:06:08]
+03 - Кай енэ (Цыганская песня) [00:03:03]
+04 - Сумерки [00:05:14](   Читать дальше...   )Жанр: Цыганская песняПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB21A800B0B790B8242E20CDF2FCBA01DA946D35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737188   (106532) от 17.07.2024
 
 Nouvelle Vague - 3 Albums (2004-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, New Wave, Bossa Nova>
@@ -495,195 +673,6 @@ Craig Pilo & Jeff Pescetto - Comfort in the Night (2024) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44747C71085F04B2D0CF967E7B9E07C8888578B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737027   (106551) от 16.07.2024
-
-Eddie Reed Big Band - Hollywood Jump (1997) Royal Big Mac Records [FLAC|Lossless|tracks + .cue] <Swing, Jump, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natch [3:07]
-02. Yes My Darling Daughter [2:22]
-03. Boogie Blues [3:17]
-04. Jazznocracy [2:54](   Читать дальше...   )Жанр: Swing, Jump, Vocal JazzПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C738BFE1700B5924C75FC077D32605BC2F73FCC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737052   (106552) от 16.07.2024
-
-Cary St Onge - Been Livin (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Moon Talkin (3:33)
-02. Lose Those Blues (5:04)
-03. Been Livin (3:02)
-04. This Train (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B0F15B96F337356FB7D28369701FE19456B8117
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737056   (106553) от 16.07.2024
-
-Cristian Luna & the Tock and Blues - After All, Right Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Really Deep Inside My Head (4:27)
-02. Got You Baby (2:54)
-03. The Funky´s Working (4:28)
-04. Old Chicago (8:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0F0D3E02CBDD83E1B3441BE94DB1FD04752B10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737186   (106554) от 16.07.2024
-
-Glaciers - Ivory (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nadryv
-02. Hollow
-03. Blackwind
-04. Cold Soul II(   Читать дальше...   )Жанр: Progressive Metal, MetalcoreПродолжительность: 00:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27CB7B1F973D941975C5CFEFBDC462F010B6F676
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737173   (106555) от 16.07.2024
-
-The Ex-Hermanites - The Ex-Hermanites (1957) 2001, V.S.O.P. Records [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apple Honey [5:02]
-02. Everywhere [3:37]
-03. Your Father's Moustache [4:05]
-04. Laura [3:44](   Читать дальше...   )Жанр: BopПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65518D1D38283040EB0E178A5128C84CB2D37B0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737171   (106556) от 16.07.2024
-
-Milt Jackson - To Bags... With Love: Memorial Album (1954 - 1983) 2000, Pablo Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mister Basie [5:55]
-02. Ralph's New Blues [7:10]
-03. Blues for Edith [4:55]
-04. Recado Bossa Nova [6:42](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62013B4255E23E237316B0BCBD6D7B07C4BBCF4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737207   (106557) от 16.07.2024
-
-Innuendo - Jigsaw Sunset (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Like This
-02. Chasing Yesterday
-03. Cross That Line
-04. Hard To Pretend(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E77182E8B0634C9CCC5389AC4179017E7FE79A5
 ```
 
 

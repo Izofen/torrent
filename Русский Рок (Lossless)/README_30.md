@@ -1,3 +1,84 @@
+###  Публикация: 1659503   (190219) от 11.09.2023
+
+Tears Of Mankind - Memoria (2011) [FLAC|Lossless|image + .cue] <Doom, Death, Dark Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:11)
+02. In The Embrace Of Eternal Sunshine (08:11)
+03. Deadly Desire (07:46)
+04. Passion Blackfathom Deeps (08:26)(   Читать дальше...   )Жанр: Doom, Death, Dark MetalПродолжительность: 01:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4CEFC5D8316EFEB59B2F2497AE4B93F6120E91C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658766   (190230) от 11.09.2023
+
+Tyler Durdenn - Пепел космоса (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хэйтер [00:04:56]
+02. Ад на земле [00:03:27]
+03. Диванный эксперт [00:05:53]
+04. Они уже здесь [00:04:44](   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DDA08AD954A6C55BAE202BA9C551255FF27FFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658875   (190542) от 10.09.2023
+
+Бранимир (Александр Геннадиевич Паршиков) - Добрые песни 1-2 (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Dark Folk Rock, Dark Chanson>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В нашем маленьком городе [00:03:41]
+02. Шофёр [00:04:23]
+03. На побывку [00:04:18]
+04. Счастье [00:02:57](   Читать дальше...   )Жанр: Acoustic, Dark Folk Rock, Dark ChansonПродолжительность: 00:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBD999358700E1725F694511EC277B025F207F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658837   (190609) от 10.09.2023
 
 Thunder Volt - 4 Releases (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Stoner, Doom Metal>
@@ -611,87 +692,6 @@ magnet:?xt=urn:btih:C33754520C6091A16CCE1C022013820F8799CD6C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D49C3D45AB829D8289C5A59F738190457496C18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587242   (192963) от 30.10.2022
-
-Марко Поло - История рыцаря (2022) [FLAC|Lossless|image + .cue] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пролог
-02. История рыцаря
-03. Эпиграф. Песня черни
-04. Песня черни(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:774A70C5127D97EC13BD22035BC9A38C916159C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657118   (192986) от 02.09.2023
-
-Чёрный Кофе - Вольному - Воля (1990) Reissue, 2023, Moroz Records [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Брожу по городу один (4:16)
-02. Вольному – воля! (4:36)
-03. Ночь (3:57)
-04. Светлый образ (4:17)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB3B9348C094DFC649B4392E065DDC6E4AB07EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 235709   (193232) от 01.09.2023
-
-Коммунизм - 13 альбомов (1988-1994) [FLAC|Lossless]<Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Сережа
-02 - Солдатский Сон
-03 - Тост О Женщинах-физиках
-04 - С Чего Начинается Армия(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E95649C83FF0571B89C52DFFAF9A2EB05454D3
 ```
 
 

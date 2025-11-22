@@ -1,3 +1,56 @@
+###  Публикация: 1740311   (48169) от 01.08.2024
+
+Telegram Desktop 5.3 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
+Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
+С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, английский, Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96743B13CC589B0189EC74C1FC61E82E1D2301F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740106   (48170) от 01.08.2024
+
+Deus Ex Lumina - As Above So Below (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Coldwave, Darkwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dopamine Nation [00:03:45]
+02. As Above So Below [00:04:05]
+03. Day After Day [00:03:29]
+04. Black Road (Remastered) [00:04:09](   Читать дальше...   )Жанр: Synthpop, Coldwave, DarkwaveПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B6D2FC00A6CBD5E85C56BEAFE5F9292C8F202E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1740107   (48171) от 01.08.2024
 
 Dark Chisme - Dark Chisme (2024) [FLAC|Lossless|WEB-DL|tracks] <Darkpop, Darkwave, EBM, Female Vocal>
@@ -593,60 +646,6 @@ magnet:?xt=urn:btih:8B99517A1DB8CBAA760A1355436EC757BDB19A95
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8939A17C7E6BB237C7E0F9E0E751FD809EB3498
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739609   (48195) от 01.08.2024
-
-VA - compilation  part 106 Instrumental  Saxophone (2024) [MP3|320 Kbps] <Instrumental, Saxophone>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ladynsax - Payaar
-02. Daniel Sax - Kissing a Fool
-03. Jk Sax - How I Love You (Engelbert Humperdinck)
-04. Jk Sax - The Last Waltz (Engelbert Humperdinck)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 02:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD524BF2E29B396EE172B3A13FEA50E1748FE6B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739679   (48196) от 01.08.2024
-
-VA - compilation  part 107 Instrumental  Saxophone (2024) [MP3|320 Kbps] <Instrumental, Saxophone>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jk Sax - Confessa
-02. Jk Sax - You Got It
-03. Jk Sax - Sadeness
-04. Jk Sax - Beautiful Life(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 02:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCE79E7B85B3374718BE8FD63BF51766B7713B5
 ```
 
 

@@ -1,3 +1,225 @@
+###  Публикация: 463053   (95721) от 05.03.2012
+
+[EN] Возмездие Эрпа / Wyatt Earp's Revenge (2012) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на реальной истории легендарного юриста, который рассказывает как собирал лучших со всего Запада, чтобы отомстить за жестокое убийство своей любимой Доры. Вместе со знаменитыми Батом Мастерсоном, Чарли Бассетом, Биллом Тилгменом и Доком Холидэем Эрп преследует братьев Кенеди, которые занимаются убийствами на территории от Додж-сити до Мексики. Защищенные своим влиятельным отцом безжалостные братья знают, что законы написаны не для них, но они недооценили Эрпа и его отряд. Звездный актерский состав фильма- Шоун Робертс, Трейс Адкинс, Мэтт Даллас и Вэл Килмер.Жанр: ДрамаРежиссер: Майкл ФейферАктеры: Вэл Килмер, Шоун Робертс, Мэтт Даллас, Дэниэл Буко, Скотт УайтПеревод: ОтсутствуетПродолжительность: 01:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF9B53793F1F23B192A6C44E0E48ED2F837DB84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461138   (95725) от 06.03.2012
+
+Double B - Мы Любим Власть (2012) [MP3|320 кб/с]<Rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. SM1 ft. KAP1 & GAV - Координаты
+03. Free Blaze - Правильные Люди
+04. KAP1 - Привет Из Ада
+05. Дима (скит)
+06. GAV - Я Против
+07. Ramon & ReD - Джихад
+08. Rebus - Какая То Статья
+09. Magic MC - Dust City (при уч. Kap1)
+10. Серенада (скит)(   Читать дальше...   )2012Жанр: RapПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C1FDC2AC4D6D7CDBAAC97015BE1DE352D81A84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462558   (95726) от 06.03.2012
+
+VA - The Technosopher's Stone [WEB] (2011) [FLAC|Lossless]<Psychedelic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xenoscapes - The Fern Dimension (8:00)
+ 02. Brujo's Bowl - Techno Trousers (9:04)
+ 03. Psilocybe Vibe - Rhododendron (5:58)
+ 04. Dharana - The Pit (9:50)
+ 05. Radioactive.Cake - Human Body Part Industry (8:50)
+ 06. Loagsta - Delivery (7:41)
+ 07. Carnivorous Vuduist - Nebel Des Krieges (8:00)
+ 08. Nikroma - Forest Freq (8:12)
+ 09. Sporangia - Endospore (6:48)
+ 10. Zeitgeist - Technokrates (8:49)(   Читать дальше...   )2011Жанр: PsychedelicПродолжительность: 01:39:44
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461713   (95730) от 06.03.2012
+
+Yori Swart - Yori Swart (2012) [MP3|320 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rest Your Eyes
+02. I Say Nothing
+03. Secretly Sleeping
+04. Make Me Stay
+05. Complacency
+06. Oh Lord
+07. Give You All
+08. Feathers
+09. Weeping Willows
+10. Come On Over2012Жанр: PopПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462894   (95738) от 06.03.2012
+
+Earl Carter - My Paradise (2007) [FLAC|Lossless]<Smooth Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acid Intro (Prelude) (0:59)
+02. Jammin' At The Alley (4:09)
+03. My Paradise (4:31)
+04. Latin Fever (3:24)
+05. My Boo (4:12)
+06. Happy Anniversary (3:53)
+07. Indian Summers (3:41)
+08. Come With Me (Interlude) (2:10)
+09. The Head Bobber (3:23)
+10. In Your Mind (4:40)(   Читать дальше...   )2007Жанр: Smooth JazzПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463545   (95740) от 06.03.2012
+
+VA - Timegate 2012 (2011) [MP3|~254 кб/с (V0)]<Psy-Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect Stranger - A Mosquito Bit My Leg [11:35]
+ 02. Electrypnose & Psyberpunk - Indian Sun (Argonaute Rmx) [08:22]
+ 03. Principles Of Flight - Hammering Diamond Walls [06:54]
+ 04. Cyklones - Blaspheme [07:09]
+ 05. Aslak - Tumulus [07:33]
+ 06. Sybarite - The Growler [07:38]
+ 07. Psyberpunk - Fritz The Cat [06:52]
+ 08. E-Clip - Asia Tribe [07:17]
+ 09. D_Root - Grain [07:05]
+ 10. Mnnsk - Behin-Db-Rain [05:57]2011Жанр: Psy-ProgressiveПродолжительность: 01:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B36F2E25555F2211C4E4EBBE667B76E1B5920A36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463353   (95749) от 06.03.2012
+
+VA - Trance. Vocal Fascination 14 (06.03.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95749.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marco V - Unprepared (Recharged Original Mix)
+002. MaRLo feat. Jano - The Island
+003. Khoa & Martin Pres Khoma feat. Alisha Nauth - Over Soon (Train) (Original Mix)
+004. Kris Mclachlan & Costa Pantazis - Patience
+005. Majai - Motion Flash (Elevation Big Room Remix)
+006. Marcia Juell - Calling (5aint's Airplay Extended Mix)
+007. Mark Otten - Libertine
+008. Markus Voorn - Emotional Dreams (Original Mix)
+009. Max Graham feat. Neev Kennedy - So Caught Up (Original Mix)
+010. Jonas Stenberg - I Will Find You (Paul Ercossa Remix)(   Читать дальше...   )06.03.2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E09C4AC6EFF38F0C1E4EE6C256BFEBB8CF268C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 463741   (95753) от 06.03.2012
 
 Журнал | Автомир [Россия] №10 [март 2012] [PDF]
@@ -526,189 +748,6 @@ Arminstel - Trance Evolution vol.70 (04.03.2012) [MP3|320 кб/с]<Uplifting Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A60CB3D1262A962FA0EFDC12DAEDC338B9D04BC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463344   (95854) от 07.03.2012
-
-[EN] Лэвелл Кроуфорд: Может Брат Получит Некоторую Любовь? / Lavell Crawford: Can a Brother Get Some Love? (2011) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комик Лэвелл Кроуфорд быстро прогрессирует в своем жанре и, завоевав второе место в последнем конкурсе комических ситуаций телеканала NBC, становится, таким образом, восходящей звездой. В фильме Лэвелл возвращается в исторический театр Орфеум в его родном городе Сент-Луисе, где выступает с уморительными шоу. Затрагивая такие темы как жизнь на небесах, о президенте Обаме, о материнской безоговорочной любви и о универсальных правилах продуктовых магазинов, в которых она делает покупки, Лэвелл заставит вас громко смеяться при просмотре этой настоящей классической комедии.Жанр: КомедияРежиссер: Майкл ДраммАктеры: Лэвелл КроуфордПеревод: ОтсутствуетПродолжительность: 01:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41CC086960BA9C33AB5BC4F32CB1B76F3F2052D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463700   (95869) от 07.03.2012
-
-VA - Sense Of Trance #24 (06.03.2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95869.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hydrogenio - 777 (Ben Gold Remix)
-002. Faruk Sabanci - As Faces Fade (Alexander Popov Remix)
-003. Cozmoz - Beyond Inner Limits (Original Mix)
-004. Veracocha - Carte Blanche (Dabruck & Klein Remix)
-005. Fadios & Raneem - Chromium (Max Graham Remix)
-006. Walsh & Coutre vs. Darin Epsilon - Detour On 44 (Dousk Remix)
-007. Sean Bay - Dualis (Sean Bay Remix)
-008. Nick Callaghan & Will Atkinson - Eastern Spirit (Original Mix)
-009. Reverse - Endless Journey (Matt Lange Remix)
-010. Gareth Emery feat. Ben Gold - Flash(   Читать дальше...   )06.03.2012Жанр: Uplifting Trance, TranceПродолжительность: 04:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A0ABFDBBF62956C2495C6FB40D8381FB33EAF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463491   (95885) от 07.03.2012
-
-Биатлон. Чемпионат Мира 2012. Рупольдинг (Германия). Мужчины. Спринт 10 км (2012) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мужской спринт 10 км на Чемпионате мира в Рупольдинге (Германия)Жанр: СпортПеревод: Двуголосый закадровый, профессиональный (Сергей Курдюков и Дмитрий Васильев)Продолжительность: 01:23:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EDCDF4544375C95FCE617C5E2D23A4D3DB5271
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464136   (95890) от 08.03.2012
-
-За год доходы провайдеров выросли до 71,8 млрд рублей
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Число домохозяйств с ШПД выросло на 18% до 21,7 млнДоходы провайдеров от предоставления услуги широкополосного доступа в Интернет частным лицам выросли в 2011 году до 71,8 млрд рублей, говорится в исследовании рынка ШПД от J'son&Partners Consulting. По оценкам компании, к концу этого года показатель вырастет до 81,2 млрд рублей.Число домохозяйств с ШПД выросло на 18% до 21,7 млн (38% от общей суммы). В этом году показатель должен достичь 43%.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464337   (95892) от 08.03.2012
-
-[Картинки] Авиалайнеры. Часть 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотки с сайта PICAVIA.COM
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5140BC6A725331E7FAC2AC876269688A7C3A7388
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464755   (95894) от 08.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 59
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95894.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers]Desktop Wallpapers Pack 59 
-Название: Desktop Wallpapers Pack 59
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1680х1050 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C1FFFC360B01E5D39E221A9D7368A53E99B026
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464732   (95896) от 08.03.2012
-
-Журнал | Top Flight [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95896.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специализированное коллекционное издание о бизнес-авиации. Освещает события мира деловой авиации, дает информацию об изменениях и тенденциях рынка, аналитику и статистику, а также рассматривает актуальные вопросы владения частным воздушным судном.март 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4EAA6A8E6A0CD3D28A108C83C585E5A119C310
 ```
 
 

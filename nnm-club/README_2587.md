@@ -1,3 +1,54 @@
+###  Публикация: 1790568   (68010) от 10.04.2025
+
+Газета | Загадки истории №12 (638) (2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68010.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22180A4834773C349C19AE0EB80FB0EE900D11BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790708   (68011) от 10.04.2025
+
+VA - Hypnotized [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malive - Quintal (Emanuel Satie, Tim Engelhardt Remix)
+02. Maz BR, Antdot, Ginton, Layefa - Jolie Fille (Original Mix)
+03. Michael Ritter & Chris Zippel - Shut Off The Lights (Return To Saturn Extended Remix)
+04. Rodrigo Lapena - Ether (Alan Cerra Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952E0AC7CF294A008AB729E51C5F46345FC83F76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790690   (68012) от 10.04.2025
 
 Bob Sinclar - III (2003) Remixed, 2025, Yellow productions [MP3|320 Kbps] <House, Electro House, Dance-pop>
@@ -622,57 +673,6 @@ magnet:?xt=urn:btih:5CB0B94FA8F475A7F4007B1F32BB271BD0B5957A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92BF1696827B9CD49FDEFF5FD2B51A6C9F3FDC81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790637   (68036) от 10.04.2025
-
-Spin Rhythm XD (2023) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spin Rhythm XD - яркая и динамичная ритм-игра, в которой вам предстоит подбирать в такт мелодиям соответствующие цвета. Доступна полоса, на которой расположены ноты. Требуется вращать доску, нажимать необходимые клавиши в такт песне и исследовать вселенную в поисках самых сочных ритмов. Все песни, звучащие в Spin Rhythm XD выполнены в электронном стиле. Все задники (   Читать дальше...   )Тип издания: RepackРазработчик: Super Spin DigitalЖанр: Экшены, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812C7A36E6455D97F66068D83EACAA3CE96E450C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790710   (68037) от 10.04.2025
-
-VA - Vesna [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Nu Disco, Funky House, Jackin House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Michael Zager Band - Band Let's All Chant
-02. Purple Disco Machine - Beat Fantasy
-03. Mike Chenery - Dirty Funkin' Beats
-04. King Midas; Mike Chenery - Clubbing All WeekЖанр: Nu Disco, Funky House, Jackin HouseПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD59A862E13F334B7081BFE2EB17490EEE30D09
 ```
 
 

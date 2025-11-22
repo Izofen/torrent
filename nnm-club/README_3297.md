@@ -1,3 +1,184 @@
+###  Публикация: 1743515   (105407) от 16.08.2024
+
+Роберт Льюис Стивенсон | Сент-Ив (2015) [MP3, Сергей Килессо]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика, исторические приключения.
+Роберт Льюис Стивенсон (1850–1894) – шотландский писатель и поэт, автор всемирно известных приключенческих романов и повестей, крупнейший представитель английского неоромантизма.
+В основу романа «Сент-Ив» положена история французского дворянина Керуэля де Сент-Ив, оказавшегося во время наполеоновских войн в плену у (   Читать дальше...   )Жанр: Зарубежная литература, классика, исторические приключения, романИздательство: МедиаКнигаПродолжительность: 13:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCDF7CD7749E3E56CAC733F3BC74ED33A94CD22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743518   (105408) от 16.08.2024
+
+Moby - always centered at night (3rd St. DJ Mix) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <electronic, ambient, chillout, techno>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. wild flame (dark1 remix) [00:06:24]
+02. should sleep (Prins Thomas Diskomix) [00:05:10]
+03. feelings come undone (piano remix) [00:06:08]
+04. where is your pride? (mar 29 remix) [00:06:00](   Читать дальше...   )Жанр: electronic, ambient, chillout, technoПродолжительность: 01:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA982A428FCCD8FC65F298672D36FEC5A5C52DA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743464   (105409) от 16.08.2024
+
+Erasure - Chorus  (1991) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chorus
+02. Waiting For The Day
+03. Joan
+04. Breath Of Life(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247A1C0548FB93A16037FBDE431898EAE634A568
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743441   (105410) от 16.08.2024
+
+Журнал | Трудовые споры №7 (235) (июль 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трудовые споры — это журнал о разрешении трудовых конфликтов. В каждом номере — десятки разобранных до мелочей трудовых споров, секреты оформления документов, пошаговые алгоритмы проведения кадровых процедур, оценка рисков работодателя, аргументы для того, чтобы выиграть спор в суде.Жанр: Популярный журналИздательство: ООО "Актион Цифровое издательство"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B996AAFA3AB0B8E2A58C6B6DA2EA7A6D65E0EEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743348   (105411) от 16.08.2024
+
+VA - Neon Retro 5Th Anniversary (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DanielKon - Lucy (4:13)
+02. AWITW - We Were Young (3:47)
+03. Mayah Camara - Into the Sunset (4:02)
+04. PL433 - With You (3:16)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89DCB906B4AB4B654209D999A81ED585275CE611
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743447   (105412) от 16.08.2024
+
+Журнал | Главбух №16 (август 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Главбух» – это издание №1 бухгалтерского мира. В «Главбухе» практические ответы на злободневные вопросы бухгалтерского учета, расчета налогов и зарплаты. Примеры, образцы и готовые решения о том, как поступать в неоднозначной ситуации. Новости бухучёта и налогообложения. Консультации экспертов. Правовая база. Бланки налоговых деклараций, расчётов и др. документов, (   Читать дальше...   )Жанр: Бухгалтерский учетИздательство: ООО "Актион-пресс"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13899F0E64944AAE5E4C0B0D485F2F2BABD4A20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743495   (105413) от 16.08.2024
+
+Роберт Льюис Стивенсон | Странная история доктора Джекила и мистера Хайда (2013) [MP3, Иван Литвинов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Фантастика. Фэнтези. Мистика.
+Роберт Льюис Стивенсон (1850–1894) – шотландский писатель и поэт, автор всемирно известных приключенческих романов и повестей, крупнейший представитель английского неоромантизма.
+Предлагаем вашему вниманию аудиокнигу «Странная история доктора Джекила и мистера Хайда» – знаменитую повесть английского писателя, автора всемирно (   Читать дальше...   )Жанр: Зарубежная литература, классика, фантастика, мистика, повестьИздательство: Студия «АРДИС»Продолжительность: 02:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F54C833CAF92AE6447AF0031F8553A3E466A82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743488   (105414) от 16.08.2024
 
 VA - Nocturna (1979) 2LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -495,195 +676,6 @@ Mark Atkinson - Three Stations East (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3159F199EE8C32F36FF9D60B53AB40699DC76DE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743253   (105433) от 15.08.2024
-
-Veil Of Eternity - Land of the Shadows (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genesis (04:45)
-02. Land Of The Shadows (05:02)
-03. White Crows (04:13)
-04. The Other Side (04:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36808CED4A94653970593E0966D20AD6078C08E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743129   (105434) от 15.08.2024
-
-Early Fox - Free Bird (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Mistery Girl (4:36)
-02. I'm Walking (2:44)
-03. A Change Has Gonna Come (3:53)
-04. Prisoner (4:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C312BDF43D576E57023DD959F6549744837EBD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743131   (105435) от 15.08.2024
-
-Elephant Gerald UK - Outcasts And Castaways (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Painkiller (4:11)
-02. Sweet Wine (5:42)
-03. On A Quiet Afternoon (7:35)
-04. Manana Man (3:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13B0563100871E1FDCBE191D646F8CF4C19CA24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743127   (105436) от 15.08.2024
-
-Dax Butler - Trouble in Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fireman's Ball (4:03)
-02. Sweet Potato (4:21)
-03. Mary O'Connell (3:51)
-04. Blood Needs Spilling (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:890DA25C487178AE0F191473EE444AABB97852C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743123   (105437) от 15.08.2024
-
-Blind Lemon Pledge - Oh so Good (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Bill (3:04)
-02. Junkyard Dog (3:11)
-03. Oh so Good (2:10)
-04. How Can I Still Love You (5:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B2C8A5410E237111655B25C83898E809BBE925
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743125   (105438) от 15.08.2024
-
-Darrell Arnold - Portraits of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shinin' Moon (2:55)
-02. Backwater Blues (4:17)
-03. Big Road Blues (3:39)
-04. Devil Got My Woman (4:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73112AEE4EB9F17ED00F1F6884D8B643ADA667DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743140   (105439) от 15.08.2024
-
-Lou Majaw - The Bluesman of Shillong (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Man of Shillong (0:23)
-02. Come Home (4:44)
-03. I Had a Woman (4:20)
-04. You're Gonna Lose Me (4:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525168C91A3C65D144CE67F42A1629F95AAFDA1B
 ```
 
 

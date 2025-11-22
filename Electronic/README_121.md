@@ -1,3 +1,246 @@
+###  Публикация: 1588424   (191626) от 04.11.2022
+
+VA - Trance 2022 Vol 10 (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Dekay & Sarah Russell - Fragile Flame (Original Mix) (3:51)
+02. 1st in Line & Cris von X - The Light (Darren Porter Remix) (3:07)
+03. Paul Denton - Recoil (Original Mix) (2:55)
+04. Driftmoon & Ana Criado - One Little Step (Original Mix) (3:04)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:085C302FB3F39E1054C53DDF3F902CB4AE8D4A54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588034   (191827) от 03.11.2022
+
+VA - Chilled Beats: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Cool of the Night (Original Mix) (6:39)
+02. Matt Sour - Nighthawk (3:49)
+03. V-Sta - Flashin in the Sun (Original Mix) (2:45)
+04. Zyan Terrance - Overall (2:30)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530FA87F9A14CCCFED790DC6EACB97953CACAA80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657679   (191879) от 06.09.2023
+
+VA - Exploring Trance (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talal - Remy [6:57]
+02. Ninesh Babu - Tribe [6:45]
+03. Basil O'Glue & Nomas - Mission [7:23]
+04. John 00 Fleming - Space Odyssey (Original Mix) [10:26](   Читать дальше...   )Жанр: Electronic, Progressive House, TranceПродолжительность: 04:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D0D021A931F9668C2D11CAF73EC3CA99F23EE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657878   (191897) от 06.09.2023
+
+VA - Outburst Records Presents Prism Volume 4 (2023) [FLAC|Lossless|tracks] <Hard Trance, Hard Techno,Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Space Brothers - Doors (Mark Sherry Remix) [4:46]
+02. Gordon Tennant - Callisto [3:01]
+03. Mark Sherry & Sygma - Beyond Starlight [2:47]
+04. Mark Sherry & Steve Dekay - Smiler [3:12](   Читать дальше...   )Жанр: Hard Trance, Hard Techno,Uplifting TranceПродолжительность: 03:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC3BF7D88C5C880D9E25C61F5867147873E465B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658112   (191899) от 06.09.2023
+
+BT-84 - Lost Years (2023) [MP3|320 Kbps] <Synth-pop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Big City [00:03:59]
+02 - Broken Promises [00:03:54]
+03 - Summer Love [00:03:29]
+04 - Over The Edge [00:03:54](   Читать дальше...   )Жанр: Synth-pop, SynthwaveПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440025D62243579B21CF54DBC52F55E1F25BF6AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657803   (191915) от 06.09.2023
+
+VA - Dancing Services, Vol. 1 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leonora Garcia - Get High [03:59]
+02. Narra - Bodyrock [04:52]
+03. Mags - Cookin beats [05:17]
+04. DiviDance - Out My Head [03:06](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C00DAA085DE3DA68BDB36A33CE8A0F91C8F5DD32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588028   (192044) от 02.11.2022
+
+VA - Deep-House World Vol. 2 (2022) CD, Compilation [MP3|320 Kbps] <Deep-House, Soulful, Deep Groove, Beach House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_192044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulseshaker - Hypnotize
+02. USB - Mountain Talk
+03. 6th Floor Groove - The Dubai Track
+04. Fashion Lovers - Byob(   Читать дальше...   )Жанр: Deep-House, Soulful, Deep Groove, Beach HouseПродолжительность: 01:27:05 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5607B2B55EE79C3C558F9FBE3D9618146C722413
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587607   (192267) от 01.11.2022
+
+Sex Music - Sex Songs Instrumental Melodies for Sensual Exploration (2021) 3CD [MP3|320 Kbps] <Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Meetings [03:26]
+02. No Strings Attached [04:09]
+03. Sins of the Flesh [03:41]
+04. Allure [03:44](   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F26CF0447E500E01B64CD904CE071491AE4B6A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587699   (192306) от 01.11.2022
+
+VA - Wonderful Days: Best Of 90s Classic Rave Tracks (2021) CD, Compilation [MP3|320 Kbps] <Techno, Electro, Euro House, Hardcore>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charly Lownoise & Mental Theo - Wonderful Days
+02. Dune - Hardcore Vibes (Video Mix)
+03. Marusha - Somewhere Over The Rainbow (Short)
+04. Technohead - I Wanna Be A Hippy (Original Mix)(   Читать дальше...   )Жанр: Techno, Electro, Euro House, HardcoreПродолжительность: 05:24:18 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E7187D2D8285AC9E1663B6B6C293FF90FB2C6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657612   (192434) от 04.09.2023
 
 Cygnosic - Demystify (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM>
@@ -450,246 +693,6 @@ Stim Axel - Тишина (2006) [MP3|320 Kbps] <Drum & Bass, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F09700A417F65D095B5828FE69F56B220801623A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 57142   (197019) от 14.06.2023
-
-Aphrodite - Break In Reality (2007)
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jungle Intro
-02. Criss Cross
-03. Holding On
-04. PK Interlude(   Читать дальше...   )Жанр: Drum'n'Bass(Jump Up)/Jungle/Hip-HopПродолжительность: 1:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1862E6D9530DCC12DB15EEB11AA375763823AD66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285561   (197023) от 14.06.2023
-
-Stim Axel - AcousticA (2010) [MP3|320 kbps]<Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -Жанр: Drum & BassПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300F5B20F18909A79879C7C3747D99DF3FFB20F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 179290   (197025) от 14.06.2023
-
-VA - Pirate Station X [Mixed by DJ Gvozd] (26.02.2010) [MP3|320 kbps]<Drum'n'Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Implex And Enei - Lightyers (Respect002 12" Promo)
-02. Mc Jackes Ft. Tc - All About
-03. Adam F + Dj Fresh - When The Sun Goes Down (Commix Rmx)
-04. Subwave - First Time(   Читать дальше...   )Жанр: Drum'n'BassПродолжительность: 01:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8818590CE445289A877411492B4078A92276D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 100073   (197031) от 14.06.2023
-
-Stim Axel - На Радиоволнах... (2008) [MP3|320 Kbps] <Drum & Bass, Vocal>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На Радиоволнах...
-02. Закрыв Глаза...
-03. Дорога На Восток
-04. Даже Не Думала(   Читать дальше...   )Жанр: Drum & Bass, VocalПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794FE22CA8292907AE1B411F8050836764EB2C0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 106672   (197033) от 14.06.2023
-
-Пиратская Станция 7 by Dj Gvozd (Unmixed) (2008) [MP3|128-320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mindscape feat. Ryme Tyme - Planet X (Vicious Circle remix)
-02. London Elektricity - Attack Ships On Fire
-03. Tantrum Desire - Xenomorph
-04. DJ Fresh - Gold Dust(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD326903F389A3CDCDB94DDC2918533526A078C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 79877   (197044) от 14.06.2023
-
-DJ Грув - ЯД (2007) [FLAC|1072 kbps]<Electronic, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ЯД
-02. Люблю тебя (feat. Kennedy)
-03. Поднимите ваши руки!
-04. Хамелеон(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C657B565CAB0739FE80E18D25170A07D08739FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 70400   (197191) от 10.06.2023
-
-John B - To Russia With Love (2008) [MP3|320 kbps]<Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camo & Krooked - Curse of the foture
-02. John B - Mr Freud
-03. Electrosoul System - Anywhere
-04. Simon V - Cloudspotter(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13833B7CE48949C23A3CE5E7445A61027D9EF5CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 79880   (197197) от 10.06.2023
-
-DJ Грув - Белый альбом (2007) [FLAC|946 kbps]<Electronic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Спасите детей
-02. Мне грустно
-03. Ритмы и чувства
-04. Мы можем летать(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C45F1278EBCDF7706A2219FFA9F0FFC4DD63B06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 109746   (197220) от 12.06.2023
-
-Gunsta Sessions - Vol. 2 (2008) [MP3|320 kbps]<Drum&Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_197220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бенzин – Ромео не умрет (Posh Rmx)
-02. Noize Draft – Believe In My Love
-03. Sequent Industry – Train To Space (Rate Remix)
-04. Alex Pusher feat.Katy Magic – Call Of The Universe(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E24F006F78EBA23B5726FD8C157EC8B88D147244
 ```
 
 

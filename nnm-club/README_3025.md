@@ -1,3 +1,216 @@
+###  Публикация: 454996   (93989) от 21.02.2012
+
+VA - Minimal Art v.7 (15.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adelmo - Angela (Oscar And Chester Remix) (7:08)
+ 02. Anton Ishutin - April 12 (Original Mix) (7:17)
+ 03. Damolh33 - Sweep (Original Mix) (6:27)
+ 04. David Temessi – De Ja Vu (Zareh Kan Remix) (7:05)
+ 05. Dich - Erza Fire (Dub Dummies Remix) (8:21)
+ 06. Droplex - Descript (Mr. Wise Remix) (6:30)
+ 07. Edoardo Spolaore - Hope (Original Mix) (7:10)
+ 08. Emrah Celik - Let's Get Dangerous (Gokhan Guney, Emrah Celik Remix) (6:08)
+ 09. Gianni Ruocco – Caribean Week (Original Mix) (6:45)
+ 10. Marcel Knopf - Blood Smell (Dapayk Remix) (7:19)(   Читать дальше...   )15.02.2012Жанр: MinimalПродолжительность: 02:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD329286EA85C203B56C73047C2CC297A937952E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455256   (93994) от 21.02.2012
+
+[Wallpapers] Обои для рабочего стола.
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола,на любой вкус(280 шт.)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB3B6219028615B61FCF322DBDB04046C682A70C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455910   (93995) от 21.02.2012
+
+Julian Sas - Bound To Roll (2012) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_93995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life On The Line (5:01)
+02. Mercy (4:00)
+03. Bound To Roll (3:59)
+04. How Could Iґve Been So Blind (4:36)
+05. Shadow Play (4:40)
+06. Swamplands (4:14)
+07. 30 Days In The Hole (3:25)
+08. The Blues Wonґt Stay (4:19)
+09. Tear It Up (3:08)
+10. Burninґ Brides (5:15)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455058   (94011) от 21.02.2012
+
+Dapayk & Padberg - Sweet nothings (2012) [MP3|192-320 kbps]<Tech-house>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94011.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Too Lazy (6:01)
+2. Play (5:51)
+3. Sweet Nothings (4:55)
+4. Fluffy Cloud (8:13)
+5. Endless Games (3:31)
+6. The Sun Come Up (7:16)
+7. Razorskit (1:52)
+8. Berlin Summer Nights (5:56)
+9. Take These Scissors (5:42)
+10. Backyard (4:33)(   Читать дальше...   )2012Жанр: Tech-houseПродолжительность: 01:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E27F3783B872DDD843A259EFBB4CB252A45308
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455849   (94013) от 21.02.2012
+
+Журнал | Автомир [Россия] №8 [февраль 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94013.jpg" />
+</div>
+
+
+###  Подробнее
+
+АвтоМир — единственный в России еженедельный автомобильный журнал. Самые свежие новости из мира автомобилей. Сравнительные тест-драйвы автомобилей-одноклассников. В каждом номере представляем: автомобиль недели — лидер российских продаж. Концепт-кар — авто будущего. Российские и международные автомобильные выставки и автогонки. Лучшие московские автосалоны и официальные (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FCC00BC2B565461922FEE79D18AC4109366421
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455992   (94037) от 21.02.2012
+
+Albert King & Otis Rush - Door To Door (1998) [FLAC|Lossless]<General Electric Blues>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albert King - Searchin' For A Woman (2:49)
+02. Albert King - Bad Luck (3:06)
+03. Otis Rush - So Close (3:03)
+04. Albert King - Callin' For My Darlin' (2:47)
+05. Otis Rush - I Can't Stop (3:06)
+06. Albert King - Won't Be Hangin' Around (2:17)
+07. Otis Rush - I'm Satisfied (2:57)
+08. Otis Rush - All Your Love (2:26)
+09. Otis Rush - You Know My Love (2:56)
+10. Albert King - Merry Way (2:43)(   Читать дальше...   )1998Жанр: General Electric BluesПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455673   (94058) от 21.02.2012
+
+VA - Four Seasons: Winter mixed by Paul Oakenfold (2012) [MP3|320 kbps]<Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dmitry Globa - La Aurora Boreal
+02. John '00' Flemming - The Astrophysical Nebula
+03. Paul Oakenfold & Robert Vadney - Pop Star (Yahel Remix)
+04. Matisse & Sadko - Amulet
+05. Limbo - Paradox
+06. Solarstone feat. Alex Karweit - Breakaway (Solarstone's Phuture Mix)
+07. Talpa - The Moon (Flegma & Nerso Remix)
+08. Aggresivnes - Futurasia (Blazer Remix)
+09. Oakenfold feat. Tamra Keenan - Maybe It's Over (Organ Donors Perfecto Mix)
+10. Tim Jirgenson - Get Ready(   Читать дальше...   )2012Жанр: Trance, Progressive TranceПродолжительность: 01:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4E271988E3CAE84491EA5A7A22F6FB84B6494C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 455981   (94063) от 21.02.2012
 
 Газета | Сад, огород – кормилец и лекарь. Спецвыпуск №2 (2012) [PDF]
@@ -598,202 +811,6 @@ Southell (Италия) - Alcohol Fueled, Weed Inspired (2011) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E39BBA26B64823453E049AACA06C782896EAD6BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456890   (94172) от 23.02.2012
-
-VA - Sex Room. The Sextape Vol. 1 (2012) [MP3|128 кб/с]<RnB, Rap, Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sex Addiction (Intro) (00:54)
-02. Making Good Love - Avant (02:54)
-03. No Bullsht - Chris Brown (02:55)
-04. So Anxious - Ginuwine (01:40)
-05. Jupiter Love - Trey Songz (03:06)
-06. T-Shirt And Panties - Adina Howard (02:34)
-07. Meeting In My Bedroom - Silk (03:00)
-08. (Untited) How Does It Feel - D'Angelo (03:08)
-09. Seems Like Your Ready - R. Kelly (02:28)
-10. Sex Room (feat. Trey Songz) - Ludacris (03:36)(   Читать дальше...   )Жанр: RnB, Rap, PopПродолжительность: 01:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60DAF4AABFF08413A6D0B34ADF706CEE0AD3D1F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456407   (94176) от 23.02.2012
-
-VA - Jazz for Lovers vol.6 (2002) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Johnny Hartman - The Very Thought Of You (2:45)
-02.Diana Ross - Lover Man (3:23)
-03.Coleman Hawkins & Ben Webster - Tangerine (5:22)
-04.Chet Baker - The Touch Of Your Lips (2:41)
-05.JoГЈo Gilberto - Rosa Morena (Live) (4:00)
-06.Ella Fitzgerald - Call Me Darling (3:33)
-07.Jon Lucien - But Beautiful (6:54)
-08.Erroll Garner - Misty (2:48)
-09.Eva Cassidy - Fields Of Gold (4:42)
-10.Kenny Rankin - Then I'll Be Tired Of You (5:25)(   Читать дальше...   )2002Жанр: JazzПродолжительность: 01:14:35
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455914   (94183) от 23.02.2012
-
-Dave Greenslade - Routes-Roots (2011) [FLAC|Lossless]<Jazz-Rock,  Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Routes (4:57)
-02. A Valentyne (3:47)
-03. Signing Contracts In the Dark (4:26)
-04. Touch of Fire (5:03)
-05. Conversations (5:08)
-06. Fishakka (4:19)
-07. Born in Eternity Time (3:18)
-08. Thanks for Having Me (3:41)
-09. Sideways (3:33)
-10. In Dreams (3:10)(   Читать дальше...   )2011Жанр: Jazz-Rock,  FusionПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456927   (94186) от 23.02.2012
-
-Олег Зоин | Кремляндия [2012] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман написан в жанре альтернативной истории и рассказывает о судьбе России после гипотетического взрыва в результате терракта хранилища боевых отравляющих веществ в маленьком городке Кизнере в Удмуртии в конце 2011-го года.
-Ядовитое облако-убийца, уверенно расширяясь, относится ветром на Северо-Восток, постепенно накрывая Удмуртию, северную часть Татарии и Башкирию и нацеливаясь на Кировский регион, Пермский край и Средний Урал.2012Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F256EB188F1F7D9AA18D04A0E2A7D98676CD2D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456690   (94188) от 23.02.2012
-
-[Wallpapers] Flowering trees
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майское цветение деревьев. Чистый, нежный цвет, осыпающий все деревья, рождает удивительное чувство весны, обновления, светлого и ясного времени года.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53C78CF17ACBFB81AECB80D190AACD53F30CC491
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457042   (94192) от 23.02.2012
-
-Журнал | Т3. Техника третьего тысячелетия [Россия] №2 (февраль 2012) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94192.jpg" />
-</div>
-
-
-###  Подробнее
-
-"T3. Техника третьего тысячелетия" - ведущее европейское издание, ориентирующее потребителя в мире последних достижений в области аудио/видео техники, компьютеров и Интернета, мобильной связи, фотографии, техники для отдыха и развлечений. Находящийся на стыке Lifestyle и техно-сегментов, журнал ориентирован на успешных людей, которые стремятся всегда быть (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DB826F81F2C983D05EA9A05F39CC4A0A90C8D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455296   (94209) от 23.02.2012
-
-Dekolte - Без тебя (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20CE3B64AA6867C5059AA4451C7C09859BB0FFE
 ```
 
 

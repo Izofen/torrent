@@ -1,3 +1,186 @@
+###  Публикация: 1746569   (104887) от 31.08.2024
+
+Ousiodes - The Forest (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Forest (02:04)
+02. Symbol Of Justice (04:10)
+03. The Reclusive Orchestra (05:45)
+04. These Images (04:58)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C5DB7C02391B37F6D52416FBDF8DB9804DC71D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745107   (104888) от 31.08.2024
+
+Футбол. Чемпионат Англии 2024-2025. 2-й тур. Манчестер Сити - Ипсвич Таун (24.08.2024) IPTV [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Чемпионат Англии 2024-2025. Манчестер Сити - Ипсвич ТаунЖанр: Спорт, ФутболЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E04689F52E097A4C89D0DB2E0D911EE4C8B3C18D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746498   (104889) от 31.08.2024
+
+F.O.R. - Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entwine [00:03:24]
+02. Hunger [00:03:57]
+03. Shadows of Love [00:03:22]
+04. Suicide Girl [00:03:37](   Читать дальше...   )Жанр: Gothic Metal, Alternative RockПродолжительность: 00:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3518DCE99D021A4C973A9AF81235CF3113F49F1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746473   (104890) от 31.08.2024
+
+Пятеро на одного (31.08.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00558431CF5EF44FF91EB66E17F62332D7CAE039
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746478   (104891) от 31.08.2024
+
+Attaxe - Braving The Tempest (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Braving The Tempest
+02. The Abyss
+03. Devil's Advocate
+04. Sign Of The Snake(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6B53C3DDE58938FF90312959A0CC68C838AA5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746437   (104892) от 31.08.2024
+
+Conte Candoli & Lee Morgan - Double or Nothin' (1957) 1992, Fresh Sound [FLAC|Lossless|image + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reggie Of Chester [4:38]
+02. Stablemates [5:12]
+03. Celedia [4:44]
+04. Moto [5:45](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2910E49BC5D50C52AD34EFE6F82304B45D751AE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746455   (104893) от 31.08.2024
+
+Юрий Киселёв - Иду за мечтой (2024) [MP3|320 Kbps] <Pop-Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Я не перестану верить в любовь [00:02:57]
+02 - У меня есть всё [00:02:05]
+03 - Bankroll [00:02:31]
+04 - Бомбей [00:01:52](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:20:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1767AC5EC10B105AE80FF11A5D9BBBFB07604795
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746502   (104894) от 31.08.2024
 
 Void of Vision - What I'll Leave Behind (2024) [MP3|320 Kbps] <Electronic Rock, Industrial, Metalcore>
@@ -487,186 +670,6 @@ Joji - Nectar (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R'n'B, Hip-Hop, Neo-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F74828FD701D4A05A428284431B0B0F6762FA946
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746338   (104913) от 30.08.2024
-
-Super Sabre - Steel Wings (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catch me if you can
-02. Electric Love
-03. Shadows in the Sunlight
-04. Steel Wings(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF424251C394BA5DDBDF504E201B82F98CBFF2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823010   (104914) от 09.10.2025
-
-SWORN (2025) [Ru/Multi] (1.0.1.0.1018/dlc) Repack Let'sРlay [Ultimate Edition]
-
->>Win Игры
->>Горячие новинки Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104914.jpg" />
-</div>
-
-
-###  Подробнее
-
-SWORN - это кооперативный roguelike-экшен для 1–4 игроков, где вы освобождаете павший Камелот от тирании заколдованного короля Артура и его рыцарей, объединяясь с друзьями, чтобы дать им бой. Игра предлагает исследовать подземелья, сражаться с врагами и использовать уникальные способности для прохождения миссий в одиночку или в команде.Тип издания: RepackРазработчик: Windwalk GamesЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161ADCD743BE10884385E22EA16CEEA39FF9C58A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746326   (104915) от 30.08.2024
-
-Lamb of God - Ashes of the Wake (2004) 20th Anniversary Edition, 2024, Epic - Legacy [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laid to Rest [00:03:50]
-02. Hourglass [00:04:00]
-03. Now You've Got Something to Die For [00:03:39]
-04. The Faded Line [00:04:38](   Читать дальше...   )Жанр: Groove MetalПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:435B780F821D40D73E495839F85ECB177DDA8F21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823024   (104916) от 09.10.2025
-
-Savara (2025) [Ru/Multi] (1.1.2) Repack Let'sРlay [Collector's Edition]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104916.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом красочном экшен-рогалике вам предстоит погрузиться в восхитительный мир, где у каждого решения есть свои последствия, а хорошая стратегия гарантирует успех. Вас приглашают на грандиозное празднество, организуемое для бога-воителя Иопа. Но расслабиться у вас не получится, ведь главная цель торжества - испытать самых отважных бойцов измерения.Тип издания: RepackРазработчик: Doryah GamesЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Испанский  и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский  и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583550309582E1FB87DE5257337CC7408D287BD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746230   (104917) от 30.08.2024
-
-Blues Indelebile Band - Live in Studio (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoochie Coochie Man (3:58)
-02. I Put a Spell on You (4:49)
-03. Old Love (9:24)
-04. Sunshine of Your Love (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA6F12E08FB32303138AB24E20CC98035208250
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823023   (104918) от 09.10.2025
-
-Звуковые библиотеки - Tomorrowland Academy - Sample Pack: Hard House Vol. 01 [WAV, MID]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор сэмплов «Hard House» от Tomorrowland Academy — незаменимый ресурс для продюсеров, стремящихся создавать мощные, энергичные треки. Возрождение Hard House, пропитанного элементами транса, снова производит фурор на музыкальной сцене. Скачайте эти сэмплы прямо сейчас и начните свой творческий процесс!Формат: WAV, MID
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6F06AFEB70DC6254F753EE428E4BCC07458382
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746238   (104919) от 30.08.2024
-
-SouthSide Tone Kings - Roll All Night (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roll All Night (4:03)
-02. Oh Yeah (4:40)
-03. Running Around (4:49)
-04. She's Gone (5:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F50A42FEE4CF41CF6AA19C9077D9800229EF763
 ```
 
 

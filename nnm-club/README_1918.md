@@ -1,3 +1,57 @@
+###  Публикация: 1736416   (50223) от 12.07.2024
+
+Apocalyptica - Plays Metallica, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Instrumental, Symphonic Metal, Cello Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ride the Lightning [6:48]
+02 - St. Anger [4:19]
+03 - The Unforgiven II [4:06]
+04 - Blackened (feat. Dave Lombardo) [5:59](   Читать дальше...   )Жанр: Instrumental, Symphonic Metal, Cello MetalПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1000B0B082BB47DB7C33E66AE4DB1B9FA0D3F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736384   (50224) от 12.07.2024
+
+Blank & Jones - Relax Edition 15 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Chill out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azure Blue
+02. Bottled Sunshine
+03. Love Will Save the Day (Summer Noire Version) (feat. Zoe Durrant)
+04. Winelight(   Читать дальше...   )Жанр: Electronic, Downtempo, Chill outПродолжительность: 01:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64EA3B75333975049ACC3ACF98A76B2A7E4A88D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736334   (50225) от 12.07.2024
 
 Папуля / Daddio (2023) TS [H.264]
@@ -586,57 +640,6 @@ magnet:?xt=urn:btih:378B8199D3E44B99255C01E1ABBF8749BE89D6B5
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736388   (50249) от 12.07.2024
-
-Eminem - The Death of Slim Shady (Coup De Grâce) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Renaissance [1:39]
-02 - Habits [4:59]
-03 - Trouble [0:42]
-04 - Brand New Dance [3:27](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A55D24E1672F38DAF1511C7A53F08EAB3B86C45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736333   (50250) от 12.07.2024
-
-Mozilla Thunderbird 128.0esr [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_50250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Thunderbird –  легкая и безопасная бесплатная программа для работы с электронной почтой. Thunderbird дает большой потенциал для удобной обработки электронных сообщений, позволяет управлять большим списком контактов и производить множество других операций. В Mozilla Thunderbird присутствует мощнейший спам - фильтр, который можно обучать в процессе работы с (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7B525620E45213BD29C60CDE68C755B23BB0B6
 ```
 
 

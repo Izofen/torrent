@@ -1,3 +1,189 @@
+###  Публикация: 1726104   (108813) от 27.05.2024
+
+Bad News - Every Mistake Imaginable: The Complete Frilly Pink Years 1987-1988 (1987) Reissue, Remastered, 2024, Parlophone Records [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Hey Bad News [00:05:16]
+02. Warriors of Ghengis Khan [00:05:29]
+03. Bohemian Rhapsody [00:12:58]
+04. Bad News [00:05:31](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F2F091AE93DC828F132BFDD16379B88DCC545CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726200   (108814) от 27.05.2024
+
+PhotoRoom 4.9.7 (b1416) Mod by Mixroot [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108814.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 24.05.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE694E2248E93CE5579A44E6017245689263CA19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725965   (108815) от 27.05.2024
+
+Код-дракона - От заката до рассвета (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. От заката до рассвета [00:03:11]
+02. На гитаре [00:03:17]
+03. Дубовая роща [00:03:30]
+04. Тонкая нить 2 [00:03:59](   Читать дальше...   )Жанр: RockПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93259C84C18BE1F78308871BEA80FBFE09631E9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726218   (108816) от 27.05.2024
+
+Sant Andreu Jazz Band & Joan Chamorro - Jazzing 14 Vol.1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Top Hat, White Tie & Tails (2:17)
+02. Bewitched (4:38)
+03. Four Brothers (3:13)
+04. For All We Know (5:40)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E956BFC4A39055FA7358B2C3E62CF6730310430A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726069   (108817) от 27.05.2024
+
+The Lew Tabackin Quartet - I'll Be Seeing You (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Surrender, Dear [6:21]
+02. Wise One [7:11]
+03. I'll Be Seeing You [5:21]
+04. Ruby My Dear [9:13](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600642A3E916B3A4F2455FC4F15957A00E8BA74A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726074   (108818) от 27.05.2024
+
+Tommy Turrentine - Tommy Turrentine (1960) 1993, Bainbridge Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gunga Din [6:42]
+02. Webb City [5:50]
+03. Time's Up [4:13]
+04. Long as You're Living [3:58](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89C1F3F52515D85FFB2A786E6B6EFD5FC436BEA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726214   (108819) от 27.05.2024
+
+Luca Pasqua - My Jazz Side (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories (Alt. Mix) (5:40)
+02. Dust In The Wind (4:46)
+03. Estate (Alt.Mix) (6:08)
+04. Fifty Fifty (6:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46FB0AD9C73A85DC688180032FD5121C05DDDE71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726135   (108820) от 27.05.2024
 
 Christian De Mesones - You Only Live Twice (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
@@ -491,190 +677,6 @@ The Dirty Denims - Party On! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5E69E2B49232ED5E57D29625F6143AE6C102C06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725921   (108839) от 26.05.2024
-
-Deaf Owl - From the Bottom of the Sewers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earthwound [00:04:57]
-02. And I Dove in the Eternal Abyss [00:06:37]
-03. When Churches Burn [00:04:44]
-04. Life Waster [00:04:25](   Читать дальше...   )Жанр: Sludge, Doom MetalПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6B78137E3AEE507298194032E62230F87AE1AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725969   (108840) от 26.05.2024
-
-НашПотребНадзор (26.05.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Копеечный прибор, который снижает риск развития раковых клеток во время загара и защищает кожу от старения: насколько он эффективен? И как правильно защитить кожу от солнца? Верблюжатина, лягушатина, страусятина и даже павлинятина: продажи мяса экзотических животных растут и цены скоро не будут кусаться, потому что содержать их, оказывается, не дороже, чем обычный (   Читать дальше...   )Телекомпания: НТВЖанр: телепередачаЯзык озвучки: РусскийПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C14DEAC44A8DAF59B1C53060D60EF5A90E098B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725976   (108841) от 26.05.2024
-
-Arrayan Path (Ex-Arryan Path) - Studio Albums (9 releases) (2004-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arrayan Path (ранее Arryan Path) — проект певца и автора песен Николаса Лептоса, который объединился в 1997 году с гитаристом Клементом Фунгом при поддержке на протяжении многих лет брата Николаса - Сократа Лептоса2004 - Road To Macedonia
-2010 - Terra Incognita
-2011 - Ira Imperium
-2013 - IV - StigmataЖанр: Epic Power MetalПродолжительность: 09:19:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7DAF4E9EF2F2CF14A41AB9D6E9E96B4DF6F1EC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725987   (108842) от 26.05.2024
-
-Своя игра (26.05.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108842.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. 30-го марта в новой студии начался новый юбилейный турнир, каждый участник которого будет олицетворять собой один год в истории "Своей игры". Турнир будет длиться 30 игр, и победитель получит один миллион рублей!
-
-Во второй круг юбилейного турнира вышли 18 участников из 30 — они продолжат борьбу (   Читать дальше...   )Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99014B8FD4467AFDBE9544363A3608073DDAC23D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725851   (108843) от 26.05.2024
-
-Collateral - Should've Known Better (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108843.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Glass Sky
-2. Original Criminal
-3. One Of Those Days
-4. Teenage Dreams(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25B077BBAD0B81171D9800C5A2772C354697E5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725972   (108844) от 26.05.2024
-
-Сергей Михалков | Дядя Стёпа (1982) [MP3, Николай Литвинов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: «Мелодия – детям».
-Сергей Владимирович Михалков (1913—2009) – советский и русский писатель, поэт, баснописец, драматург, военный корреспондент во время Великой Отечественной войны, автор текста двух гимнов Советского Союза и гимна Российской Федерации, председатель СП РСФСР. Наибольшую известность Михалкову принесли его произведения для детей.
-Слушайте (   Читать дальше...   )Жанр: Русская литература для детей, классика, стихиИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F02DB3D35E53832C4D7CD03662E8F95B487C3093
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725872   (108845) от 26.05.2024
-
-Desolus - System Shock (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. System Shock 04:28
-02. From Man to Machine 04:11
-03. Curse of the Technomancer 03:55
-04. Metal Fetishist 04:01(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C01BD85B3A18D2A26071C1FA1CCC62012536B5
 ```
 
 

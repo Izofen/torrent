@@ -1,3 +1,249 @@
+###  Публикация: 1680816   (133712) от 30.11.2023
+
+Все любят Жанну / Tout le monde aime Jeanne / Everybody Loves Jeanne (2022) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанна летит в Лиссабон, но не одна. В аэропорту она встречает мужчину. На носу очки, в руках розовый пакет-майка. Они откуда-то знакомы, но Жанна никак не может вспомнить откуда. Столица встречает ее живописными видами и ярким солнцем. Самое время для курортного романа. Надо лишь привести в порядок «бабушкину» квартиру. И для этого у нее есть подходящий кандидат.Производство: Франция, Португалия / Les Films du Worso, O Som e a Fúria, France 3 CinémaЖанр: Драма, мелодрама, комедияРежиссер: Селин ДевоАктеры: Бланш Гарден, Лоран Лафитт, Максанс Туаль, Нуну Лопеш, Марта Келлер, Самира Седира, Пэтти Хэннок, Педро ЛасердаПеревод: Дублированный (Pride Production)Язык озвучки: Русский, ФранцузскийСубтитры: Английские, ФранцузскиеПродолжительность: 01:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0BEE8FC58265C00C16B05B541EBCDE27DDE3A7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680727   (133714) от 30.11.2023
+
+Topaz Video AI 4.0.5 (x64) RePack by KpoJIuK [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3CEE67A0B61319F15AFF23B4AA3D00679710B76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594420   (133715) от 26.12.2012
+
+VA - Christmas Chillout: 20 Smooth & Holy Lounge Tunes (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133715.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lemongrass - Frozen Boy (4:37)
+2. Five Seasons - Troubadelles (5:27)
+3. Openzone Bar - Down Under Snowball (4:02)
+4. Corporal Identity - Beautiful U - Zen In Tokyo Dub (1:45)
+5. Alexandra Hampton - Eastern Treasure (4:21)
+6. Man In A Room - Twice Below the Horizon (6:23)
+7. Mauricio Do Amaral - Flocos de neve - Eesquiando no pao de acucar Mix (4:55)
+8. Deja-Move - Send You Love (4:11)
+9. Cote D'Or - Capetown Sunset (5:10)
+10. Janice Andrade - Samba Paixao (4:16)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54677BA1E36683ED84CF3FEAFF4859221895C6C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680695   (133716) от 30.11.2023
+
+Сабрина / Sabrina (1995) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133716.jpg" />
+</div>
+
+
+###  Подробнее
+
+В семье Лэраби предстоит важное событие - свадьба младшего брата. Приданное невесты позволит братьям стать монополистами на рынке коммуникаций. Но все эти планы рушатся, когда из Парижа возвращается красавица Сабрина - дочь шофёра семьи... Вольный ремейк одноимённого фильма Билли Уайлдера (1954) с Хамфри Богартом и Одри Хепбёрн, в основу которого легла пьеса Сэмюэля (   Читать дальше...   )Производство: Германия, США, Constellation Entertainment, Mirage Enterprises, Mont Blanc Entertainment GmbH...Жанр: драма, мелодрама, комедияРежиссер: Сидни ПоллакАктеры: Харрисон Форд, Джулия Ормонд, Фанни Ардан, Джон Вуд (II), Грег Киннэр, Нэнси Марчанд, Лорен Холли, Ричард Кренна, Патрик Брюэль, Энджи Дикинсон, Дэна Айви, Пол Джаматти, Валери Лемерсье, Джон ВеннемаПеревод: профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76ACFE4DA72FC472A669E30A34DFBDC6BD10954A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594115   (133719) от 26.12.2012
+
+Хижина в лесу / The Cabin in the Woods  (2012) [MP3|320 кб/с]<soundtrack>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In The Beginning …
+ 02 - The Cabin In The Woods
+ 03 - Beware The Harbinger
+ 04 - What Could Go Wrong
+ 05 - Places, Everyone
+ 06 - The Cellar
+ 07 - The Diary Of Patience Buckner
+ 08 - Hadley's Lament
+ 09 - We're Not The Only Ones Watching
+ 10 - I Thought There'd Be Stars(   Читать дальше...   )Жанр: soundtrackПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9C4A76E508D47947BB504CD2EBFE7F9CD84B03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594355   (133722) от 26.12.2012
+
+Dan Nimmer Trio - Modern Day Blues (2010) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Bossa
+02. Love Is A Many-Splendored Thing
+03. Cleopatra's Dream
+04. Out Of The Past
+05. Black Pearls
+06. Le Coiffeur
+07. Wabash
+08. How Could You Do A Thing Like That To Me
+09. Uh Huh
+10. I'm An Old Cowhand(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680428   (133723) от 30.11.2023
+
+VA - Донбасс 6 ''Свобода и Доблесть'' (2023) [MP3|320 Kbps] <Alternative Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Черноявь - Армагеддон (Megiddo)_1 [00:04:54]
+02-Руины Вечности - Победа [00:03:42]
+03-Vnreal - The Assignation (Аргентина) [00:04:22]
+04-VEDMAK - Тьма выжженных глаз [00:03:40](   Читать дальше...   )Жанр: Alternative-Rock, MetalПродолжительность: 02:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8FFF6A4788583D47C64DAA17B128BB0F8F2CDD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680788   (133725) от 30.11.2023
+
+Зло во благо / Над законом / Вне закона / Righting Wrongs / Above The Law / Zhi fa xian feng (1986) BDRip [H.265/1080p] [10-bit] [Mandarin Export Cut]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой юрист Ся Лин-Чин собрал много томов документов, обвиняющих короля уголовного мира в совершении ряда преступлений. Но накануне судебного заседания мафия отправила на тот свет главного свидетеля. После чего Ся Лин-Чин понял, что пришла пора вершить правосудие собственными руками.Производство: Гонконг / Bo Ho Film Company Ltd., Paragon Films Ltd., Tai Ho FilmsЖанр: боевик, криминал, комедияРежиссер: Кори ЮэньАктеры: Юэнь Бяо, Синтия Ротрок, Мелвин Вон, Рой Чяо, Кори Юэнь, У Ма, Луис Фань, Пол Чан, Джеймс Тьен, Лау Сиу-МинПеревод: двухголосый профессиональный, авторскийЯзык озвучки: русский, китайскийСубтитры: английскиеПродолжительность: 01:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45B39E5394ED3EC5580F9CACAAB4AA490B544C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680677   (133727) от 30.11.2023
+
+Music Folder Player Full 3.1.31 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Music Folder Player - аудиоплеер, что не может похвастаться какой-то особой красотой или же стилем. Всё просто и наглядно. Зато он предлагает весьма впечатляющие возможности по распределению треков по папкам и тегам, различным отдельным директориям и по прочим параметрам, что разнятся с привычными чертами для этой категории программ. При этом порадует и функционал. (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 15.11.2023Разработчик: ZorillaSoftПоддерживаемая ОС: Android 11+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B617E6400EEDE346DEEED7C6E49BDB890D79E32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594464   (133728) от 26.12.2012
 
 Jeff Lang - Prepare Me Well (2006) [WavPack|Lossless]<Blues>
@@ -416,260 +662,6 @@ magnet:?xt=urn:btih:84E5B9A55644FC0AAFD97EF45AB2564B85902934
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20A2D75E2DA88A092B857A7EFE8B8E76151F5254
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594849   (133750) от 26.12.2012
-
-Ella Trafova & David Goloshokin quartet - I Remember... (1998) [FLAC|Lossless]<Jazz \ Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'S Wonderful (2:42)
- 02. Nice Work if You Can Get It (2:15)
- 03. Solitude (4:20)
- 04. Day Dream (4:49)
- 05. Lullaby of Birdland (3:58)
- 06. I Remember Clifford (5:40)
- 07. Sunday (2:58)
- 08. Body and Soul (4:46)
- 09. Just in Time (2:55)
- 10. Shiny Stockings (3:46)(   Читать дальше...   )Жанр: Jazz \ Vocal JazzПродолжительность: 00:53:50
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680848   (133751) от 30.11.2023
-
-Яндекс.Браузер 23.11.0.2472 (x32) / 23.11.0.2470 (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37EFDDEB64CF418354868497E57C47675AC86CEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594754   (133752) от 26.12.2012
-
-Журнал | АиФ. Дача. Спецвыпуск №22 [2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как необычно, дешево и просто украсить дачный участок своими руками? В данном спецвыпуске вы найдете много свежих идей, "изюминок", оригинальных находок, которыми с вами делятся народные умельцы и дизайнеры-профессионалы.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49029B900EA2792200C1B18DD296E0AAD919B94A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680753   (133753) от 30.11.2023
-
-Журнал | PhotoCASA №3 (75) (октябрь-ноябрь 2023) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133753.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoCASA - красочный иллюстрированный журнал о фотографии как для профессионалов, так и для любителей. В каждом номере журнала - новинки фото и видео-техники, интервью с известными фотографами и знакомство с их работами, а также уроки по обработке фотографий, советы по съёмке и ещё много другой полезной информации.Жанр: Фотография, хоббиИздательство: PhotoCASAФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F385C0C8CDCA746C84093B3D46506A0AFAE89C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680862   (133756) от 30.11.2023
-
-Peter Gabriel - i/o (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Art Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Disc 1: Bright Side Mix]Disc 1: Bright Side Mix
-Disc 2: Dark-Side Mix]Disc 2: Dark-Side MixЖанр: Art-rock, neo-folk, progressive-rock, world-musicПродолжительность: 2CD, 02:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63711A9A90CE25219A69C9B83A1039C4C6C43BDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594749   (133758) от 26.12.2012
-
-VA - Future Progressive Trance Classics Vol.9 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ehren Stowers-Never Forget (Ali Wilson Tekelec Remix) 08:00
- 02. Jhon Fx-Blue Jay 07:41
- 03. Adelaide Carleton-Allegro 07:45
- 04. Arclight & Adelaide Carleton-Darkstorm 06:50
- 05. Marvin La Rose-Through Her Eyes 05:39
- 06. Sg Blaster-Set Me Free (Angello T Remix) 07:17
- 07. Walk Alone-Anesthesia (Magic Mix) 07:33
- 08. Miroslav Vrlik & Blugazer-Lost & Found 07:04
- 09. Dmitry Glushkov-One 07:00
- 10. Deejayz on Fyre-Condor 08:49(   Читать дальше...   )Жанр: TranceПродолжительность: 03:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B9F89FB0EA9A7EF4139976D6DA83BC47325B12B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594405   (133762) от 26.12.2012
-
-Butterfly - NYE 2012 on ES Radio (24.12.2012) [MP3|320 кб/с]<Progressive Trance, Melodic Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keith Kenniff -  Striation (Intro Original Mix)
-02. Naden -  Cellar Door (Original Mix)
-03. Santerna -  Transparency (Original Mix)
-04. Nitrous Oxide & Hodel  -  Safe (Karanda Remix)
-05. Estiva & Cardinal feat. Arielle Maren -  Wait Forever (Estiva Mix)
-06. Heatbeat -  Chow Mein (Tangle & Mateusz Remix)
-07. Boom Jinx & Daniel Kandi -  Azzura (Original Mix)
-08. Jaytech -  Multiverse (Mimax Remix)
-09. Andy Moor -  K Ta (Original Mix)
-10. Spark7 -  Insania (Original Mix)(   Читать дальше...   )Жанр: Progressive Trance, Melodic TranceПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F69838096E25B723DBE84C9E0AC0A48ADCBF5AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680799   (133763) от 30.11.2023
-
-Shazam (шазам) 14.3.1-231120 Lite-Mod by inqvizitor [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shazam (шазам) - невероятно популярное и очень удобное приложение для поиска музыки. Программа гарантированно пригодится любому пользователю, даже тому кто не любит музыку. Регулярно происходят случаи когда понравившаяся мелодия незнакома. С помощью данной программы можно быстро и без лишних действий узнать всё о выбранном треке. При этом сохраняется высокая степень (   Читать дальше...   )Тип издания: Lite-Mod (облегчённый)Релиз состоялся: 22.11.2023Разработчик: Apple Inc.Поддерживаемая ОС: Android 9.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91638FAB2182968AE84FE0F12784975E336C2D5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594424   (133764) от 26.12.2012
-
-VA - Housepital's Secret Club Weapons Vol.1 (2012) [MP3|320 кб/с]<Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_133764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Burn - Morphine
-02. Nopopstar - Shakes Yeah
-03. Christian Arenas - Out of Line - Martin Dhamen Remix
-04. Nestor Delano - One and Only - Junior Faria Remix
-05. Wow & Flute - This Goes Out! - Adrian Funk Remix
-06. Baramuda - Fiesta en Paris
-07. ST. ELM8 - Timezone
-08. Andy Leka - Eclipse
-09. Sound Blast Stereo - Bassa
-10. Blacktron - 32 Km - Lucas & Steve Remix(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23584F8A73FC8BB0FC444114CF793957BEFEDEB5
 ```
 
 

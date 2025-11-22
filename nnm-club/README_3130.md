@@ -1,3 +1,198 @@
+###  Публикация: 487796   (100456) от 25.04.2012
+
+Журнал | Простые рецепты здоровья №4 [апрель 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание для всех, кто стремится быть здоровым. Выпуск посвящён витаминам, их полезным свойствам, а также болезням, прогрессирующих из-за их нехватки.апрель 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4968B6559780BAC13B8F6178E6BD2616AB33A686
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487929   (100457) от 25.04.2012
+
+Журнал | Любимая дача №5 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимая дача - популярный иллюстрированный журнал о загородной жизни круглый год. Информация на любой вкус: советы и рекомендации о том, как обустроить дачный участок, как построить дом; инструкции для тех, кто стремится сделать дачный ландшафт красивым и уютным.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6FA900E94A11C7A51DD62B2B13E939873E28F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488125   (100458) от 25.04.2012
+
+DJ Kocmoc - Electro Sensation vol.25 (17.04.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100458.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ugostar & Daxto feat. Lyya Rokk - Dont Go (Emanuel Kosh Remix)
+2. Base Attack - Techno Rocker (Dimasound Remix)
+3. Purple Cocktail feat. Anna Star - I'm Alive (Original Mix)
+ 4. Markanera Nita - Watching The Sun Go Down (Extended Mix)
+5. Paul Johns - It's Over (DJ Naytove Remix)
+6. Dimasound - Fall in love
+7. DJ DimixeR - We Want Summer (Original mix)
+8. Hotfunkboys feat. Melillavox - Smackdown (DJ Solovey Remix)
+9. Ramada - Clap Your Hands (Ser Twister Remix)
+10. Sergey Forks - Summer Days (Original Mix)(   Читать дальше...   )17.04.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97ADB8A79B1AD688B2CB4B009660A0DD5767794
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488161   (100459) от 25.04.2012
+
+Вечерний Ургант. Выпуск №7 (2012.04.25) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5760C0CD263E03E120C077643C5C66199F1F7FD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487827   (100461) от 25.04.2012
+
+Fear Factory - Recharger [Single] (2012) [MP3|256 кб/с]<Death Industrial / Groove>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100461.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Recharger2012Жанр: Death Industrial / GrooveПродолжительность: 00:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD4BF189C6D8AAF14890B4B2B5A4D884B48EEC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487615   (100462) от 25.04.2012
+
+VA - Весенняя Атмосфера Танцевальная (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100462.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Градусы - Кто ты (Pheromons Project Radio Edit) (4:26)
+2. Chris Parker - Space 1977 (4:39)
+3. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Radio Edit) (3:03)
+4. Richard Durand feat. Kash - Explode (2:51)
+5. Размер Project - Россия Рулит (Dj Maxsimum Remix Club Mix) (4:55)
+6. Milena - Goroda (MaXimA Radio Edit) (3:29)
+7. Serebro - Mama Lyuba (Gennady Adamenko Remix) (5:08)
+8. Aruba Ice & Cheeky Bitt - Планета Любовь (Denis Kenzo Remix) (6:24)
+9. Вера Брежнева и Потап - Пронто (DJ Miv & DJ Hit Ural Mix) (2:40)
+10. Анна Семенович - Не Мадонна (Dj Vengerov Remix) (3:01)2012Жанр: PopПродолжительность: 06:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B7CD08D1E4021AB828337E9692D1F25854FEA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488191   (100464) от 25.04.2012
+
+VA - Dancefloor Matrix 2012 (2012) [MP3|320 кб/с]<Club, House, Dance, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laurent Veix & Eric Sanchez - Love People 2012 (Radio Edit)
+02. DJ RM & Luke Jeferson - Bing Bagaboum (Fred De F Radio Mix)
+03. Joshua Grey & Bernie X & Terri Bjerre - I Need This Rhythm (DTD Remix)
+04. Eric Sanchez - Turn Off The Bass (Radio Edit)
+05. Andrew Phillips - They Got The Funk (Ian Osborn & Jeremy Reyes & Nicolas Francoual Remix)
+06. David Mas - Turn Around (Radio Edit)
+07. Tony Marquez - In Love With The Music (Feat Phylly - Radio Edit)
+08. Chris Luce - Save My Life (Feat Emmanuel Grimaldi - Luke Jeferson Radio Edit)
+09. DJ Crazy - Dreamcode (Feat Vicky Verssace - Bomb Hard Original Mix)
+10. Danny S - Keep Me Hanging On (Klaas Mad Saw Mix)(   Читать дальше...   )2012Жанр: Club, House, Dance, TranceПродолжительность: 01:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDBDEAE19F64A1A586C5FF15D0E3157CE52E056C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488130   (100466) от 25.04.2012
 
 DJ Kocmoc - Electro Sensation vol.26 (23.04.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
@@ -537,192 +732,6 @@ magnet:?xt=urn:btih:C64A9F79D8F91E5D42DC5613DE0AA1B085F5B299
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBC90FF10411BE118DD7453D51784C369B54D716
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488075   (100501) от 26.04.2012
-
-[Wallpapers] Sexy Girls Pack Wallpapers (26.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4368x2730
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFB8C7A30DA1E864E6A3A031F65455D45891D1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488076   (100502) от 26.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (26.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4443x3520
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:406EEE17D9888DE0E256AFC4BC527528991DC5B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488479   (100503) от 26.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls (27.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 7200х5600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:090574B70836FA8DAD83CE19F80AEF001BDE246D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488167   (100504) от 26.04.2012
-
-Phil Keaggy - Instrumental Anthology (1996 - 2008) [MP3|320 кб/с]<Instrumental Guitar, CCM>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100504.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 (00:45:58)
-
-01 Animal (1996)
-02 Highland (1996)
-03 Beyond This Day (1996)
-04 Lockdown (1999)
-05 Swing Low, Sweet Chariot (1996)
-06 Abide With Me (2002)
-07 Praise Dance (1997)
-08 Blue Room (2001)(   Читать дальше...   )1996 - 2008Жанр: Instrumental Guitar, CCMПродолжительность: 01:28:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B37BBBA59558DB465053C2A9009AD1DAAFB456
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488304   (100505) от 26.04.2012
-
-Журнал | Копилка семейных советов №8 [апрель 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100505.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Копилка семейных советов» - полезные советы для дачников и огородников по дизайну и уходу за растениями, кулинарные рецепты, оздоровительные и юридические советы, советы по воспитанию детей, благоустройству дома, рукоделие, секреты жизни звезд и многое другое.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E578BA47F972E874CFE40CF72B85FDDA8DB84345
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487833   (100506) от 26.04.2012
-
-VA - Клубные Новинки Vol.64 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel & Jozhy K - Number One (Lessov Dub Remix)
-02. Mescis - Lately (Proper Heat Remix)
-03. Cosmic Gate & Arnej vs. Markus Schulz feat. Departure - Sometimes They Come Wthout You Near (Gabriel & Dresden Mashup)
-04. Vadim Koks - Exoskeleton (Original Mix)
-05. Titus1 feat. Terri B! - Let It Ring (Original Mix)
-06. South Ground - Let's Rock (Original Mix)
-07. Jeter Avio feat Vera Fisher - I Will Stay (M.O.O.N. Pro Remix)
-08. JoJo - Disaster (Baggi Begovic Remix)
-09. Ivan Demsoff, Burzhuy, LMD feat. Ira Champion - One Cup The Kaffein (Original Mix)
-10. Cedric Gervais & Cid - Playa (Original Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D66211B7FEC963573CCFEEE451FFB6524E621B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488291   (100507) от 26.04.2012
-
-[Wallpapers] Texture pack 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстурные обои(фоны) для рабочего стола.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42CE714BE502B03CB33A73FA30E3B0CB8C5AF529
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1805612   (12227) от 07.07.2025
+
+Victor Feldman - The Arrival of Victor Feldman (1958) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serpent's Tooth [3:28]
+02. Waltz [5:31]
+03. Chasing Shadows [3:59]
+04. Flamingo [3:18](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Mainstream JazzПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B32F7FBD95E4269BEDA1843CFC99A9869B60ADC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805659   (12228) от 07.07.2025
 
 Depravity Brothers - The Enemy Within (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -620,30 +647,6 @@ Cockos Reaper является одной из самых продвинутых
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AD59FB7CE76B323BEC9DFC0A098D9DA1A3EEC83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805634   (12253) от 07.07.2025
-
-LibreOffice 25.2.4.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_12253.jpg" />
-</div>
-
-
-###  Подробнее
-
-LibreOffice - офисный пакет с открытым исходным кодом, являющийся ответвлением от проекта OpenOffice.org и претендующий на роль бесплатной альтернативы пакету офисных приложений Microsoft Office. В состав программы входят текстовый редактор Writer, табличный процессор Calc, мастер презентаций Impress, векторный графический редактор Draw, редактор формул Math и модуль (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE12E82DB5E9323693890ED027023B46AA6B0109
 ```
 
 

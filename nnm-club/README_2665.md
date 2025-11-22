@@ -1,3 +1,57 @@
+###  Публикация: 1782424   (70038) от 28.02.2025
+
+Megadeth - The World Needs A Hero (2001) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disconnect 5:20
+02. The World Needs A Hero 3:52
+03. Coming Home 2:35
+04. Moto Psycho 3:06(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC1201EAED5C2D53B54D968DA12639EF9B59E67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782155   (70039) от 27.02.2025
+
+Django Reinhardt - Rare Django (1928 - 1938) 1990, Disques Swing [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moi aussi [2:46]
+02. Griserie [2:49]
+03. Carinosa [2:58]
+04. Si j'aime Suzy [2:55](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:585ED912F5020CFA2441B55B605191F0427A6D19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782153   (70040) от 27.02.2025
 
 Andrei Kondakov-Victor Dvoskin Project - Deserted Park (1993) 2024, Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
@@ -625,57 +679,6 @@ VA - I Love Tocata 80s (2012) [AAC|320 Kbps] <Italo-Disco, Euro-Disco, Hi NRG>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13D80233AAEA8F6FAE6F46E84E158897D06C1615
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782160   (70064) от 27.02.2025
-
-Шрифты - MyFonts - Munchio [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем рукописный шрифт, который сочетает в себе повседневность и смелый, резкий стиль. Вдохновленный динамичными штрихами маркера, этот шрифт создан, чтобы сделать ваши проекты выдающимися. Работаете ли вы над брендингом, плакатами или цифровыми медиа, этот шрифт привнесет подлинный, игривый штрих, который привлечет внимание и оставит неизгладимое впечатление. (   Читать дальше...   )Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF27509EF3D46259325BF6B14692C281174EC1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782183   (70065) от 27.02.2025
-
-VA - Trance In Motion. Vol.386 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - Lethal Industry (Rose Ringed Extended Remix)
-02. Eximinds & Alexander Komarov with Nerissa Simmone - Until Sunrise (Extended Mix)
-03. Talla 2XLC & Fragma - Toca's Miracle (Extended Mix)
-04. Ishiro & Starry Major - Echoes Of Waves (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E68ABDD7F373D64FF02518C71696A074668A00
 ```
 
 

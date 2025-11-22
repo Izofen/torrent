@@ -1,3 +1,30 @@
+###  Публикация: 969474   (146192) от 27.12.2015
+
+Recovery USB-flash for Asus X555 LN / Windows 8.1 (х64) [Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146192.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Asus_X555LN_W81.tib
+записанной на ноутбуке Asus x555ln-xo184h (90nb0642-m05630)
+с помощью программы Windows Recovery Media Creator.
+Образ флешки создан программой Acronis True Image Home 2013.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC60F0498D70EBA62B54CA9FA26B374F7CD6B587
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518914   (148924) от 23.12.2021
 
 Microsoft Windows 10.0.19044.1415, Version 21H2 (Updated December 2021)  - Оригинальные образы от Microsoft MSDN [Ru]
@@ -631,33 +658,6 @@ Windows 11 - это серия операционных систем, разра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F3A9BCCB3A436A6230D365EE27B60A063CD5C11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598862   (161138) от 21.12.2022
-
-Microsoft Windows 10.0.19044.2364, Version 21H2 (Updated December 2022) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_161138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 November 2021 Update (под кодовым названием "21H2") является двенадцатым и текущим основным обновлением Windows 10 в качестве накопительного обновления до обновления за май 2021 года и имеет номер сборки 10.0.19044.
-
-Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.2364.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B19CE3F24A82E4F43B0AD9BE7E2996220C4945E
 ```
 
 

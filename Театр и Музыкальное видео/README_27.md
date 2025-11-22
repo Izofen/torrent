@@ -1,0 +1,705 @@
+###  Публикация: 470204   (83095) от 19.03.2012
+
+Gregorian - Christmas Chants & Visions - Live in Berlin (2008) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Maria
+02. Silent Night
+03. When A Child Is Born
+04. Sweeter The Bells(   Читать дальше...   )Жанр: New AgeРежиссер: Frank Peterson (for Nemo Studios)Актеры: Richard Naxton, Johnny Clucas, Dan Hoadley, Christopher Tickner, Gerry O'Beirne, Rob Fardell, Jan-Eric Kohrs, Lawrence White, Gunther Laudahn, Richard CollierПеревод: ОтсутствуетПродолжительность: 01:22:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471656   (83696) от 22.03.2012
+
+Мегамикс Philizz Video YearMix 2012 Vol. 1 Пиратская Вечеринка HD x264 1080p 3,9Gb
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый сборник клипов: Вы долгое время ждали и теперь он здесь. Все закручено и заверчено мегамиксом от голландского ви-джея Philizz.
+И «фирменный стиль» выдержан, и нечто новое привнесено. Приятного просмотра YearMix 2012! Продолжение следует!Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуетсяПродолжительность: 00 часа 54 мин 28 сек (00:54:28)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D09B742AFC7BA32399B0D5DCCEF09BBCB124E70B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471786   (83711) от 22.03.2012
+
+Протоиерей Олег Скобля. Московский концерт / Протоиерей Олег Скобля. Московский концерт (2009) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83711.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Снег
+2. Клинопись
+3. Нательные крестики
+4. Блудный сын
+5. Ангел хранитель
+6. Господи. Слава Тебе
+7. Господи, Тебе пою
+8. Поиграй в любовь
+9. Небесный ЧеловекЖанр: Православная авторская песняРежиссер: Чирсков АлексейПеревод: ОригинальныйПродолжительность: 00:38:48
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471867   (83746) от 22.03.2012
+
+Monsters of Metal Vol.8 (2012) 2хDVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_83746.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD1
+01 Nightwish — Storytime
+02 Deathstars — Metal
+03 Pain — The Great Pretender
+04 Amorphis — You I Need
+05 Opeth — The Devils Orchard
+06 Lacuna Coil — Within Me
+07 Therion — Kali Yuga Part 3: Autumn Of The Aeons
+08 Leaves Eyes — Take The Devil In Me
+09 Tristania — Year Of The Rat(   Читать дальше...   )Жанр: Heavy / Power /Gothic /Symphonic / Death and more MetalПродолжительность: 03:05:40+03:08:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472455   (84048) от 24.03.2012
+
+Дуэт / Стихи Ахматовой и Цветаевой читает Михаил Козаков (1999) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Козаков читает стихи Анны Ахматовой и Марины Цветаевой.Жанр: поэзияРежиссер: Людмила ХмельницкаяПродолжительность: 00:26:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88C705C9A4012FEA73B6F37C79C4CB06A6296C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472892   (84078) от 24.03.2012
+
+Любовные кружева / Театр на Фонтанке (2004) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: комедия, спектакльРежиссер: Семён Спивак, Михаил ЧернякПродолжительность: 02:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEAEE1813C4550DB300093FBE180F52581610A28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472517   (84246) от 25.03.2012
+
+Скрипка Ротшильда / Московский ТЮЗ (2010) TVRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84246.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Скрипка Ротшильда" - последняя часть чеховской трилогии "Жизнь прекрасна!" Камы Гинкаса.
+
+Художник Сергей Бархин выстроил на сцене причудливый деревянный городок, в котором протекает бессмысленная жизнь гробовщика Якова Бронзы, которого лишь смерть жены заставляет вспомнить о ценности человеческой жизни, о сочувствии к людям.
+
+Спектакль - лауреат премии "Золотая маска" (2005) в номинациях: "Лучший спектакль большой формы" и "Лучший художник".
+Валерий Баринов и Игорь Ясулович стали лауреатами премии им. К.С. Станиславского (2004).Жанр: драма, спектакльРежиссер: Кама ГинкасПродолжительность: 01:23:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:121726663A7626D5D5860A591BA5974DDFCB1F7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472504   (84295) от 25.03.2012
+
+Angel Voices. Libera in Concert(2007) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы постоянно слушаем музыку, но мы даже не задумывались о том, что есть церковный хор, который как показалось на первый взгляд не отличается от остальных. Но, что мы видим это не просто кучка подростков поющих церковные песнопения, это группа детей профессионально занимающихся музыкой и вокалом. Они дают понять нам, что музыка это не просто слова и мелодия, а это отголоски нашей души. Ив каждой новой песне мы слышим их по разному. Libera — это то к чему стремится каждый 2-ой человек планеты — спокойствие и душевный покой.
+
+Этот концерт дает понять нам, что все к чему мы стремимся это покой и мир в наших сердцах.
+Libera Official websiteЖанр: BoysChoirРежиссер: Phillip ByrdАктеры: Jonathan Barrington, Tiarnan Branson, Oliver Cole, Tom Cole, Liam Connery, Ben Crawley, Tom Cully, Edward Day, Steven Geraghty, Michael Horncastle, Michael Horncastle, Alexander Leggett, Sam Leggett, Zack Lockett, Joshua Madine, Conor O'Donnell, Callum Payne, Fiona Pears, Benedict Philipp, Robert Prizeman, Joseph Snelling, Michael Vereycken, Jakob WoodПеревод: ОтсутствуетЯзык субтитров: АнглийскиеПродолжительность: 0:55:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473037   (84332) от 25.03.2012
+
+Принцесса Турандот (1971) DVDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Комедия, Сказка, Семейный, с элементами капустникаРежиссер: Рубен Симонов, Александр ШоринАктеры: Василий Лановой (Калаф), Юлия Борисова (Турандот), Юрий Яковлев (Пантолоне), Людмила Максакова (Адельма), Михаил Ульянов (Бригелла), Михаил Дадыко (Альтоум), Эрнест Зорин (Труффальдино), Николай Гриценко (Тарталья), Евгений Федоров (Исмаил), Екатерина Райкина (Зелима), Анатолий Кацынский (Тимур), Гарри Дунц (Барах) и другие.Продолжительность: 02:20:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08473766AA3BB816C424AA3CA54040BBCA01C4D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473432   (84515) от 26.03.2012
+
+Iron Maiden - En Vivo! (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84515.jpg" />
+</div>
+
+
+###  Подробнее
+
+EMI 26 марта выпускают новый концертный релиз IRON MAIDEN, "En Vivo!", который будет доступен на Blu-Ray, 2-DVD и 2-CD. Его съемки состоялись на выступлении 10 апреля в Сантьяго перед 50 000 поклонниками, которое проходило в части "Round The World In 66 Days" из "The Final Frontier World Tour", достойно запечатлев как небывалый энтузиазм и самоотдачу чилийских поклонников, так и отразив всю суть IRON MAIDEN образца 2011 года.
+Концерт снимался на 22 HD-камеры и октокам (летающая камера над толпой перед сценой), записан в стерео и 5.1-формате, сведение которого осуществил Kevin "Caveman" Shirley, каждый из них только подчеркивает невероятную атмосферу выступления. Особым моментом релиза станет возможность близкого наблюдения за каждым музыкантом на разделенном экране, а сет-лист плавно варьируется от классических произведений до номеров с последнего альбома.Жанр: Heavy MetalПродолжительность: 01:27:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473737   (84613) от 26.03.2012
+
+Iron Maiden: En Vivo! (2011/2012) [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Iron Maiden 26 марта 2012 года выпустила концерт "En Vivo" в формате Blu-Ray, двойного DVD, а также саундтрека на CD. Шоу "En Vivo" было снято 10 апреля 2011 года в присутствии 50 тысяч восторженных фанатов на стадионе Estadio Nacional в Сантьяго (Чили) в рамках финальной части глобального тура The Final Frontier World Tour под названием (   Читать дальше...   )01. Satellite 15
+02. The Final Frontier
+03. El Dorado
+04. 2 Minutes To Midnight(   Читать дальше...   )Жанр: Heavy metal, concertПродолжительность: 01:55:10
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473570   (84631) от 26.03.2012
+
+Iron Maiden: En Vivo! (2012) [1080p] Blu-Ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84631.jpg" />
+</div>
+
+
+###  Подробнее
+
+EN VIVO! was filmed on April 10, 2011, in front of over 50,000 ecstatic fans at the Estadio Nacional, Santiago, during the Round The World In 66 Days leg of The Final Frontier World Tour, and captures a magnificent performance by the band, ardently embraced by the legendary Latino passion and energy of their Chilean fans. With spectacular stage backdrops, dynamic musicianship and a literally jaw-dropping appearance by Eddie, this live show encapsulates to perfection the heart and soul of Iron Maiden 2011.
+Bass player and founding member Steve Harris comments, For The Final Frontier Tour, it was really important to me that we filmed in South America as we re always so overwhelmed by the fans reaction when we go to that part of the world and I wanted to reflect that in the filming. After much consideration, we chose the Santiago show as we felt it was one of our best performances of the entire tour and to play at the prestigious Estadio Nacional was a landmark moment for us. For reasons known to our fans, it took (   Читать дальше...   )1. Satellite 15
+2. The Final Frontier
+3. El Dorado
+4. 2 Minutes To Midnight
+5. The Talisman
+6. Coming Home
+7. Dance Of Death
+8. The Trooper
+9. The Wicker Man
+10. Blood Brothers(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:55:59
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474092   (84939) от 28.03.2012
+
+Hammerfall - Клипы (1997 - 2009) DVDRip-AVC
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F1B1D93C5EC67326741A32FFD3A23AFE704E6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474313   (84954) от 28.03.2012
+
+Iron Maiden: En Vivo! (2012) BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_84954.jpg" />
+</div>
+
+
+###  Подробнее
+
+«En Vivo!» — что в переводе с испанского означает «Живьём!» — был записан 10 апреля прошлого года в ходе мирового турне в поддержку 15 лонгплея группы. Масштабное зрелище разворачивалось на забитом неистовыми южноамериканскими фэнами стадионе Estadio Nacional, что в Сантьяго. Басист и основатель Стив Харрис по поводу пополнения концертного каталога Мэйден: «Для меня крайне важно было то, что получилось запечатлеть в Южной Америке, так как реакция поклонников в той части света всегда ошеломляла нас, и я хотел отразить это в процессе съёмок. После длительных дискуссий мы остановили свой выбор на шоу в Сантьяго, осознав, что перфоманс на Estadio Nacional стал лучшим во всём туре, а играть на этой престижной площадке для нас особое событие. По причинами известным нашим почитателям, понадобилось много времени, прежде чем отыграть своё первое шоу в Чили. И однажды, когда оно наконец-таки состоялось, отдача была настолько феноменальной, что нам пришлось возвращаться сюда снова, и снова. И каждый наш приезд лучше предыдущего! (   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC4D15511F2ADD3DE37A4C8F5842FCAAC972521
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474534   (85018) от 28.03.2012
+
+Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) [1080p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85018.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden» - это масштабное шоу, снятое 21 и 22 февраля 2011 года в Нью-Йорке во время аншлаговых концертов Леди Гаги в рамках знаменитого «The Monster Ball Tour» – одно из самых значительных событий поп-культуры за последние 20 лет. Леди Гага в сопровождении 10 виртуозных музыкантов и 10 блистательных танцоров (   Читать дальше...   )01. Intro
+02. Dance In The Dark
+03. Glitter And Grease
+04. Just Dance(   Читать дальше...   )Жанр: PopСубтитры: Английские, РусскиеПродолжительность: 01:54:24
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476015   (85555) от 31.03.2012
+
+Видеоклипы «t.A.T.u.» - All The Things She Said. Пиратская Вечеринка HD x264 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85555.jpg" />
+</div>
+
+
+###  Подробнее
+
+«All the Things She Said» — первый сингл с дебютного англоязычного альбома «200 km/h in the Wrong Lane» группы «Тату», выпущенный 10 сентября 2002 года. Стал первым синглом российских исполнителей, который занял первое место в британском чарте UK Singles Chart, удерживая позицию в течение четырёх недель. По итогам 2003 года сингл занял 6-е место по продажам в Великобритании (   Читать дальше...   )Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуетсяПродолжительность: 00 часа 04 мин 08 сек (00:04:08)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7139303D63F6C06D99794BD8A38368F79774E76A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476769   (85725) от 01.04.2012
+
+Armin van buuren video asot 550 live in Kiev (2012) (CamRip/DVD5)
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Rayel – 550 senta vs Shogun – Skyfire (accapella) (AVB intro mix)
+ 02. Omnia & IRA – The Fusion (Armada)
+ 03. Dennis Sheperd & Talla2 XLC – Two Worlds (Euphonic)
+ 04. Wezz Devall – Kill Of The Year (Captivating Sounds)
+ 05. Orjan Nilsen – Amsterdam (Armind)
+ 06. Tritonal – Slave (Tritonal & Ben Gold Club Dub) (Air Up There Recordings)
+ 07. W&W – Invasion (Club Mix) (ASOT 550 anthem) (Armada)
+ 08. Orjan Nilsen – Between The Rays (Armind)
+ 09. Setrise vs Johann Stone – Icesave (Original Mix)
+ 10. Gaia – Stellar (Armind)(   Читать дальше...   )Жанр: Музыка/TranceПродолжительность: 01:34:40
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476396   (85752) от 01.04.2012
+
+Видеоклипы International Performers in 2011 DVD-5 vol. 01 Пиратская Вечеринка 4.35Gb
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308B6A76FEB2C578831193D2598865C581F9C58C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476608   (85761) от 01.04.2012
+
+Rammstein - Live Aus Moskau 2012-02-11 (2012) HDCamRip[1080p] (Ver. 2)
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не полный концерт группы Rammstein в Олимпийском 11 февраля 2012 снятый из сектора С-11 на камеру с отличным качеством.01 - Intro
+02 - Sonne (cut)
+03 - Feuer Frei (cut)
+04 - Mutter(   Читать дальше...   )Жанр: МузыкаПеревод: ОтсутствуетЯзык: DEПродолжительность: 01:10:48
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476650   (85765) от 01.04.2012
+
+Armin van Buuren / Ultra Music Festival (2012)[1080p] HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omnia - The Fusion (Armin van Buuren’s Intro Edit)
+ 02. Cosmic Gate feat. Emma Hewitt - Be Your Sound
+ 03. Armin van Buuren vs. Sophie Ellis-Bextor - Not Giving Up On Love (Dash Berlin 4AM Mix)
+ 04. The Killers - Mr. Brightside (Marco V Treatment)(   Читать дальше...   )Жанр: Музыка/TranceПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476649   (85784) от 01.04.2012
+
+Rammstein - Live Aus Moskau 2012-02-11 (2012)[1080p] HDCamRip (Ver. 1)
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полный концерт группы Rammstein в Олимпийском 11 февраля 2012.Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 02:00:02
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477147   (85945) от 02.04.2012
+
+Видеоклипы International Performers in 2011 DVD-5 vol. 02 Пиратская Вечеринка 4.25Gb
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E181F0D66E1FC8E4F68E0E20857137AA4EC9E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476909   (85969) от 02.04.2012
+
+B.B. King: Live (2006) [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_85969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись представляет собой снятый в течение четырех ночей в собственном клубе короля блюза в Нэшвилле и Мемфисе и Теннесси, группы B.B. King Blues Band, которая выступала вместе с ним во всем мире. Сама природа блюза это импровизация, и B.B. King, король импровизации. Он играет то, что он чувствует, и чувствует, что он играет, и публика в восторге от его игры. В своей 52-летней карьере он сделал свыше 15 тысяч представлений, охватывая 300 концертов в год во всем мире.01. Manhattan Blues (by B.B. King's band)
+02. Two I Shoot (by B.B. King's band)
+03. Why I Sing The Blues
+04. I Need You So
+05. Bad Case Of Love
+06. Blues Man
+07. When Love Comes To Town
+08. All Over Again
+09. Ain't That Just Like A Woman
+10. A Whole Lot Of Loving(   Читать дальше...   )Жанр: BluesПродолжительность: 01:52:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477679   (86120) от 03.04.2012
+
+Кто есть кто? (1977) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеспектакль по пьесе Григория Горина.
+
+В день 40-летия доктора наук, директора НИИ Андрея Андреевича Щукина к нему в дом приходит некто Щагин и заявляет, что Щукин - это он, и все заслуги настоящего Щукина по праву принадлежат ему, потому что в роддоме их перепутали. Он доказывает Андрею Андреевичу, что все его достижения не результат таланта и способностей, а (   Читать дальше...   )Жанр: комедия, спектакльРежиссер: Марк РозовскийПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1FB90FA0E756975B5D213A3C7D46781331846C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477653   (86121) от 03.04.2012
+
+Видеоклипы International Performers in 2011 DVD-5 vol. 03 Пиратская Вечеринка 4.28Gb
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196D6FF2E9F6EE96E2797E922EA28696D09EF43D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477555   (86175) от 03.04.2012
+
+Red Hot Chili Peppers: I'm With You (Live in Cologne) (2011) [1080i] HDTV
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_86175.jpg" />
+</div>
+
+
+###  Подробнее
+
+30-го августа, в день выхода новой пластинки RHCP “I’m”With You” музыканты исполнят весь альбом полностью на концерте в Кёльне... Посмотреть прямую трансляцию концерта поклонники могли в кинотеатрах 39 стран мира, в том числе в США, Аргентине, Чили, Бразилии и странах Европы. В Москве трансляция шла в клубе «16 тонн»... Red Hot Chili Peppers была основана в Калифорнии в 1983 году. С тех пор коллектив продал более 60 миллионов копий своих альбомов...01. Monarchy of Roses
+02. Factory of Faith
+03. Brendan's Death Song
+04. Ethiopia
+05. Annie Wants a Baby
+06. Look Around
+07. Frankenstein (Edgar Wiliams cover)
+08. The Adventures Of Rain Dance Maggie
+09. Jam
+10. Did I Let You Know (with Michael Bulger on trumpet)(   Читать дальше...   )Жанр: Alternative Rock, Funk RockПродолжительность: Видеокодек: MPEG-2
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------

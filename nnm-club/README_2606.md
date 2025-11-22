@@ -1,3 +1,57 @@
+###  Публикация: 1788565   (68504) от 31.03.2025
+
+VA - Flashback Anthology Vol. 3 (2022) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clay Pedrini - Dr. Jekyll & Mr. Hyde (Extended Edit Version)
+02. Helicon - The Net (Vocal Version)
+03. Time Machine Feat. Albert One - Cold As Ice (Another Version)
+04. Riccardo Campa - Desperado (Extended Version)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 01:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59274E77667F0FAE30F5E7491FCEBC8466C1AB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788480   (68505) от 30.03.2025
+
+Павел Бажов | Горный мастер (Радиоспектакль) (2024) [MP3, Иван Краско, Наталья Виноградова и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детский остров.
+Павел Петрович Бажов (1879–1950) – русский писатель, фольклорист, впервые выполнил литературную обработку уральских сказов.
+Радиоспектакль по одноименному сказу П.П. Бажова «Горный мастер» из цикла «Уральские сказы», продолжение сказа «Каменный цветок».
+(   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE44CEEBCF5E3EA52027DB2796FB7896605C937D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788559   (68506) от 30.03.2025
 
 Arthemis - Blood Fury Domination (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
@@ -630,60 +684,6 @@ magnet:?xt=urn:btih:A6FB351BF3738F3FC3F1111D36DBAE091946D092
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C863B8F4E1D90CADD83161699296CF58A0457E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786659   (68530) от 30.03.2025
-
-Александр Курган - 2 Albums (2022, 2025) [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жизнь [00:03:40]
-02. Отец [00:03:35]
-03. Фаталист [00:02:54]
-04. Пашка [00:03:16](   Читать дальше...   )Жанр: ChansonПродолжительность: 2 CD, 02:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E1D4FB4B10C9B2AD963A658AF39D9CAA94BA11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788468   (68531) от 30.03.2025
-
-Janiva Magness - Back For Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masterpiece
-02. Back for Me
-03. The Same Love That Made Me Laugh
-04. November(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68DA77A796B9FC4894523AB49F40292EEE32BCF4
 ```
 
 

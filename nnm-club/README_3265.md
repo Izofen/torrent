@@ -1,3 +1,187 @@
+###  Публикация: 1748206   (104575) от 08.09.2024
+
+MotoGP. Этап 13 из 20. Гран-при Сан-Марино. Гонка (08.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104575.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 сентября 2024, воскресенье. 15:00 МСК. Этап 13 Мизано-Адриатико. Гран-при Сан-Марино. Гонка (27 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400539E1AAF53A17C30171F8CE3600B1E7AF6423
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748128   (104576) от 08.09.2024
+
+VA - Seductive Divine Easy Listening Relaxation Chilly Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Chasing Rainbows (4:45)
+02. Chillaxing Jazz Kollektion - On the Ocean Shore (3:59)
+03. Konstantin Klashtorni - Stylish Walk (4:44)
+04. eJazz Artistry - No Rhyme, No Reason (3:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570C906A29FA8C99AC0B94AD4E4CDDDA3E56EBE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748124   (104577) от 08.09.2024
+
+VA - Magical Chilly Relaxing Tunes for Calm and Quiet Vacation Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Kissed by the Sun (4:11)
+02. Chillaxing Jazz Kollektion - Midsummer Dreamin' (4:19)
+03. Chillaxonic - Aurora (5:13)
+04. eJazz Artistry - Always Be My Baby (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:615FE35915D39D97E68B4617C316FFEAF787E421
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748118   (104578) от 08.09.2024
+
+VA - Aperitivo Acid Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulstance - Spiritual Session (5:24)
+02. Gazzara - Just Some Philly Sound (5:57)
+03. Bebo Best - The Breaks (Top 10 Inc. 80 Mix) (3:14)
+04. Bossa Nostra - The Message From A Soul Sister (5:30)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EABE925255A2C1E86AC49B400FE25017B1F1CCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748119   (104579) от 08.09.2024
+
+VA - Divine Seductive Easy Listening Relaxation Chill Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Sunset Silhouettes (4:20)
+02. Chillaxonic - Morningstar (3:37)
+03. Konstantin Klashtorni - Let's Chill (5:29)
+04. Kool&Klean - Corals & Reefs (4:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E572FFEF045F1B4F2739B0F6ECCC2086E0FF5D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748089   (104580) от 08.09.2024
+
+Scherer, Batten - BattleZone (2017) 2xCD, Reissue, Remastered, 2024, MelodicRock Classics [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc One:
+01. Crazy Love (4:24)
+02. Rough Diamond (4:07)
+03. What Do You Really Think (4:17)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3390D716B2FD0292682BE82D3DAAEBE5B243ADFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748153   (104581) от 08.09.2024
+
+Первая передача на НТВ. Автомобильная передача (08.09.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив на придворовой парковке: подмосковный автовладелец по осколкам винной бутылки, обнаруженным около своей машины, восстановил, кто, когда и как повредил его автомобиль.
+ Автотрип по Калининградской области на ретроуниверсале: что попробовать и куда лучше не заезжать?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB9A030C261F78BE6C8DF802F9E2228667EE0E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747926   (104582) от 08.09.2024
 
 Tantrum - Sorrow-II (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -492,187 +676,6 @@ VA - Peaceful Supreme Chill Lounge Happiness Playlist on Vacation (2024) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F577F45CA4C423CE863A859D2CFD665E1454E9A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748062   (104601) от 08.09.2024
-
-Янн Пьетт | Он твой! (2024) [MP3, Максим Доронин]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мужчины любят стерв? Или очаровательных скромниц? А может быть, любовные отношения сегодня настолько изменились, что «искать Того Самого» уже не имеет смысла? Все это стереотипы, которые больше не будут иметь отношения к вашей жизни. Один из самых известных коучей по отношениям объясняет, как перестать тратить время на неподходящих, недоступных и слабых мужчин. Ян (   Читать дальше...   )Жанр: ПсихологияИздательство: БОМБОРА, ЭКСМОПродолжительность: 04:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6BE1922C8193553EF6EB4DAE6F30F292CAE61EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748116   (104602) от 08.09.2024
-
-VA - Acid Jazz Instrumentals Vol. 2 (Jazz Funk Breaks Instrumental Tunes) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live Tropical Fish - The Dragon Child (4:10)
-02. Bossa Nostra - Home Is Where The Hatred Is (Progetto Tribale Vibe Mix) (5:19)
-03. Vito Lalinga (Vi Mode Inc. Project) - Funky Tropicale (Lego Edit Afro Cut) (5:30)
-04. Lainz - Good Morning Lainz (6:26)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 02:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB939A8CD2D338C5CFF7AB126DB5964842A95524
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748223   (104603) от 08.09.2024
-
-Своя игра (08.09.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104603.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. 30-го марта в новой студии начался новый юбилейный турнир, каждый участник которого будет олицетворять собой один год в истории "Своей игры". Турнир будет длиться не менее 30 игр, и победитель получит один миллион рублей!
-
-В финал юбилейного турнира вышли переводчик-синхронист из Москвы Игорь (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F08C50B884A0D44DF1ED1848B2E09D92C69C65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748152   (104604) от 08.09.2024
-
-Чудо техники с Сергеем Малозёмовым (08.09.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Домашний ремонт без хлопот! Как обновить интерьер технологично и что реально работает — «умная» рулетка, жидкая резина или самоклеящаяся плитка?
- В чем секрет фильтра с обратным осмосом, почему жидкость после такой очистки называют «мертвой» и всем ли безопасно это пить?
- «Умный» фонарь для велосипедистов: реклама обещает, что устройство распознает торможение, ускорение (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3F731A0606E321B23C717A3DD5C55D1A8433E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748208   (104605) от 08.09.2024
-
-Richard Elliot - Straight Up Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Very Delicious (5:13)
-02. Driftin' (4:46)
-03. Double Trouble (4:10)
-04. Straight Up Down (3:40)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4867FAE610BDB7CF9FB19597B2E32EBDE0E15E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748187   (104606) от 08.09.2024
-
-Losing Gravity - All In (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All In (3:09)
-02. Wasting Time (4:09)
-03. Saturday Night (3:03)
-04. Foundations (3:31)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E1ED1537305FFCA570D7712B356F52B9B6C783
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747942   (104607) от 07.09.2024
-
-Максим Викторович Оськин | Неизвестные трагедии Первой Мировой. Беженцы (2024) [MP3, Роман Ильин]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наиболее пострадавшими от военных действий категориями населения, если не считать собственно погибших и раненых на войне (так называемые «кровавые потери»), стали военнопленные, на долгие годы оторванные от Родины, и беженцы прифронтовой зоны, вынужденные покинуть родные места. Дезертиры и репатрианты дополнили общую картину бедствий. Для России эти категории насчитывали (   Читать дальше...   )Жанр: Неизвестные трагедии Первой Мировой. БеженцыИздательство: Аудиокнига своими рукамиПродолжительность: 02:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:165B70C4984579C66A66845A1B8D94DD2E017231
 ```
 
 

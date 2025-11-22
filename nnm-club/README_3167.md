@@ -1,3 +1,190 @@
+###  Публикация: 1765240   (101453) от 11.12.2024
+
+VA - The Best Of Suanda Dance 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer - Irreplaceable Love (Extended Mix) (04:54)
+02. Michael Milov - Closer (Extended Mix) (04:15)
+03. SMR LVE & Waves On Waves - Falling Into Place (Extended Mix) (05:52)
+04. Roman Messer & NoMosk - Statue (Extended Mix) (03:36)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9F55B3EE3F1839B865A4F4E55C4D5B25E96DAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765196   (101454) от 11.12.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 6-й.  Аталанта (Италия) - Реал (Мадрид, Испания) (10.12.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 6-й. Аталанта (Италия) - Реал (Мадрид, Испания) (10.12.2024)
+СУДЬЯ Марциняк Шимон (Плоцк, Польша)
+СТАДИОН «Атлети Адзурри д’Италия» (Бергамо)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:52:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07CA2310610205A53D243BAAE2411B0607B197B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765201   (101455) от 11.12.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 6-й.  Лейпциг (Германия) - Астон Вилла (Англия) (10.12.2024) WEB-DL [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 2-й. Лейпциг (Германия) - Астон Вилла (Англия) (10.12.2024)
+СУДЬЯ Мариани Маурицио (Рим, Италия)
+СТАДИОН «Ред Булл Арена (Лейпциг Штадиум)» (Лейпциг)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9CED3E76DC0776026AA234DA7D62CAB2AF8CD53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764864   (101456) от 11.12.2024
+
+Dark Lightning - The Demons We Create (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glimpse of Freedom [00:01:09]
+02. Trapped Forever [00:04:31]
+03. The Unknown Mind [00:04:33]
+04. Into the Night Sky [00:03:10](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD1B317C1FB642B9FC0D35E8DE4564786456140F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765155   (101457) от 11.12.2024
+
+Whip - Whip, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. People Suffer (04:15)
+02. Get Away (05:11)
+03. Glitch in Time (04:23)
+04. Toxic Girl (04:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E09EE53A60246FD9641CEA4A599281736C9D7FE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765088   (101458) от 11.12.2024
+
+Те дни прошли, их не вернуть - Мы никогда не будем ближе, чем сейчас (2016) [FLAC|Lossless|tracks] <Midwest Emo, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Зал ожидания [06:18]
+02 - Московские прятки [06:14]
+03 - Долина разбитых витрин [04:47]
+04 - Сезон дождей [07:17](   Читать дальше...   )Жанр: Midwest Emo, Post-HardcoreПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171AD435CF2F86A65E43BD1A58F55EDF356DC27A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765066   (101459) от 11.12.2024
+
+Detlev Schmidtchen - The Tears of Chronos (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beginning of the Hike [00:04:52]
+02. Among the MacKays [00:05:54]
+03. Folk of Cold [00:07:56]
+04. Poem of an Iceberg [00:06:34](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD476E642DF005FDFB5DE7F49633240289291D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764849   (101460) от 11.12.2024
 
 Faded Remembrance - 2 Albums (2023-2024) [MP3|320 Kbps] <Gothic, Doom, Death-Metal>
@@ -491,193 +678,6 @@ Jola Recchioni - Gone To Find My Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEAB69E062D95A4413EAC7C56E473E90617ECF17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764711   (101479) от 08.12.2024
-
-Slears - The Chaos Within (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chaos Within (1:12)
-02. Barricades (3:27)
-03. Particles (2:51)
-04. Digital Dreamer (4:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC6586A644344FFE467949521D06915F144FA07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764656   (101480) от 08.12.2024
-
-Action Fire - Until The Heat Dies (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storm of Memories (4:34)
-02. No Drone Zone (4:05)
-03. Hard Days, Long Nights (3:58)
-04. Survive (3:23)(   Читать дальше...   )Жанр: Melodic MetalПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5C8249E79312AF2F363746D55A9DA99108210A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764661   (101481) от 08.12.2024
-
-Grant Sabin - Work (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Work (3:07)
-02. Baby Wanna Be Right (4:29)
-03. Headshaker (5:17)
-04. Luisa (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B062B4114EF684690B66D743D54D6727D75A95E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764665   (101482) от 08.12.2024
-
-Ice Exiled - Reset the Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Fire (5:27)
-02. Civilization Zero (3:54)
-03. Bloodfeud (5:14)
-04. Chained and Bound (3:52)(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Progressive MetalПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF815916BB1C12CDC737E1DFE09939192FC96A38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764654   (101483) от 08.12.2024
-
-Booker Little - Booker Little (1960) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening Statement [6:46]
-02. Minor Sweet [5:43]
-03. Bee Tee's Minor Plea [5:43]
-04. Life's a Little Blue [6:56](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C15AA4ABD002120401A6F73BABB2B66207C18A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764652   (101484) от 08.12.2024
-
-Nat Adderley Sextet - Autumn Leaves: Live At Sweet Basil (1990) 1994, Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big P. [12:51]
-02. Autumn Leaves [20:25]
-03. Yesterdays [15:01]
-04. For Duke and Cannon [9:47]Жанр: Hard Bop, Post-BopПродолжительность: 00:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1936E56979FFDA637CFE548AF52FB768BB9CE68A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764683   (101485) от 08.12.2024
-
-НХЛ 2024-2025. Вашингтон Кэпиталз - Монреаль Канадиенс (07.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101485.jpg" />
-</div>
-
-
-###  Подробнее
-
-8 декабря 2024, воскресенье. 03:00 МСК. Стадион: Белл-центр (Монреаль, Канада), 21 105 зрителей (100% при вместимости 21 105)
-Главный судья: Стив Козари (Пентиктон, Канада); Главный судья: Митч Даннинг (Текумсе, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C60C021C167B3A5E589736783922E9FD09BAF57
 ```
 
 

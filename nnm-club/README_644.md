@@ -1,3 +1,54 @@
+###  Публикация: 1810677   (17059) от 05.08.2025
+
+Похититель душ / Sjaeletyven (1916) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейный врач, доктор Хармоди, обладает невообразимыми гипнотическими способностями и тайно взял под контроль волю графини Джудит. В последнее время в округе начали пропадать драгоценности, и граф Максимилиан Кольтенберг обращается к детективу Джуриану Фоксу, чтобы предотвратить кражу семейных драгоценностей. К сожалению, никакие меры не могут предотвратить кражу (   Читать дальше...   )Производство: Дания / Nordisk FilmЖанр: короткометражный, драма, криминал, немое киноРежиссер: Форест Хольгер-МадсенАктеры: Гуннар Толнес, Чарльз Вилькенс, Йоханне Фритс-Петерсен, Искадновский, Филип Бек, Франс СконрупПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E79224DC8E169E9D6AA8EBD612B4063B42E37EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810675   (17060) от 05.08.2025
+
+Dj Cult Music - Blues Dreams on the Horizon (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  No Light in This Room (3:31)
+02.  Back Porch Mojo (3:40)
+03.  Blue Moon Trouble (3:44)
+04.  Chain Smoke Heartache (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32158419B7C4D976FA8FC148F225BC56F3291013
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810673   (17061) от 05.08.2025
 
 Dead Romantic - Stay High (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -586,60 +637,6 @@ Big Shoes - King Size (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:064BCBA1AE0349B4ED1C2DAD3148008958265A4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810655   (17085) от 05.08.2025
-
-Big A Sherrod - Torchbearer Of The Clarksdale Sound (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Baby That Hurt (6:11)
-02.  Don't Make Me Pay (3:55)
-03.  Good Woman (5:34)
-04.  My Life (7:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F0C8E5EBDECB7D02710E515F25B7E7BE4D078F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810652   (17086) от 05.08.2025
-
-Ash Lambe & The 32-20's - Ash Lambe & the 32-20's (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sight for Sore Eyes (3:24)
-02.  Loaded Dice (3:59)
-03.  All My Love (3:00)
-04.  Hangin Round No More (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F9F3265E2DE9E7090E8C31AAD12DEC46D07E2D
 ```
 
 

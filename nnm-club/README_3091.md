@@ -1,3 +1,202 @@
+###  Публикация: 475535   (98376) от 01.04.2012
+
+Товарищ Дон Камилло / Il compagno Don Camillo (1965) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм повествует о поездке в СССР делегации итальянских коммунистов, в которую, естественно, затесался и переодевшийся в мирское платье дон Камилло.Жанр: комедияРежиссер: Луиджи КоменчиниАктеры: Фернандель, Джино Черви, Леда Глория, Джанни Гарко, Саро Урци, Грациэлла Граната, Пауль Мюллер, Марко Тулли, Жак Эрлен, Силла БеттиниПеревод: Многоголосый закадровыйПродолжительность: 01:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0973C1B393F283B606D749E56010807C01F9715E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477429   (98378) от 02.04.2012
+
+VA - Perfect Together Dreams (2012) [MP3|320 кб/с]<Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sabiani - Classic Sequence (Original Mix) 06:31
+02. Craig Connelly - Robot Wars (Original Mix) 06:49
+03. Senadee - Life Support Machine (Original Mix) 04:16
+04. Smart Apes - Phobia (Original Mix) 07:07
+05. Timur Shafiev - Together Original Mix 08:03
+06. Paul Miller - classically (original mix) 07:06
+07. S.Y.S. - Weiber (Original Mix) 07:27
+08. Phil Wilde & Toby Traxx - redemption (radio edit) 03:26
+09. Timur Shafiev - Seductive Movement (Original Mix) 07:24
+10. The Stunning Sound - My Dreams (First Version) 08:42(   Читать дальше...   )2012Жанр: Trance, Progressive TranceПродолжительность: 02:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B6F54A34A00071D4EC7AE3C3C891DACA94CFE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477168   (98379) от 02.04.2012
+
+[Wallpapers] Best HD Wallpapers Pack (02.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87C234BF34E792B22BFA2F93C83665D915BD63F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477300   (98381) от 02.04.2012
+
+Adam Beyer - Drumcode 080 - 087 (2012) [MP3|256 кб/с]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arjun Vagale & Tim Richards - Tonkatsu (Original Mix)
+ 02. Kaiserdisco - Aymara (Original Mix)
+ 03. Denis Horvat - She Never Reach The Climax (Arjun Vagale Remix)
+ 04. Remerc - Pacchioni (Original Mix)
+ 05. Yooj - Mademoiselle (Original Mix)
+ 06. Maher Daniel & Casa - Malgra (Kaiserdisco Remix)
+ 07. Nicole Moudaber - Im A Gansta (Alli Borem Remix)
+ 08. D.Diggler & Franksen - Morning Blue
+ 09. Dave Brody - Blood (Original Mix)
+10. Edgar De Ramon - 7UP (Original Mix)(   Читать дальше...   )2012Жанр: TechnoПродолжительность: 07:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF3C352502BE3A488C69927068E9E2497AA26C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477218   (98382) от 02.04.2012
+
+Bejelit - Emerge (2012) [MP3|320 кб/с]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98382.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Darkest Hour
+2. C4
+3. Don't Know What You Need
+4. Emerge
+5. We Got The Tragedy
+6. To forget And To Forgive
+7. Dancerous
+8. Triskelion
+9. Fairy Gate
+10. The Defending Dreams Battle(   Читать дальше...   )2012Жанр: Power MetalПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD3DDB2F515437A66D64FE48867A5F319DECFC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476084   (98385) от 02.04.2012
+
+Eastwood - North-Eastern Massive (2012) [MP3|320 кб/с]<Atmospheric Dark / Post-Metal / Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 summer breathe (6:38)
+ 02 breakwater sleep (6:15)
+ 03 pillars of ashes (8:25)
+ 04 firing the burning woods (9:01)
+ 05 terra incognita (7:38)2012Жанр: Atmospheric Dark / Post-Metal / ExperimentalПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21241963B40A2A893C454F398834219C76992E8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476705   (98387) от 02.04.2012
+
+Огонь любви (2007) SATRip (21-50 серия из 304)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня Светлана несправедливо обвинена в умышленном поджоге автомастерской, где во время пожара погиб ее отец. За это Света попадает в тюрьму и выходит из нее через три года.Жанр: МелодрамаРежиссер: Андрей Комков, Константин Серов, Раду Крихан, Максим Мокрушев, Анатолий ГазиевАктеры: Елена Левкович, Михаил Химичев, Екатерина Соломатина, Илья Соколовский, Степан Старчиков, Анна Исайкина, Игорь Воробьев, Эвелина Бледанс, Любовь Руденко, Валерий Афанасьев, Александр Макаров, Андрей Лавров, Ксения Виват, Марина Чижевская, Евгений Березовский, Валерия Забегаева, Михаил Станкевич, Максим Житник, Андрей Межулис, Екатерина Приморская, Тамара СпиричеваПродолжительность: 30х ~00:43:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477334   (98388) от 02.04.2012
 
 [Wallpapers] Nature HD Wallpapers Pack 12
@@ -521,193 +720,6 @@ magnet:?xt=urn:btih:A5CA6436BA1DDBF77F662F45385CFC83604E18A5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5846B2C95717FDE597AEAE1010991FDD47707E1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477196   (98413) от 02.04.2012
-
-Fading Waves - The Sense Of Space (2011) [MP3|320 кб/с]<Progressive Sludge / Post-Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Air
- 02 - Flashes
- 03 - Destroying The TimeЖанр: Progressive Sludge / Post-MetalПродолжительность: 00:38.35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B71B2CCE744E71EDF770C0A030161143DE7F30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477272   (98414) от 02.04.2012
-
-[Wallpapers] Full HD Wallpapers Pack 3
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98414.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Full HD Wallpapers Pack 3 
-Название:  Full HD Wallpapers Pack 3 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E943DDFF4201EA5D28AA91B075A826B7C800BB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477170   (98415) от 02.04.2012
-
-[Wallpapers] Sexy Girls Pack (02.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBB5CF4A19C01B36A6E9042F4B1722B9C6B0254
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477187   (98416) от 02.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (03.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27969ED671D644E9520AF700FDC82CC24396EB42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476692   (98417) от 02.04.2012
-
-VA - Русский Шторм 56 (2012) [MP3|320 kbps]<Pop | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aslan feat. Misty - Знаю, Знаю (Romanian Mix)
-02. Aslan И Эльдар Далгатов - Опа Опа
-03. A-Via & Extasy Project - Мама-Любовь
-04. Dj Clubactive (In & Out) - Разбитые Слова (Original Mix)
-05. Dj Nil & Sexy Liya - На Краю У Рая (Extended Mix)
-06. Dj Xm & Ирина Кулькова - Почему (Original Mix)
-07. Dj Сателлит & Marlena - Ok (Tonada Club Mix)
-08. Dj Сателлит & Marlena - Иней (Tonada Radio Mix)
-09. Elia - Последние Слова (Radio Edit)
-10. Elvira Ragazza - Возьми Меня Весна(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 02:26:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5DFC15824853E276EF698ADCA3D99D3AF5A953C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477266   (98418) от 02.04.2012
-
-[Wallpapers] Avto Desktop Wallpapers Pack
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98418.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Desktop Wallpapers Pack 
-Название:  Avto Desktop Wallpapers Pack 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х1024 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7717DC23BFF8F148CBF4E62D21B5CA831998AA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477169   (98420) от 02.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (02.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81D937B43233E9F9BE1B181F6098682FB9ECED3
 ```
 
 

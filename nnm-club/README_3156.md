@@ -1,3 +1,191 @@
+###  Публикация: 1767475   (101167) от 22.12.2024
+
+Nancy Sinatra - Country, My Way (1967) Remastered, 2024, Boots Enterprises, Inc. [FLAC 24/96|Lossless|WEB-DL|tracks] <Country Rock, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – It’s Such A Pretty World Today (2024 Remastered)
+02 – Get While The Gettin’s Good (2024 Remastered)
+03 – Walk Through This World With Me (2024 Remastered)
+04 – Jackson (feat. Lee Hazlewood) (2024 Remastered)(   Читать дальше...   )Жанр: Country-Rock, Soft-RockПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF854170EA112A30FA6250CB1EF8466AE8DDB38B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767535   (101168) от 22.12.2024
+
+VA - ROCK en todos los idiomas (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fito Páez - Circo Beat (5:43)
+02.  Andrés Calamaro - Mi gin tonic (2:52)
+03.  Fabiana Cantilo - Mi enfermedad (3:22)
+04.  Los Rodriguez - Sin documentos (En Vivo) (5:01)(   Читать дальше...   )Жанр: RockПродолжительность: 03:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC664F1F75369BACE425FF76D6CB7BA052284291
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767031   (101169) от 22.12.2024
+
+Андрей Мороз - 3 Albums (2022-2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Синяя река [00:04:01]
+02. Дай силы, Земля! [00:04:53]
+03. Снега России [00:03:37]
+04. Мать рубаху мне сшей [00:04:12](   Читать дальше...   )Жанр: Pop, russianshansonПродолжительность: 3 CD, 03:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2956BEBFD55D2CF3156B07DCCBA086F42ED27660
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767093   (101170) от 22.12.2024
+
+Андрей Мороз - 3 Albums (2022-2024) [MP3|320 Kbps] <Pop, russianshanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Синяя река [00:04:01]
+02. Дай силы, Земля! [00:04:53]
+03. Снега России [00:03:37]
+04. Мать рубаху мне сшей [00:04:12](   Читать дальше...   )Жанр: Pop, russianshansonПродолжительность: 3 CD, 03:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38DFCCFDE8C65F11BB19BB67C6859847AFDEABBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767493   (101171) от 22.12.2024
+
+Чудо техники с Сергеем Малозёмовым (22.12.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проверка нестандартных функции смартфонов: почему размер имеет значение. Что умеют раскладушка за полмиллиона, смартфон с вентилятором и камерой ночного видения?
+Популярный российский техноблогер Wylsacom рассказывает, как необычные гаджеты завоевывают одобрение пользователей.
+Пригрели на груди змею! Безопасно ли держать дома рептилий и сколько тратят на этих гадов (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC88018A195EB3E6A981BE3C47C60E5060245562
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767557   (101172) от 22.12.2024
+
+VA - Calm Late Night Jazz Music (Instrumental Jazz Sax Piano Guitar) (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lo Greco Bros - Naima (4:40)
+02.  Alfredo Bochicchio - If I Can't Have You (3:49)
+03.  Swingin' Cats Jazz Quartet - Summertime (4:24)
+04.  Lo Greco Bros - Loving (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9541CB0DE31F9852828043372918C3FA7AD483
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767020   (101173) от 22.12.2024
+
+Руслан Исаков RUS - Песни 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Заветные слова (Любимой) [00:03:04]
+02. Ты достойна любви [00:02:44]
+03. Одиночество мне помогло [00:03:49]
+04. Мы в деревне веселимся [00:02:20](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4FF085D5FA76F03114D177821D4137620E8E08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1767567   (101174) от 22.12.2024
 
 VA - NYC Jazz Bar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -471,187 +659,6 @@ Sorceress of Sin - Ennea (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33B43324E9E68DED6C5C424A20502BEEAADC4188
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767114   (101193) от 21.12.2024
-
-Своя игра (21.12.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101193.jpg" />
-</div>
-
-
-###  Подробнее
-
-2024 год близится к завершению, как и турнир "Своей игры". 14 декабря начались финальные игры, в которых участников ждут три третьфинала и финал. В финальных играх принимают участие игроки, которые показали лучший результат за год.Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5EDE044F4E49279279F8C8D64544280BAFAC13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766957   (101194) от 21.12.2024
-
-Пятеро на одного (21.12.2024) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D89C849995F9592F46D3A210AC51D31ECFE5B5D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767078   (101195) от 21.12.2024
-
-VA - Afro Funk, Vol. 9 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Afro Dub - Street Life (3:42)
-02.  Afro Dub - Free Nights (3:31)
-03.  Afro Dub - Speed Day (3:16)
-04.  Afro Dub - Tense Day (3:12)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C464BAD31965B2E22F6228B407E186EBCBE9F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767083   (101196) от 21.12.2024
-
-VA - Ibiza 2024 Broken Beat Nu Funk (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mr. ThruouT - Spiral (5:44)
-02.  Mr. ThruouT - Giving You Four (5:20)
-03.  DJ Mister Funk - Audio Funk (3:42)
-04.  DJ Mister Funk - Dirty Groove (3:16)(   Читать дальше...   )Жанр: Jazz, Funk, R&BПродолжительность: 01:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B78E64CFDBDEDF65C41B45ED51D0D0E08AE8C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767079   (101197) от 21.12.2024
-
-VA - Broken Beat Nu Funk, Vol. 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vito Lalinga (Vi Mode inc project) - Excellence (3:36)
-02.  Funky Destination - Bombshell (Extended) (5:14)
-03.  Funky Destination - God's Children (Extended) (5:12)
-04.  Funk Windows - Blues Fantasy (3:21)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22FE1BEB8BA5C53697B514390F707063AEC7471E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766997   (101198) от 21.12.2024
-
-НХЛ 2024-2025. Каролина Харрикейнз - Вашингтон Кэпиталз (20.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101198.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 декабря 2024, суббота. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Питер Макдугалл (Реджайна, Канада); Главный судья: Крис Ли (Сейнт Джон, Канада); Линейный: Дэвид Брисбуа (Садбери, Канада); Линейный: Стив Бартон (Ванклик Хилл, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7720521232CC03143BF68CEAE3CC959BD593BCAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767063   (101199) от 21.12.2024
-
-VA - Festive Season (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_101199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandeep Pai - Fade (Jerome Isma-Ae Remix) (04:15)
-02. Airbas - Believers (03:45)
-03. Celeste Siam - You Bring Me Joy (02:34)
-04. Two Minds - My Way to the Skies (03:52)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 01:21:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66FF8AA676E8F741B22F3FC9B671D7A63FFA40FE
 ```
 
 

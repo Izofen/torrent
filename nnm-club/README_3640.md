@@ -1,3 +1,185 @@
+###  Публикация: 1704358   (114325) от 04.03.2024
+
+TunesKit AceMovi Video Editor 4.9.23 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114325.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunesKit AceMovi Video Editor может отличаться от множества подобных приложений для редактирования видео на рынке, главным образом, благодаря простому и интуитивно понятному интерфейсу, а также множеству мощных функций. С помощью этого программного обеспечения вы можете легко создавать высококачественные видео на Mac, независимо от того, являетесь ли вы профессионалом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.02.2024Разработчик: © 2024 TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE3931C68FCE7224C7D40727A02E3AB5C07A368
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704200   (114326) от 04.03.2024
+
+Absolon - The Blood Seed (2024) [MP3|320kbps] <Power Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destroyer [00:05:09]
+02. Darkness Calls [00:04:27]
+03. My Shadow [00:04:27]
+04. Anger Unconfined [00:04:13](   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81B8BB55F5371F06505E97F2F99F489DF018C78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704502   (114327) от 04.03.2024
+
+VA - Rock Delights (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fall Out Boy - We Didn’t Start the Fire (3:36)
+02. Against The Current - jump (2:40)
+03. Disturbed - Who (4:47)
+04. illenium - Eyes Wide Shut (2:32)(   Читать дальше...   )Жанр: RockПродолжительность: 02:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CC014BAFCADEE8AE2F68767EA34118DED8190E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704498   (114328) от 04.03.2024
+
+VA - 2020s Rock Attitude (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Linkin Park - Fighting Myself (3:21)
+02. Paramore - Running Out of Time (3:12)
+03. Green Day - Bobby Sox (3:44)
+04. THE GOO GOO DOLLS - Who's Gonna Hear Their Wish? (2:57)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7875111D67BCDDDA8EE3CD1C47993D822A313A1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704139   (114329) от 04.03.2024
+
+Dixie Jazz Proyecto Divertido, Jazz Instrumental Music Academy - Dixie Swingtime: Timeless Instrumental Collection of Dixieland Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birth Of The Dixieland Music (3:34)
+02. Happy Serenity (3:12)
+03. Break with Jazz (3:29)
+04. Timeless Vintage Coffee (3:35)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FB11EFCA4798DCB97043CD4DBF2572C8D921C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704514   (114330) от 04.03.2024
+
+Data Extractor 1.9.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Data Extractor позволяет извлекать данные, содержащиеся в текстовых документах, и собирать их во внутренней организованной таблице с полями и записями.
+Он может анализировать все указанные вами текстовые файлы. Проанализировав их, понять по текстовым тегам, что извлечь и куда это поместить. Data Extractor преобразует хаотические данные в один организованный элемент (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.03.2024Разработчик: © 2024 Roberto PanettaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CC152ACD137465788AB3AFA87B4A27E2D01474
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704365   (114331) от 04.03.2024
+
+Reader for Mac 5.8 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Reader — это быстрая и минималистичная программа просмотра PDF с мощными элементами управления.
+Это полная версия Reader, которая включает в себя базовые аннотации, включая выделение и написание желтых заметок.Тип издания: macOS SoftwareРелиз состоялся: 26.02.2024Разработчик: © 2024 The Augmented Text Company LTDПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B9A6C313E8B0CC8D0740E702FB645F9B8F5433
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704494   (114332) от 04.03.2024
 
 VA - Soothing Chill Lounge Relaxing Ultimate Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
@@ -472,186 +654,6 @@ Side 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:134DA743B3E5EA056A658A993E824857432432C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704474   (114351) от 04.03.2024
-
-VA - Chillout Mood (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chiffre 100 - Sunshiny (4:17)
-02. Logophilia - Puddle Reflections (4:20)
-03. Hohe Minne - Quiet Soul (4:29)
-04. Zirkadian Sender - Aeonium (4:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C19AB4C9454B9D04FE5A5D81BEA188FA343AD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704482   (114352) от 04.03.2024
-
-VA - Rhapsodic Night Rythm (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matteo Vanetti - Red Vision (6:55)
-02. Jp-Juice - Cette Planete (3:41)
-03. Lounge Groove Avenue - Sensual Soul (3:33)
-04. Living Room - Rain (4:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1258FABE3C4DB3696EEE37902B7097A3029A5A8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704355   (114353) от 04.03.2024
-
-С. Бенсон | Основы химической кинетики (1964) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114353.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первой части книги рассматриваются вопросы формальной кинетики простых реакций (порядок реакции, константа скорости, кинетические уравнения различных порядков), математические характеристики сложных кинетических систем и экспериментальные характеристики простых и сложных кинетических систем. Вторая часть имеет вспомогательный характер — она посвящена статистическим (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D221E91C8FE1F91B26E56C9C92C48C31BD76C581
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704489   (114354) от 04.03.2024
-
-VA - Greatest Smooth Lounge Chill Selection Relaxing Body and Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Still (3:49)
-02. Chillaxonic - Mesmerized (4:31)
-03. Chillaxing Jazz Kollektion - Blue Pacific (4:39)
-04. Kool&Klean - Vanilla Twilight (5:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDB828FDB64ED39D3C15B15C0F1E76FCF373D3C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704457   (114355) от 04.03.2024
-
-VA - Love & Lounge, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Urban Phunk Society - Spring 2 Summer (3:03)
-02. Lemongrass - Harmony (4:18)
-03. Tigerforest - Keep On Running (4:55)
-04. Steen Thottrup - Compassion (Remastered) (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9B46B61A62B6263CB3FC4E4FA9789B2247ABE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704344   (114356) от 04.03.2024
-
-Не отвечай по телефону! / Don't Answer the Phone! (1980) BDRip [H.264/720p] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ветеран Вьетнамской войны, неуравновешенный фотограф Кирк Смит, терроризирует Лос-Анджелес, убивая молодых женщин в их собственных домах. По его следу идет полицейский детектив лейтенант Маккейбл.Производство: США / Scorpion ReleasingЖанр: ужасы, триллер, детективРежиссер: Роберт ХаммерАктеры: Джеймс Вэстмолэнд, Бен Фрэнк, Фло Лоуренс, Николас Уорт, Дениз Галик-Фёри, Стэн Хэйз, Гари Аллен, Майкл Д. Кастл, Памела Джин Брайант, Тед ЧэпманПеревод: Авторский (Андрей Дольский)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C94EB286ACA5AB714E122F22589ED94CF1A3F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704357   (114357) от 04.03.2024
-
-Рождество в городе мастеров / Den forste julen i Skomakergata (2023) WEB [H.264/1080p] [UKR звук с ТS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Города мастеров нет на карте. Но слава о нем гуляет по всей округе. Раз в год, в канун Рождества, сюда стекаются гости в ожидании чудес. Кому-то достанется невиданный имбирный пряник, другому - волшебная песня. Но у одной юной леди желание позаковыристей - ей срочно нужна настоящая семья. Иначе неугомонные ищейки, следующие за ней по пятам, вернут ее в Школу для вредных (   Читать дальше...   )Производство: Норвегия / Nordisk Film Production ASЖанр: семейныйРежиссер: Микал ХовландАктеры: Коре Конради, Ребекка Нюстабакк, Ян Салид, Иман Мескини, Кристоффер Ольсен, Олав Вастад, Матиас Луппичини, Оскар Викен, Лене Конгсвик Йохансен, Лиза ТённеПеревод: Профессиональный многоголосый (звук с TS)Язык озвучки: УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:33:03Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:201F12C70AC374879240DB38BFC4E77CEADE9928
 ```
 
 

@@ -1,3 +1,226 @@
+###  Публикация: 458990   (94816) от 27.02.2012
+
+Rocky - Keyboard Wipeout (2011) [FLAC|Lossless]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocky - Cutback (9:48)
+02. Rocky - Priority Reboot (6:55)
+03. Rocky - Keyboard Wipeout (10:41)
+04. Rocky & Ace Ventura - Serotonin Overdose (8:19)
+05. Son Kite - Other Side (Rocky Remix) (10:18)
+06. Rocky & Sphera - Echo (9:45)
+07. Motion Drive - Dropout (Rocky Remix) (9:00)
+08. Rocky - Porcupine Juggle (10:23)
+09. Rocky - Circulation (4:26)2011Жанр: Psychedelic / ProgressiveПродолжительность: 01:19:35
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459047   (94824) от 27.02.2012
+
+Газета | Советчица. Приусадебное хозяйство [Украина] №1 (январь 2012) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94824.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Приусадебное хозяйство» от "Советчицы" - толковый помощник по дому, саду, огороду, которому известны все тонкости выращивания, обрезки, поливки, ландшафтного дизайна.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DAC514C5BA0E5892F2C0939F57870F6C794EBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456129   (94827) от 27.02.2012
+
+Dir en Grey - The Rose Trims Again (2008) DVD9
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт одной из самых популярных японских рок-групп
+без комментариев, это просто надо видеть и получать удовольствиеSA BIR
+OBSCURE
+GRIEF
+AGITATED SCREAMS OF MAGGOTS
+DISABLED COMPLEXES
+Merciless Cult
+蜷局
+艶かしき安息、躊躇いに微笑み
+AGITATED SCREAMS OF MAGGOTS -UNPLUGGED-
+CONCEIVED SORROWЖанр: JRockАктеры: Kyo · Kaoru · Die · Toshiya · Shinya
+http://ru.wikipedia.org/wiki/Dir_en_greyПеревод: ОтсутствуетПродолжительность: 01:48:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459003   (94835) от 27.02.2012
+
+VA - Dubstep Boom Vol.2 (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flux Pavilion - Haunt You
+02. Breakage - Fighting Fire (feat Jess Mills)
+03. Dj.automix – Calvin Harris - Feel So Close (Nero Remix)
+04. Karton - Chase It High (Original Mix)
+05. Eva – Body On Mine (Laze & Royal Electro Dubstep Remix)
+06. Freestylers - Cracks (Flux Pavilion remix)
+07. BreakNoise – Re-Think (Arkasia Remix)
+08. Evol Intent Feat Jackie B - Under (Bro Safari Remix)
+09. Spor - Pacifica
+10. Chase & Status - Heavy (vs Dizzee Rascal)(   Читать дальше...   )2012Жанр: DubstepПродолжительность: 01:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A424BE65B1C3A19DB55B21DE723919BD9B48BD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459169   (94841) от 28.02.2012
+
+VA - Copy Kills (2011) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Day.Din - Copy Kills (original mix) 06:37
+02. Twins - Speaking Mantra (original mix) 06:54
+03. Interactive Noise - Vienna 06:51
+04. Flegma - Oriented 07:14
+05. Virtual Attack vs Underbeat - 2nd Show 07:07
+06. Liftshift - Ritual Energy 08:49
+07. Eight Sin - Star Of Picker 06:38
+08. Ephedrix - Mexican Wave 07:11
+09. Ace Ventura - Baby Boom (original mix) 09:43
+10. Helber Gun - Swing Drop 07:08(   Читать дальше...   )2011Жанр: Psychedelic / Full On, Psy-ProgПродолжительность: 02:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96D818BA0BE3F51CADCC05F28721CAFDA09840B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459075   (94845) от 28.02.2012
+
+VA - Special Places (2012) [MP3|320 кб/с]<Ambient, Modern Classical>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K.D. Expression - Alpae-3717 (4:44)
+ 02. Cygna - Camaras De Lamento (7:14)
+ 03. Chronos - Dandelions As Memory (8:56)
+ 04. Irukanji feat. JazzyFlute - Out From Little Box (AstroPilot Edit) (6:26)
+ 05. Ambient Intelligent Application - Via Lactea (AstroPilot Edit) (8:13)
+ 06. Rabitza - Port (6:12)
+ 07. AstroPilot - Svoboda (5:13)
+ 08. Access To Arasaka - AUG (5:32)
+ 09. Field Rotation - Disappear (7:14)
+ 10. Nexar - Jewel (AstroPilot Edit) (5:21)(   Читать дальше...   )2012Жанр: Ambient, Modern ClassicalПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30931CAFA318942D6F304898B88C50E086281C08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459502   (94860) от 28.02.2012
+
+Billie Holiday - Easy To Love (2009) [FLAC|Lossless]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laughing at life (2:59)
+02. St. Louis blues (2:56)
+03. All of me (3:00)
+04. Am I blue ? (2:53)
+05. God bless the child (2:58)
+06. Gloomy sunday (3:14)
+07. Trav'lin' light (3:17)
+08. Do nothing 'till you hear from me (3:28)
+09. My old flame (3:02)
+10. He's funny that way (3:16)(   Читать дальше...   )2009Жанр: Jazz, Vocal JazzПродолжительность: 02:34:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 459010   (94863) от 28.02.2012
 
 David Guetta - DJ Mix 087 (25.02.2012) [MP3|224 кб/с]<Progressive House>
@@ -550,220 +773,6 @@ Cosmic Tone - Uniting Forces (2011) [FLAC|Lossless]<Psychedelic / Full On>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460011   (94941) от 29.02.2012
-
-VA - Mystic India (Vol.4) (2004) [MP3|320 кб/с]<New Age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craig Pruess - Waiting For The Beloved (07:28)
-02. Ranga - Phoenix (04:33)
-03. Deliter - Yellow Mandala (08:36)
-04. Bhakta - Third Eye (06:41)
-05. Chinmaya Dunster - Hanuman In New Delhi (04:15)
-06. Rasa - Jaya Radha (08:28)
-07. Niladri Kumar - Dhun (Raga Bhairavi) (09:22)
-08. Tanmoy Bose - Communion (04:04)
-09. Chinmaya Dunster & The Celtic Ragas Band - Wedding In Kotree (05:09)
-10. Galactic Agents - Kailash Baba (04:52)(   Читать дальше...   )2004Жанр: New Age, Meditative, RelaxПродолжительность: 01:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04822FF0AE94C86D9C27DA9469208A05D77023EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459355   (94943) от 29.02.2012
-
-[in]trance - The music becomes flesh (2012) WEB [FLAC|Lossless]<gothic metal\alternative>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - instinct of death 05:06
-02 - giant grey spheres 03:14
-03 - entrance to trance 04:11
-04 - antisocial 06:34
-05 - black hole blues 01:54
-06 - kill the hope first 05:49
-07 - круг от руки (Кавер-версия песни Максима Фадеева) 03:57
-08 - addiction 05:41
-09 - лили марлен 05:05
-10 - flesh becomes music 02:07(   Читать дальше...   )2012Жанр: gothic metal\alternativeПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459912   (94946) от 29.02.2012
-
-Журнал | Любимая дача [Украина] №3 [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимая дача - популярный иллюстрированный журнал о загородной жизни круглый год. Информация на любой вкус: советы и рекомендации о том, как обустроить дачный участок, как построить дом; инструкции для тех, кто стремится сделать дачный ландшафт красивым и уютным.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D919580C4CA92D001D5411FFC16FEF3FCD095B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459429   (94947) от 29.02.2012
-
-David Guetta - DJ Mix 085 (11.02.2012) [MP3|~224 кб/с]<House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Intro (00:28 )
- 02. Zedd - Stars Come Out (Lazy Rich Remix) (05:42)
- 03. Michael Woods - Airborne (05:25)
- 04. Starkillers & Dmitry KO - Don't Hold Back (04:43)
- 05. D-Mad - 1961 (03:49)
- 06. Quintino - We Gonna Rock (05:27)
- 07. Steve Aoki feat. Wynter Gordon - Ladi Dadi (Tommy Trash Remix) (04:18 )
- 08. John Dahlback - Life (05:35)
- 09. EDX & Nadia Ali - This Is Your Life (05:30)
- 10. Moguai - Mpire (04:11)(   Читать дальше...   )11.02.2012Жанр: HouseПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BA8251F95E7D38D87446BCA4B9D87D63FA2B50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460001   (94948) от 29.02.2012
-
-VA - Mystic India (Vol.2) (2003) [MP3|320 кб/с]<New Age, Meditative, Relax>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Asher - Pemulwuy (05:32)
-02. Sambodhi Prem - Mirror Of The Sun (05:40)
-03. Narayana - Sangit (08:28)
-04. Chinmaya Dunster - Right Samadhi (05:06)
-05. Kamal - Spirit Gathering (07:47)
-06. Kala Ramnath - Raag N Rythm (08:11)
-07. Deuter - Apres La Pluie (06:35)
-08. Namaste - Shiva Shambo (09:33)
-09. Hariprasad Chaurasia - Folk Melody (08:02)2003Жанр: New Age, Meditative, RelaxПродолжительность: 01:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EBC70228E801597A42A83CD3C14E91CD85BFDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460019   (94950) от 29.02.2012
-
-Carles Benavent - Un, Dos, Tres... (2011) [FLAC|Lossless]<Latin Jazz, Fusion, Flamenco>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don (3:41)
-02. Bailas (5:17)
-03. Novembre (5:03)
-04. Tirititran Catalan (4:55)
-05. Flamenquillo (5:05)
-06. Scenes d'Enfants (jeunes Filles Au Jardin) (3:12)
-07. Punt i Final (4:09)
-08. Mario (5:44)
-09. Cara Bobo (4:57)
-10. A Solas (3:35)2011Жанр: Latin Jazz, Fusion, FlamencoПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459968   (94961) от 29.02.2012
-
-Время покаяния (2012) TVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое ПОКАЯНИЕ и ЗАЧЕМ оно нужно современному человеку? Об этом рассуждают психолог, философ, богослов и проповедник, поэт и рок музыкант, дирижёр классической музыки, регент и монахиня — наши современники разных профессий и возрастов. Это взгляд на нравственные вопросы — совесть, духовную вертикаль человека, идеалы жизни.
-Среди участников - н.а. СССР Владислав Чернушенко (Художественный руководитель Государственной Капеллы Санкт-Петербурга), психолог Альфред Щёголев, философ и писатель Татьяна Горичева, самый известный в РПЦ миссионер и проповедник протодиакон Андрей Кураев, регент хора монахиня Иулиания (выпускница СПб Консерватории), поэт и рок-музыкант Юрий Шевчук.
-Вы увидите съёмки современного мегаполиса, рок-концерта с участием Э.Кустурица, великопостных концертов 2011 г., храмов и монастырей с использованием специальной съемочной техники.Жанр: ДокументальныйРежиссер: Антон АлексеевПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:203A09ECA219C6AE26923800FEB750AB4E345AA3
 ```
 
 

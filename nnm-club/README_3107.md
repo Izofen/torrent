@@ -1,3 +1,196 @@
+###  Публикация: 478932   (99045) от 08.04.2012
+
+[Wallpapers] Windows 8_ Wallpapers
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая подборка обоев с логотипом windows 8.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8884846BC893584AF8774E3724D6B64BCC77831
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478779   (99046) от 08.04.2012
+
+Полумгла (2005) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зима 1945 года. Война близится к концу. В глухой северной деревушке бригада пленных немцев строит вышку для радиомаяка. Жители деревни — женщины и старики, чьи мужья и сыновья воюют или погибли на фронте — встречают пленных с понятной неприязнью.
+
+История взаимоотношений совершенно разных, враждебных друг другу людей, которым необходимо найти общий язык, — это притча о том, как человек может оставаться человеком, несмотря на роковые повороты мировой истории.Жанр: Драма, ВоенныйРежиссер: Артём АнтоновАктеры: Юрий Тарасов, Сергей Грязнов, Йоханнес Рапп, Анастасия Шевелева, Лидия Байрашевская, Мартин Яковски, Наталия Бурмистрова, Кристиан Сегевальд, Александр СтекольниковПродолжительность: 01:44:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480279   (99048) от 09.04.2012
+
+VA - Танцевальное Движжение 50/50 (2012) [MP3|224 kbps]<Club | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. EL Roosh - Ускоряет на танцполе
+02. Da Hool - No Love Anymore (Radio Edit)
+03. Банzай - Плачу с дождем (Dj XM & Syntheticsax Remix)
+04. Example & Klaas & PH Electro - Kickstarts (Freaky Dj's Mash-Up)
+05. Катя Самбука & Bob Djek & DJ Chika - Broadway (Breida)
+06. Bellini - Samba De Janeiro (Dj Shummi Extended Mashup)
+07. БебиSкул & Max DeLmar & Katy Soul - Oдинокие
+08. Sander Van Doorn - Koko (Original Mix)
+09. DJ Smash feat. DJ Rijov & ChinLong - На заре (Tony Gastello Radio Edit)
+10. Far East Movement & Snoop Dogg - If I Was You (Benny Benassi Remix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 07:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:157D2DD5DA748D386172462B7D5FF7E134736FC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479938   (99050) от 09.04.2012
+
+VA - Wellness Hotels (2012) [MP3|320 кб/с]<Downtempo, ChillOut, Lounge>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99050.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cura - Garden of Happiness (7:57)
+2. Ayurveda Garden - Dreams, Traume (5:56)
+3. Progressence - Melody of Soul (6:36)
+4. Musique Pour Des Montagnes - (Sun) Ascending & Descending (3:18)
+5. Schwarz & Funk - 5 Am (Original Mix) (5:11)
+6. Sanderson Dear - 092502 (5:55)
+7. Mikie Wilde - The Magican (5:15)
+8. Musique Pour Des Montagnes - A Chain of Wooded Mountains (12:20)
+9. Passalo - A New Day (3:18)
+10. Cane Garden Quartet - Ageless (5:52)2012Жанр: Downtempo, ChillOut, LoungeПродолжительность: 04:33 :49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966B649CA72D5B46E331093F147A54FCD13CC923
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478665   (99051) от 09.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (05.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638E2B36BBD194462CA2A742ACCDDCA39416B348
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479821   (99052) от 09.04.2012
+
+Mariko Makino - On the Beach (2005) [MP3|320 кб/с]<New age, Relax>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99052.jpg" />
+</div>
+
+
+###  Подробнее
+
+(09:07) 1. Beibaisha
+(11:52) 2. Beyond the horizon
+(11:36) 3. Summer Dream
+(07:36) 4. Thinking back
+(10:43) 5. Stars of the night rain2005Жанр: New age, RelaxПродолжительность: 00:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FA2233151C4ED8678F1A1D9D6074C8153C8DFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480607   (99053) от 09.04.2012
+
+Desultor - Masters Of Hate (2012) [MP3|320 кб/с]<Progressive Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chapter 1: New Era 01:58
+ 02. Black Monday 03:12Жанр: Progressive DeathПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3EA4730D959004C2798207AB67EB43999EA279
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479013   (99054) от 09.04.2012
 
 VA - С Нами Не Соскучишься 50/50 (2012) [MP3|256 kbps]<Pop | Dance>
@@ -544,213 +737,6 @@ magnet:?xt=urn:btih:2AF8E8483CFB3E46DAA8D37B5B772522993AFA1E
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479256   (99089) от 09.04.2012
-
-VA - Dance Charts Арлекина. Часть 1 (2012) [MP3|256 kbps]<Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99089.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Michel Telo - Ai Se Eu Te Pego (Elkana pAz & Gili Kaneti Remix)
-002 Simon from Deeo Divas feat. Goody - Disco Dancer (Simon Original Radio Mix)
-003 Modana & Carlprit - Party Crash (Video Mix)
-004 Kim Appleby - The World Today Is a Mess
-005 1950 and the Chu Chi Girls feat. Hayley Jo - The Chu Chi Sway (Radio Mix)
-006 Frisco Disco feat. Ski - One Way Ticket (Radio Version)
-007 Tom Boxer & Morena feat. Meital De Razon - Voulez-Vous (Radio Edit)
-008 Mohombi - In Your Head (High Level Radio Edit)
-009 Kittens - I'm In Love (La La La) (Radio Edit)
-010 Mishelle feat. Randi - It Feels So Good (Radio Edit)(   Читать дальше...   )2012Жанр: DanceПродолжительность: 05:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:111D65FD74386165FCBD63EC1A9A52F9AE8E8DEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480741   (99091) от 09.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers №11
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99091.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers №11
-Название: Girls Desktop Wallpapers №11
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E9EAF1B5D2763916101D2308B06CC5F713FD32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480027   (99092) от 09.04.2012
-
-VA - Весенняя танzплощадка 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99092.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Любовные Истории - Без Тебя
-002 Nadia Aali - Rapture (Willy William Remix)
-004 Aelyn - Believe In Us (Chillout Mix)
-005 Светлана Лобода - На Свете
-006 Electric Giant Beatz Feat Michelle Williams - On The Run (Soul Seekerz Radio Edit)
-007 Eugene Star - Electro Pavlik(Mem Mix)
-008 Vali G & Mariana Moculescu - Crazy For U (Radio Edit)
-009 Чай Вдвоем - Новогодний Поцелуй (Alex Dea Radio Edit 2012)
-010 Scotty - Sundown (Radio Edit)2012Жанр: PopПродолжительность: 06:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66453E3C9C83DBF9C9456A747C4EE2B24DD01F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480026   (99094) от 09.04.2012
-
-VA - US TOP 25 Rock Song Chart (2012) [MP3|320 kbps]<Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gotye - Somebody That I Used To Know [4:04]
-02. Fun. Feat. Janelle Monae - We Are Young [4:11]
-03. Shinedown - Bully [4:01]
-04. The Black Keys - Lonely Boy [3:13]
-05. Foo Fighters - These Days [4:58]
-06. The Black Keys - Gold On The Ceiling [3:44]
-07. Chevelle - Face To The Floor [3:36]
-08. Seether - No Resolution [3:08]
-09. Grouplove - Tongue Tied [3:38]
-10. Five Finger Death Punch - Remember Everything [4:38](   Читать дальше...   )2012Жанр: RockПродолжительность: 01:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D907500C819E091EC8AFE9F1692CDB235976262
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480502   (99096) от 09.04.2012
-
-Обои для Рабочего стола - Alaska HQ Wallpapers [1920x1440] [30 шт.] (2012) JPG
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6ADEE6D3625B9EDD23E276F4893386E575B730
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479991   (99100) от 09.04.2012
-
-VA - In Da Club Vol.60 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99100.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Signum - Shamisan (Shogun Remix)
- 002. Sean Tyas - Banshee
- 003. Rafael Frost - Smash (Original)
- 004. Veracocha - Carte Blanche (Alex M.O.R.P.H. Remix)
- 005. Vertruda - Night Highway (Original)
- 006. The Waves - Sakura (Luigi Lusini & Thomas Schwartz Mix)
- 007. Pulser - In My World (Activa Remix)
- 008. Orjan Nilsen - Shoutbox! (Cressida Remix)
- 009. Ruben de Ronde - Forever In Our Hearts (Danny Chen Remix)
- 010. Ray Costa - Rainy Days (Original)(   Читать дальше...   )2012Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB593E61996F2E170A1C6501DBDBB031BF40728
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480635   (99101) от 09.04.2012
-
-Каникулы в Мексике - 2. Выпуск №26 (2012.04.09) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99101.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5DF020804F52A1227FFD5046154614FD738F5E0
 ```
 
 

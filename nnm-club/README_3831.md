@@ -1,3 +1,191 @@
+###  Публикация: 1696975   (119291) от 04.02.2024
+
+Savaged - Night Stealer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I Will Fight (05:41)
+02 - Tons of Leather (06:42)
+03 - Knights of Metal (05:10)
+04 - Welcome to... (01:05)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A218E89911D0741C7A1C4815DFBD5FCBA5164B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696839   (119292) от 04.02.2024
+
+Graywitch - Children Of Gods (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Overture To Olympus (00:01:12)
+02 - Children of Gods (00:03:47)
+03 - Odysseus (00:04:29)
+04 - Holy Lands (00:06:17)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0DC55EF4706E13E63748CA0A514D68F982DC0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696916   (119293) от 04.02.2024
+
+Kings of Gehenna - Return To Nightmare (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleepwalker...Return To Nightmare [00:05:55]
+02. The Daymare [00:04:43]
+03. Tower of Silence [00:03:41]
+04. Insomnia [00:05:36](   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C013704BC4F25C39DE60FECADE9D25C0A2C1CD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696810   (119294) от 04.02.2024
+
+Metralion - The Rest is Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (00:01:23)
+02 - Blurred Mirror (00:03:21)
+03 - Finitude (00:03:45)
+04 - Vanitas (00:03:20)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872DAE4B6D09661923838E27824AA712DA0ECE52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696804   (119295) от 04.02.2024
+
+Metralion - Requiem for a Society (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War Heroes
+02. Rivals + Tyrants
+03. Life In Flames
+04. Empires(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF2CE9A4755BCACD2D497CA71A5C225CEC9D77E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696835   (119296) от 04.02.2024
+
+Art Blakey & The Jazz Messengers - Straight Ahead (1981) 1990, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling in Love with Love [7:54]
+02. My Romance [3:43]
+03. Webb City [10:00]
+04. How Deep Is the Ocean [9:45](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B35E75EA2D432DAE3DD8A18BFD8ACC7ABE263689
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696741   (119297) от 04.02.2024
+
+Oromet - Oromet (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Familiar Spirits (21:59)
+02. Diluvium (11:31)
+03. Alpenglow (10:06)Жанр: Funeral Doom MetalПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D8CFCC68B56CCBA99B6899A657D3B22729296D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696685   (119298) от 04.02.2024
 
 Sore - Gruesome Pillowbook Tales (2007) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -495,187 +683,6 @@ The John Irvine Band - The Starships Are Gathering (2024) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C19765EF364EA1B39B9B018A88F9B440E66EC55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696929   (119317) от 04.02.2024
-
-Маленькая задира / The Little Tease (1913) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девочка с рожденья росла озорной и задиристой. Такой и выросла. Да, такие люди энергичные, веселые, оптимисты. Только это не гарантия от житейских проблем и ошибок. Может и наоборот. Энергичность мешает им спокойно все обдумать и оценить ситуацию, излишний оптимизм подталкивает к поспешным поступкам. Об этом и фильм.Производство: США, Biograph CompanyЖанр: короткометражный, драма, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Мэй Марш, В. Кристи Миллер, Кейт Брюс, Роберт Херрон, Генри Б. Уолтхолл, Виола Бэрри, Лайонел Бэрримор, Дороти Бернард, Эдвард Диллон, Эдна ФостерПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FFC8C62A4D34250F3C6B26DE94568B11BC3DD1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696934   (119318) от 04.02.2024
-
-Lucio Sanchez (Sánchez) - De Buena Madera (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lluvioso (5:56)
-02. Reflejo (5:17)
-03. Cold Night (3:40)
-04. Marzo (6:22)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F62515337BDEC54F76A0E8ABEAF1D8D7BA27AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696921   (119319) от 04.02.2024
-
-The Dead State - Здесь (2024) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Punk, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Здесь [00:02:12]
-02. Ты дерьмо [00:02:20]
-03. Культ хардкора [00:02:17]
-04. Враг [00:03:17](   Читать дальше...   )Жанр: Hardcore Punk, Hard RockПродолжительность: 00:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E94E600B16FA1A245ABCC5A54085AF057BE8B279
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696939   (119320) от 04.02.2024
-
-Randy Stark - At the Tower (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At the Tower (7:16)
-02. Messenger (7:22)
-03. Fortune Blue (6:56)
-04. Elements of Home (9:55)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A5A99FF3D009F9836EC07148622186328D71B57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696855   (119321) от 04.02.2024
-
-Solbrud - IIII (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hvile
-02 - Tåge
-03 - Når Solen Brydes Del I - En Undring Vækkes I Mit Sind
-04 - Når Solen Brydes Del II - Mod Afgrundens Flammehav(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF1CC9E3213FC2B8FC6840B251971E7B4A09E87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696768   (119322) от 04.02.2024
-
-С юбилеем подождем (1985) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктор Никитич Ткачук, энергичный и предприимчивый председатель колхоза «Новый быт», вывел отсталое хозяйство в передовые. И теперь, несмотря на полную разруху в соседних хозяйствах, решил отстроить для колхозников санаторий...Производство: СССР / БеларусьфильмЖанр: драмаРежиссер: Борис ГорошкоАктеры: Кирилл Лавров, Леонид Неведомский, Борис Новиков, Любовь Виролайнен, Александр Денисов, Людмила Писарева, Татьяна Чекатовская, Владимир Талашко, Владимир Носик, Игорь ВасильевСубтитры: отсутствуютПродолжительность: 01:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB02FB880D512CAD391BEA2CBEE7EEB324B28453
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696892   (119323) от 04.02.2024
-
-StaxRip 2.35.0 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_119323.jpg" />
-</div>
-
-
-###  Подробнее
-
-StaxRip - инструмент для кодирования видео "все-в-одном", который предназначен для преобразования Blu-ray/DVD/DVB и других видеоформатов в DivX, XviD, H.265, H.264. Поддерживает различные видеформаты (XviD, x264/H264/AVC, x265/H265/HEVC, VP9, AVI, MP4, MKV, WEBM) и аудиоформаты (MP3, AC3, MP2/MPA, AAC, DTS, WAV).
-Присутствует аппаратное кодирование для (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B75BF842B4A5B042D7026FEDD00E378C4FF1EA9
 ```
 
 

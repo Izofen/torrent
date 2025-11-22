@@ -1,3 +1,57 @@
+###  Публикация: 1797245   (66840) от 15.05.2025
+
+Deep Sun - Storyteller (2025) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Storyteller [00:04:31]
+02 - Tales That Should Have Never Been Told [00:04:13]
+03 - United Force (feat. Michele Guaitoli) [00:03:50]
+04 - Worlds Collide [00:04:49](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55121378CB5D64E56E9CC99ED535E86633D99ABF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796847   (66841) от 15.05.2025
+
+Сергей Коржуков - Неиздававшиеся ранее песни Сергея Коржукова (2002) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Тупики [00:02:37]
+02 - Автострада [00:03:04]
+03 - Роза красная [00:02:25]
+04 - Кафе [00:03:51](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0DA48A0B0FAC6EB802D1C456462AEAF75A1DC80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797274   (66842) от 15.05.2025
 
 Kaguya-sama wa Kokurasetai: Tensai-tachi no Renai Zunousen | Кагуя: В любви как на войне (2015) [28 томов, 281 глава + Экстра] [Манга] [Русский] [PNG, JPG] [Complete]
@@ -626,60 +680,6 @@ Dave Packham - The Wedding Dance (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7FFB738BAD32BCA394297674EBE2CDACC13D715
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797009   (66866) от 13.05.2025
-
-Noel Evans - AZTEC MOON (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aztec Moon (4:34)
-02.  Carry Me (4:05)
-03.  Silver and Gold (4:25)
-04.  Sad and Lonely and Blue (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6404BF80D0D1782E7AC4FFE213E3F7034843FB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796993   (66867) от 13.05.2025
-
-Brody Buster - Redemption (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Can You Hear Me (4:41)
-02.  Born to Be Bad (4:52)
-03.  Deadwood Shuffle (2:53)
-04.  Working for the Devil (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5BA8F0A04F7C27320A233627D40EA9AF3511D6
 ```
 
 

@@ -1,3 +1,215 @@
+###  Публикация: 470021   (97063) от 18.03.2012
+
+[Wallpapers] Games Wallpapers Pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97063.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Games Wallpapers Pack 1
+Название: Games Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625B6524D9F50BDEFCC4DAF49607F1ED6484DAE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468652   (97064) от 18.03.2012
+
+Johnny Griffin - 2 альбома (1993-2009) [WavPack|Lossless]<Bop, Hard Bop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music Inn Blues (8:38)
+02. For The Love Of (8:04)
+03. Always Forever (7:09)
+04. Keep Going (11:55)
+05. The Pasta Parade (8:45)1993-2009Жанр: Bop, Hard BopПродолжительность: 01:42:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469759   (97065) от 18.03.2012
+
+VA - Территория Кайфовой Музыки (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97065.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Натаника - Сама Не Своя
+002. Стас Шуринс - Прости
+003. Земфира - Без Шансов
+004. Ассорти - Не Говори
+005. Горячий Шоколад - Стены
+006. Карина Крит feat. Chris Parker - Мое сердце (Radio edit)
+007. Инфинити - Ты Мой Герой (Original)
+008. Анита Цой - Зима-лето
+009. Турбомода - Лучший Парень (Ser Twister Remix)
+010. Саша Ветер - Луна2012Жанр: Pop,DanceПродолжительность: 06:25:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA1928F53F538DC92F091FC5DCCF9111B74B0B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469560   (97066) от 18.03.2012
+
+VA - TMP : Vanilla Dreams 063 (2012) [MP3|320 kbps]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andre Visior - Angels (Grey & Frost Club Mix)
+02. Beat Service feat. Neev Kennedy - But I Did (Space Rockerz vs. Daniel Heatcliff Remix)
+03. Lugh Dessire - Hybrid (Original Mix)
+04. Paul Oakenfold feat. Infected Mushroom - I'm Alive (Sonic Element Remix)
+05. Lange feat. Sarah Howells - Let It All Out (Andy Moor Remix)
+06. Aimoon - Leto (Original Mix)
+07. Billy Gillies - Luminous (Original Mix)
+08. Ronski Speed feat. Renee Stahl - Out Of Control (Club Mix)
+09. Andy Duguid feat. Fenja - Strings (Moonbeam Remix)
+10. Matt Lange feat. Cristina Soto - The Other Shore (Tritonal Air Up There Remix)2012Жанр: Vocal TranceПродолжительность: 01:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0267E825E0F929147C1A90B56305C87ADC2DECE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469822   (97067) от 18.03.2012
+
+Журнал | Калининградские дома №3 [2012 март] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для всех кто строит дом, делает ремонт и конечно для всех кто только это планирует. Основой каждого номера выступает дом или квартира как своеобразная «персона», «личность» со своей судьбой и характером. Это рассказ о том, как планировалось и строилось то или иное жилье, какие технологии применялись, что из дизайнерских идей удалось воплотить.2012 мартФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D068A03831A1A3456D6BCFDDBAEEC64916548FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469569   (97068) от 18.03.2012
+
+VA - TMP : Vanilla Dreams 064 (2012) [MP3|320 kbps]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix)
+02. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix)
+03. Dennis Sheperd & Jonathan Mendelsohn - Bring Me Back (Album Extended Mix)
+04. Beat Service feat. Neev Kennedy - But I Did (Xtigma Remix)
+05. Cerf, Mitiska & Jaren - Down To You (Original Mix)
+06. Cressida & Natalie Paris - Easy To Forget (Club Mix)
+07. Benya feat. Emma Lock - Loved To Be (Nuera Remix)
+08. Arty vs. Imogen Heap - Seek Zara (SHato & Paul Rockseek Mashup)
+09. Chris Type & Jay Jacob - Surrender (I Know Shes Lonely) (Original Mix)
+10. Blue Tente feat. Aelyn - You're Not Mine (Balearic Mix)2012Жанр: Vocal TranceПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A915D088ED95EA7C4D4601854531C89312DF6350
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469790   (97069) от 18.03.2012
+
+VA - XXXL Союз Record №52 50/50 (2012) [MP3|256 кб/с]<Pop,Dance,Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97069.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вера Брежнева - Реальная жизнь (DJ Vengerov remix) (3:35)
+2. Knife Party - Internet Friends (original mix) (4:53)
+3. Steel Deluxe - Сердце открой (Johan K remix) (5:31)
+4. Factorfunk - Checkmate (original mix) (5:31)
+5. IKA - Дорогой мой (DJ Vengerov remix) (3:16)
+6. Niels van Gogh vs. Emilio Verdez - Beatrocker (original mix) (5:17)
+7. Shyma - Ветрами (Flashtronica remix) (3:14)
+8. Martin Solveig vs. Arno Cost & Hardwell vs. U2 - Ready 2 New Years Day (Tristan Garner Bootle (4:47)
+9. Quest Pistols - Ты так красива (DJ Vengerov rmx) (2:56)
+10. Lmfao - Sexy And I Know It (Stanislav Shik & Denis Rook remix) (5:19)2012Жанр: Pop,Dance,ClubПродолжительность: 08:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF8ADD96A990778E7CD8045AF808566E0BC05CC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470001   (97070) от 18.03.2012
 
 [Wallpapers] Avto Wallpapers Pack 14
@@ -583,218 +795,6 @@ VA - Новые Райские Хиты. Зарубежный (2012) [MP3|256 к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B402440425F09E2D3DE538345A351C7767B7A6CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467123   (97098) от 18.03.2012
-
-VA - Nope is Dope vol.12 2CD (2012) [MP3|~256 кб/с]<House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wally Lopez - Coolest
-02. Franky Rizardo & Skitzofrenix - Patulego
-03. Dave Rose & Will Clarke Ft. Mr Eyez - If Yo Ready
-04. Hardsoul Ft. Baggi Begovic - Survival
-05. Myomi Ft. Amber Jolene - Sun In My Eyes (Keith & Supabeatz Remix)
-06. The 2 Bears - Work (Franky Rizardo Remix)
-07. Skitzofrenix - Droppin That
-08. John Dahlback - Are You Nervous (Rene Amesz Rework)
-09. Olav Basoski - The Rain
-10. Oliver Twizt - Love Trip(   Читать дальше...   )CD 1: (Mixed by Firebeatz)
-Продолжительность: 01:03:01
-Битрейт: ~258 кб/с
-
-01. Firebeatz - Funky Shit
-02. Hardwell - Cobra
-03. House Republic - Nuggetz (Richard Grey Original Mix)
-04. Marcel Woods - Inside Me (Bassjackers Remix)
-05. Nicky Romero - Toulouse
-06. Bingo Players - Rattle(   Читать дальше...   )2012Жанр: HouseПродолжительность: 02:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:736E77EE49D200D9A80C2A0F7135CB3626A5563F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469766   (97099) от 18.03.2012
-
-VA - Звездная Вечеринка. Зарубежные Новинки (2012) [MP3|256 кб/с]<Pop,Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97099.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Roxette - Sleeping In My Car (Dj Favorite Delicious Remix)
-002. The Disco Boys - Around The World
-003. Medina - Lyser i morke
-004. Hardcore vibes - Global Deejays
-005. Justin Timberlake - Like I Love You (Extended Club Mix II
-006. No Mercy - Where Do You Go (Johan K & Eddie Mono Horny Bootleg Edit)
-007. Milena & Murzin Denis - Touch Me (Radio Version)
-008. Geri Holliwell - Let Me Love You More
-009. Tom Boxer Vs Tematik & Kerim Muravey & Алие Дживан - Я Улетаю
-010. The Anarchist - Battlescarz (original mix)2012Жанр: Pop,DanceПродолжительность: 06:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCD10AB963DCFB371341C81A273E56C21ECA7C37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469448   (97100) от 18.03.2012
-
-Kaspersky World 1.3.2.99 [Multi / Rus]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky World – это комплексное решение для работы с антивирусными продуктами Лаборатории Касперского. Позволяет загружать ключи, сбрасывать триал и т. д.Название программы: Kaspersky WorldЯзык интерфейса: Multi / Rus
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470003   (97102) от 18.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 97
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97102.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 97
-Название: Desktop Wallpapers Pack 97
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C22393C5DFC35DB6B7768342036B2884D5D4889
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469917   (97103) от 18.03.2012
-
-VA - Soul of Ibiza Volume 27 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97103.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Kyau & Albert - A Night Like This (Original Mix) (6:03)
-2. DNS Project feat. Madelin Zero - Another Day (Original Mix) (6:25)
-3. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix) (6:11)
-4. Beat Service feat. Neev Kennedy - But I Did (Xtigma Remix) (6:33)
-5. Eco feat. Radmila - Change The World (6:04)
-6. Richard Durand - Chopstick (8:21)
-7. Matt Darey & Kate Louise Smith - Crown Of Thorns (Aurosonic Progressive Mix) (6:47)
-8. Ralphie B - Delphi (Original Mix) (8:29)
-9. Billy Gillies - Digital Sundown (Paul Todd Remix) (8:44)
-10. Solarstone feat. Bill Mcgrudy - Electric Love (Piotro Microprog Love Mix) (9:16)2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61EE60C83C869E3DCDF08A227A192AB16611CDE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470023   (97104) от 18.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 102
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97104.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 102
-Название: Desktop Wallpapers Pack 102
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C29AC0F2FEEEAA082CCEA9CF9857391FC8AA286
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469665   (97105) от 18.03.2012
-
-Пятерка кладоискателей / Treasure Buddies (2010) DVD9
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великолепная Пятерка и ее новые друзья, должны приложить все силы к тому, чтобы перехитрить коварную кошку, разгадать сложные загадки и проникнуть в таинственную гробницу. И все это — ради величайшего сокровища животного мира.Жанр: Комедия, Приключения, СемейныйРежиссер: Роберт ВинсАктеры: Ричард Риле, Эдвард Херрманн, Мэйсон Кук, Адам Алекси-Маль ,Таккер Албрицци ,Филд Кейт, Мэтт Галлини ,Кейтлин МехерПеревод: ДублированныйЯзык субтитров: английский, русский, украинский, латвийский, литовский, эстонскийПродолжительность: 01:29:04
-
-## Скачать торент
-```bash
-нет
 ```
 
 

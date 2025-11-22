@@ -1,3 +1,55 @@
+###  Публикация: 1810227   (17503) от 03.08.2025
+
+Stellar Silence - Reditus (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Technologiczne zbawienie
+02. Trans-human
+03. Proxima Centauri
+04. Żadnej obcej myśli(   Читать дальше...   )Жанр: Melodic Death, Doom MetalПродолжительность: 00:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C59B5B6725B9543CCA1F69AB2C2A30A7FBED56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810139   (17504) от 03.08.2025
+
+D16 Group - Lush 2 2.1.5 VSTi, VSTi 3, AAX (x86/x64) RePack by TCD (Rev.1) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lush 2 — это обновление синтезатора, который сам по себе является эмуляцией на стероидах 40-летнего синтезатора!
+Lush 2 по-прежнему является 8-слойным синтезатором, но с огромной секцией арпеджио, большим количеством эффектов, переделанными осцилляторами и фильтрами, а также дополнительными элементами управления для настройки. Теперь он больше о том, как все сочетается (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3750BB1F1AD7848E8C4443ACBCAC08F448EA11A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810275   (17505) от 03.08.2025
 
 discoDSP - OB-Xd 3.10.2 STANDALONE, VSTi, VSTi 3 (x64) Free [En]
@@ -611,60 +663,6 @@ Monolith - Magnum Opus (2025) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:559BF17FF42F0BC67ADDA97EFF3AC10CCC0C4E4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798077   (17529) от 21.05.2025
-
-mclusky - the world is still here and so are we (2025) [FLAC|Lossless|tracks + .cue] <Noise Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. unpopular parts of a pig (2:21)
- 02. cops and coppers (2:03)
- 03. way of the exploding dickhead (2:49)
- 04. the battle of los angelsea (1:55)(   Читать дальше...   )Жанр: Noise RockПродолжительность: 00:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394A3EE5994ECF7BB060A2BE6397F1EF81D0EEB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798288   (17530) от 21.05.2025
-
-Ruzz Guitar's Blues Revue - Between Two Worlds (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_17530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  10-31 (3:44)
-02.  Casting My Spell (2:38)
-03.  Sweet Lovin (4:00)
-04.  Cry Baby (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1BE48C0469C275E15B92AFDA2563E2F1F422F40
 ```
 
 

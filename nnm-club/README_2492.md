@@ -1,3 +1,57 @@
+###  Публикация: 1804921   (65540) от 03.07.2025
+
+Neil Young And The Chrome Hearts - Talkin to the Trees (2025) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock, Roots Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Family Life [2:50]
+02 - Dark Mirage [5:40]
+03 - First Fire of Winter [4:44]
+04 - Silver Eagle [3:18](   Читать дальше...   )Жанр: Rock, Country Rock, Roots Rock, Folk RockПродолжительность: 00:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B7E49D9F876A4CCA5870B1CF6BCC7446A2D3ABB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805034   (65541) от 03.07.2025
+
+VA - Afro Funky Mix (Summer 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jestofunk - Fluid (6:34)
+02.  Funk Mediterraneo - Tribe Secret (4:10)
+03.  Vito Lalinga (Vi Mode Inc. Project) - Afro Bahia (5:24)
+04.  Yuri Piccolotto - Save Our Souls (6:29)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CEA927C96E19089DF7FAE824190396718C480FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805058   (65542) от 03.07.2025
 
 John Haydock - Back to the Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -640,55 +694,6 @@ Exmortus - Necrophony (2023) [FLAC|Lossless|image + .cue] <Neoclassical, Technic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E42A2BD392FAA5911CB5210D3BD2B567C0DD2170
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804741   (65566) от 01.07.2025
-
-Растровый клипарт - Envato - Skate and Destroy - 75+ Punk Stickers Vol. 1 - EVLSX42 [EPS, SVG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дайте волю грубому отношению и скейт-панковскому бунту с этим огромным набором наклеек Skate and Destroy . Наполненная более чем 75 нарисованными от руки графическими изображениями, эта коллекция передает сырую энергию DIY андеграундных скейт-журналов 80-х–90-х годов, хардкор-панк-листовок и гаражной культуры. Каждая наклейка создана с четкими контурами, высокой (   Читать дальше...   )Формат: EPS, SVG, PNGРазрешение файлов: 568x1034 - 6942x2406
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEF2FB92846D4E9D75E4C8719BF06DBAA3D951E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804648   (65567) от 01.07.2025
-
-Бернард Кинг | Привычки успешных людей (2014) [MP3, Алексей Мужицкий]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дональд Трамп, Рэй Крок и даже Генри Форд жили с этим! Да, как ни удивительно, но и у самых богатых людей мира есть свои привычки. Именно они привели их к славе, деньгам и успеху. Так узнайте же, как привыкли действовать, общаться, думать, руководить и, наконец, просто жить успешные люди.
-Четко видеть конечную цель. Нацеленность на результатЖанр: Личные финансы, Просто о бизнесеИздательство: AB PublishingПродолжительность: 01:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3A90086FBBDD144E2F6AA849DD2F49CE204773
 ```
 
 

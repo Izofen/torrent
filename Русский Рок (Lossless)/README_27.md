@@ -1,3 +1,84 @@
+###  Публикация: 1595317   (176026) от 04.12.2022
+
+Владимир Кузьмин - Дух в моей гитаре (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176026.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я из Эдгаров По
+2. Мы открыты всю ночь
+3. Миклухо-Маклай
+4. Улица(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06B862ACCA1F7F7101A43CF31DC53DB83732058
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595141   (176175) от 04.12.2022
+
+Helvegen - Следуй за мной (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 04042021 [00:00:53]
+02. Ритуал [00:03:13]
+03. Хель [00:02:44]
+04. Киберхейм [00:03:32](   Читать дальше...   )Жанр: Folk Rock, Hard RockПродолжительность: 00:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81649365A68B7576BF20C6B140D20C69A47682A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595253   (176190) от 04.12.2022
+
+Korella - Начало (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_176190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Начало [00:05:01]
+02. Саламандра [00:05:46]
+03. Нефилимы [00:04:02]
+04. Ложная слепота [00:04:38](   Читать дальше...   )Жанр: Modern Metal, Melodic Death MetalПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C2898B4516AB609E6A3729677A606FDD4E32BAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595294   (176245) от 04.12.2022
 
 Simulation: On! - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
@@ -611,87 +692,6 @@ VA - Рок зима (Russian Rock Legends) (2019) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF525C6976B0B2D283B474D63FA9D3528FC3BECD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593636   (179848) от 28.11.2022
-
-Silence of Her Death - 1 Album, 7 Singles (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Viking Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_179848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На границе тайги и тундры [00:03:22]
-02. Грехи плоти [00:04:57]
-03. Ты умрёшь [00:03:17]
-04. Несётся смерть [00:04:09](   Читать дальше...   )Жанр: Viking Pagan MetalПродолжительность: 8 CD, 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FE2C7441A760230EE1FD7B376555A39A4BD93AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593400   (180327) от 27.11.2022
-
-Гражданская оборона - Анархия в НГУ (1988) Переиздание, 2022, Bull Terrier Records [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_180327.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Punks not dead
-2. Против
-3. КГБ-Рок
-4. Нам с тобою хорошо(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A32065AF1BDF1B93254E4F2F7CDDF93BAF7695FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593051   (181825) от 25.11.2022
-
-Операция Пластилин - Блэкаут (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181825.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Опенинг (Ракамакафо)
-2. Блэкаут
-3. Сказка
-4. Хоровод(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77011DC8F4A18F1DD4F4C29D4534DBADCD434F9E
 ```
 
 

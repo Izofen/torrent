@@ -1,3 +1,192 @@
+###  Публикация: 1727814   (108397) от 04.06.2024
+
+Dolorosa - Summoning Ancient Bleakness (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sombre Passage (02:30)
+02. Mother Sorrow (05:39)
+03. From the Distant Shadows (05:13)
+04. Nocturnal Wisdom (04:53)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87DC09D0FF28CC28ACD8F7696757C7C66D511111
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727642   (108398) от 03.06.2024
+
+The Fail Of God - Acatalepsy (2024) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Unparalleled Power
+02 - Chain Reaction
+03 - Harness The Atom
+04 - Chaos Theory(   Читать дальше...   )Жанр: Deathcore, Melodic Death MetalПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3589A60FD9913191DBAC8C7EF7E6B8754A0820DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727600   (108399) от 03.06.2024
+
+Chris Potter - Eagle's Point (2024) Edition Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream of Home [5:39]
+02. Cloud Message [7:05]
+03. Indigo Ildiko [7:19]
+04. Eagle's Point [7:36](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF33E6EF0EFB4612D9935049B77CCC0D5B7A0E73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727658   (108400) от 03.06.2024
+
+Suffering Souls - In Synergy Obscene (2019) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Idolised and Vilified
+02. In Synergy Obscene
+03. Inheritance of Irony
+04. In Death Reborn(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010846B6FC321EFD6701E9616657FC42D5801790
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727591   (108401) от 03.06.2024
+
+Charlie Byrd - The Concord Jazz Heritage Series (1980 - 1997) 1998, Concord Records [FLAC|Lossless|tracks + .cue] <Mainstream jazz, Latin Jazz, Guitar jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Wonderful World [3:42]
+02. Baia [5:02]
+03. Swing '59 [4:43]
+04. Stone Flower [4:57](   Читать дальше...   )Жанр: Mainstream jazz, Latin Jazz, Guitar jazzПродолжительность: 01:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98AF377E279038AFD47745911065A009CBA2353B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727559   (108402) от 03.06.2024
+
+Deliverance - Stay of Execution (1992) [FLAC|Lossless|image + .cue] <Speed, Thrash Metal, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Stay Of Execution
+02 Windows Of The Soul
+03 Words To The
+04 From Once Was(   Читать дальше...   )Жанр: Speed, Thrash Metal, IndustrialПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC1D40DC8A4105C0FE350DD6214682373E39647
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727667   (108403) от 03.06.2024
+
+Young Acid - Murder At Maple Mountain (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Garage Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Depths [00:02:52]
+02. Bitter Little Man [00:03:32]
+03. Fightmaker Street [00:02:49]
+04. PV 444 [00:03:25](   Читать дальше...   )Жанр: Alternative Rock, Garage RockПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:922E8A66A841F0B46B1F2F7508F1C334BD2E13E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727530   (108404) от 03.06.2024
 
 Nightmares On Wax - Carboot Soul (1999) Deluxe Edition, 2024, Warp Records [FLAC|Lossless|WEB-DL|tracks] <electronic, house, techno, triphop>
@@ -495,183 +684,6 @@ Deliverance - What a Joke (1991) Remastered, 2020, Retroactive Records [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E94624D01CC4D1DDF2B0B67EE148A99132B98774
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727588   (108423) от 03.06.2024
-
-Mary Lou Williams - A Keyboard History (1955) 2011, Poll Winners Records [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fandangle [2:08]
-02. Mama, Pin a Rose on Me [3:28]
-03. Roll 'Em [3:38]
-04. Sweet Sue [3:34](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91F49DB62E065AE0C4FC9792A6EC70C3D95F6550
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727599   (108424) от 03.06.2024
-
-VA - Slow Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergey Bryukhno - Harpsichord Concerto No. 5 in F Minor, BWV 1056 II. Largo (2:46)
-02. Katya Kramer-Lapin - Lieder aus Franz Schubert's Schwanengesang, S. 560 No. 7, Ständchen (6:04)
-03. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
-04. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC87168C0A903DFF2B5D15C361D67CCC3BC5A05A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727603   (108425) от 03.06.2024
-
-Avi Rosenfeld & Stefano Stex Sbrignadello - Attack (2024) [MP3|320 Kbps] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stalingrad (04:33)
- 02 - Solar System (05:07)
- 03 - Fading Out (05:02)
- 04 - Sitting In The Trenches (05:58)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC75B08A40D87ECD33A297A1797984AD12FE8FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727327   (108426) от 03.06.2024
-
-Одна жизнь / One Life (2023) WEB-DLRip [H.264] [UKR звук с TS] [AD]
-
->>Горячие новинки
->>Экранки с рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скромного и непубличного джентльмена Николаса Уинтона приглашают на телевизионное ток-шоу, где он наконец-то узнает всю правду о событиях Второй мировой войны, когда он пытался спасти сотни детей от гибели в концлагере. Одна жизнь может изменить судьбы сотен людей — как в прошлом, так и в настоящем.Производство: Великобритания / See-Saw Films, MBK Productions, BBC FilmЖанр: драма, биография, историяРежиссер: Джеймс ХоузАктеры: Энтони Хопкинс, Хелена Бонем Картер, Джонни Флинн, Лена Олин, Тим Стид, Матильда Торпе, Дэниэл Браун, Алекс Шарп, Иржи Симек, Ромола ГарайПеревод: Профессиональный многоголосый (звук с TS)Язык озвучки: УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:48:59Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99CAFED4539780585B8B6019AFA313F8582B138
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727673   (108427) от 03.06.2024
-
-Журнал | 5 Колесо №6 (368) (июнь 2024) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108427.jpg" />
-</div>
-
-
-###  Подробнее
-
-«5 колесо» - один из самых популярных автомобильных журналов в России, имеющий многолетнюю успешную историю развития. Одной из главных особенностей журнала являются непосредственное участие читателей в испытаниях автомобилей, представленных на российском рынке, а также самый полный каталог автомобилей, официально продаваемых на российском рынке с актуальными, действительными (   Читать дальше...   )Жанр: Автомобильный журналИздательство: ООО «5К»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA425F5E0771984FC5C2004F07535FAE062EBF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727672   (108428) от 03.06.2024
-
-Плохие спят спокойно / Warui yatsu hodo yoku nemuru (1960) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Послевоенная Япония. Молодой человек Коити Ниси жаждет отомстить за смерть отца, которого принудил к самоубийству вице-президент крупной земельной компании. Ради того, чтобы посадить в тюрьму соучастников преступления, Ниси использует чужие документы, нанимается секретарём в ту самую компанию, входит в доверие к вице-президенту Ивабути и сыну Ивабути, даже женится (   Читать дальше...   )Производство: Япония / Kurosawa Production Co. Ltd., Toho CompanyЖанр: драма, криминал, триллерРежиссер: Акира КуросаваАктеры: Тосиро Мифунэ, Масаюки Мори, Кёко Кагава, Тацуя Михаси, Такаси Симура, Ко Нисимура, Такэси Като, Каматари Фудзивара, Тисю Рю, Сэйдзи МиягутиПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: английскиеПродолжительность: 02:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50BC239A208EDFFFA2E2CCD7912FE9C13B1F0922
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727652   (108429) от 03.06.2024
-
-Двое в пути / Two for the Road (1967) BDRip [H.264/720p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о супружеской паре, брак которой находится на грани распада. Перед зрителем проходит множество эпизодов их совместной жизни, начиная с момента знакомства, что позволяет проследить эволюцию их отношений. Может не всё прошло?...Производство: Великобритания / Stanley Donen Films, Twentieth Century-Fox Film CorporationЖанр: драма, мелодрама, комедияРежиссер: Стэнли ДоненАктеры: Одри Хепбёрн, Альберт Финни, Элеанор Брон, Уильям Дэниелс, Габриэлла Миддлтон, Клод Дофен, Надя Грэй, Жорж Декриер, Жаклин Биссет, Джуди Корнуэлл, Ирэн Хильда, Доминик Джус, Кэрол ван Дайк, Карин Бальм, Ив БарсакПеревод: профессиональный многоголосый, профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AA8A553593847D4D7B6FA5781CF657AD53CFDF7
 ```
 
 

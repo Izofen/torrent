@@ -1,3 +1,57 @@
+###  Публикация: 1744239   (46167) от 20.08.2024
+
+Duran Duran - Is There Something I Should Know? (1983) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is There Something I Should Know? [00:04:09]
+02. Faith in This Colour [00:04:06]
+03. Is There Something I Should Know (Monster Mix) [00:06:44]
+04. Faith in This Colour (Alternate Slow Mix) [00:04:06]Жанр: Synth-pop, Pop RockПродолжительность: 00:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE7C807336439386083507D8BE2D934938BE73A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744180   (46168) от 20.08.2024
+
+VA - Metalheads (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gojira - Stranded (4:29)
+02. A Day To Remember - Feedback (2:32)
+03. Avenged Sevenfold - Hail to the King (5:05)
+04. Deftones - My Own Summer (Shove It) (3:35)(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057B1E4095B5041A3A8F53EC857F36A811B1CDF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744143   (46169) от 20.08.2024
 
 Scarlet Rebels - Let Me In (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -608,54 +662,6 @@ magnet:?xt=urn:btih:3F34B5697492D12ADA6624435331B1851EE19948
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B1ECB47176685797DF37DD0F5CE427EF04155C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744188   (46193) от 20.08.2024
-
-Природа любви / Simple comme Sylvain / The Nature of Love (2023) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46193.jpg" />
-</div>
-
-
-###  Подробнее
-
-София легко цитирует Платона и Шопенгауэра. Сильвену чинить крыши легче, чем рассуждать о чувствах. Она пьет изысканное вино, он завсегдатай пивного бара. Она преподает теорию любви, а ему интереснее теории заговоров. У этих двоих так мало общего, что они могли бы возненавидеть друг друга. Или влюбиться без памяти.Производство: Канада, Франция / Metafilms, MK Films, Fonds QuebecorЖанр: комедия, мелодрамаРежиссер: Монья ШокриАктеры: Магали Лепин Блондо, Пьер-Ив Кардиналь, Франсис-Уильям Реом, Монья Шокри, Стив Лапланте, Мари-Джинетт Гуай, Мишлен Ланкто, Гийом Лорин, Линда Сорджини, Мэтью БаронПеревод: Профессиональный многоголосый (CPI Films, TVShows)Язык озвучки: Русский, ФранцузскийСубтитры: Русские (Forced, Full), Французские (Full, SDH), АнглийскиеПродолжительность: 01:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D13FADD0A8CF1D4E95F8A00C9C91C11FF800FEB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744126   (46194) от 20.08.2024
-
-Vampire Dormitory | Общежитие вампиров [2024, TV, 12 эп.] WEBRip 1080p raw+eng+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мито Ямамото - девушка, которой не повезло в жизни. Оставшись без крыши над головой, она прикидывается парнем и отчаянно пытается выжить. Когда она потеряла всякую надежду, её спасает эксцентричный вампир по имени Ру́ка. Он на дух не переносит кровь женщин и предлагает Мито стать его рабом, постоянным источником крови, не зная, что Мито на самом деле девушка. (   Читать дальше...   )Производство: Studio Blanc. | GraphinicaЖанр: РомантикаРежиссер: Нагаяма НобуёсиЯзык озвучки: Японский, Английский и Русский (AniLibria | AniBaza | AnimeVost | JAM | DreamCast)Субтитры: Английские (Полные (CrunchyRoll) и Надписи (CrunchyRoll)), Русские (Полные (CrunchyRoll | AniLibria) и Надписи (CrunchyRoll | AniLibria))Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58726D3F27C801004E7A997668AA5B34A5CEE157
 ```
 
 

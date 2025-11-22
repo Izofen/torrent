@@ -1,3 +1,27 @@
+###  Публикация: 1810622   (8492) от 11.08.2025
+
+Мир Юрского периода: Возрождение / Jurassic World: Rebirth (2025) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+
+>>След.
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа исследователей отправляется в труднодоступные экваториальные регионы, чтобы добыть ДНК трёх гигантских доисторических существ. Их цель - совершить прорыв в медицине, который может изменить будущее человечества.Производство: США, Великобритания, Мальта, Индия, Тайвань / Universal Pictures, Amblin Entertainment, SKY StudiosЖанр: фантастика, боевик, триллер, приключенияРежиссер: Гарет ЭдвардсАктеры: Скарлетт Йоханссон, Джонатан Бейли, Руперт Френд, Махершала Али, Эд Скрейн, Мануэль Рульфо, Луна Блэйз Бойд, Дэвид Яконо, Niamh Finlay, Audrina MirandaПеревод: Дублированный (Red Head Sound, Dragon Money Studio), Многоголосый (Jaskier, HDRezka, заКАДРЫ)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 02:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56450608479FA507EE1930F5F9ED72FDCB8938E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810920   (8493) от 11.08.2025
 
 Ограбление / The Pickup (2025) WEB-DL [H.264/1080p]
@@ -605,33 +629,6 @@ magnet:?xt=urn:btih:084E1D7385ECDC3224E92FCEE6F07590A5324E42
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:461233C35376315C6D0556F088373DD39507ADFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821013   (8520) от 30.09.2025
-
-VA - 100% Ibiza (The Deep-House Closings 2025) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calmabohain - Take Me Away 03:26
-02. Jaques Le Noir - Be Control (Radio Edit) 03:08
-03. Steen Thottrup & Kaia Mainz - Dreamers (Dazzla Deep Remix) 06:14
-04. Pnfa - Keating 07:02(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:733DA18951C41FA7999BEE82D30EED007EAFB53E
 ```
 
 

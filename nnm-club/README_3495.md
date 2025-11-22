@@ -1,3 +1,187 @@
+###  Публикация: 1719508   (110555) от 29.04.2024
+
+Когда раздался ночной звонок / When the Night Call Came (1914) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Романтическая криминальная история, в котором преступница Нелли, состоит в банде злодеев, и обманывает богатого фраера - выходит за него замуж, только чтобы заполучить его денежки. И вроде дело сладилось, но женское сердце подвело, мошенница по-настоящему влюбилась в муженька и встала на его сторону в схватке с бандюками. Вот и мораль истории, пацаны - не вмешивайте (   Читать дальше...   )Производство: США, Selig Polyscope CompanyЖанр: короткометражный, драма, криминал, немое киноРежиссер: Эдвард ЛеСэйнтАктеры: Гай Оливер, Юджин Бессерер, Джо Кинг, Фред ХантлиПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D6FC990C68E68BBC465028DA2625F50E22CFA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719307   (110556) от 29.04.2024
+
+Stormborn - Zenith (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Call of the Void (01:57)
+02 - Land of the Servant King (04:07)
+03 - Fear of a Monster (02:54)
+04 - The Unending Night (01:10)(   Читать дальше...   )Жанр: Heavy, Power-MetalПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6650FE91FE94FE6903C940EAA2F22D39877B4B58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719289   (110557) от 29.04.2024
+
+Nomy - The House That Jack Built (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – The House That Jack Built
+02 – Heroes are calling
+03 – RUN!
+04 – Dead man walking(   Читать дальше...   )Жанр: Modern Metal, RockПродолжительность: 01:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A46D8C155686F0C6F96338F5DC0C928E2CEBDA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719405   (110558) от 29.04.2024
+
+The Mayfield Four (MF4) - Studio Albums (2 releases) (1998-2001) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mayfield Four (aka MF4) - рок-группа, образованная в Спокан, штат Вашингтон, в 1996 году. Группа официально распалась в 2002 году.1998 - Fallout
+2001 - Second SkinЖанр: Hard RockПродолжительность: 01:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5395A9C980C1032B5665DBB2F937C8A958646F0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719342   (110559) от 29.04.2024
+
+Ard - Untouched By Fire (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom Metal, Funny Funeral Coffin Dance>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Cursed To Nothing But Patience
+02 – Name Bestowed
+03 – Hefenfelth
+04 – He Saw Nine Winters(   Читать дальше...   )Жанр: Melodic Doom Metal, Funny Funeral Coffin DanceПродолжительность: 01:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7EC1ED7A37C4FFE0D2F2C21042CC9881AB312F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719390   (110560) от 29.04.2024
+
+Morgul Blade - Heavy Metal Wraiths (2024) [FLAC|Lossless|WEB-DL|tracks] <Blackened Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eagle Strike (3:05)
+02. Beneath the Black Sails (6:13)
+03. Heavy Metal Wraiths (3:27)
+04. Frostwyrm Cavalry (3:50)(   Читать дальше...   )Жанр: Blackened Heavy MetalПродолжительность: 00:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF737612445AA49BC5DA92E956D2904B758C3B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719401   (110561) от 29.04.2024
+
+Disbelief - Killing Karma (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, Black Metal, Sludge>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reborn 03:58
+02. Killing Karma 04:35
+03. The Scream That Slowly Disapeared 03:40
+04. With Deep Regret 04:13(   Читать дальше...   )Жанр: Death, Black Metal, SludgeПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635062358A8853EABF8E0D104E8DB58D78F3757E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719448   (110562) от 29.04.2024
 
 НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 4-й матч) Ванкувер Кэнакс - Нэшвилл Предаторз (28.04.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
@@ -486,195 +670,6 @@ magnet:?xt=urn:btih:CB47834FEF0A199BBF241A765C2BC93D627FC68B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F68502659929E88C86D29677C73D45FDDCF87367
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719506   (110581) от 29.04.2024
-
-Athena's Revenge - Wisdom & Warfare (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Warcry
-02 - Echo Chamber
-03 - Footsteps in the Sand
-04 - Open the Box(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C985AF0ECE4281EBA26852A74C809E8010E079C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719356   (110582) от 29.04.2024
-
-The Free Design - Butterflies Are Free: The Original Recordings 1967-72 (2020) 4CD [FLAC|Lossless|WEB-DL|tracks] <Sunshine Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canada In Springtime (2:29)
-02. Kum Ba Yah (3:15)
-03. Peter, Paul And Mary (4:11)
-04. Pineapple Crabapple (3:10)(   Читать дальше...   )Жанр: Sunshine pop, jazz, vocal, easy listeningПродолжительность: 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B885A6C28BA0325E299A4F26DAFCAFC177BA897C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719235   (110583) от 29.04.2024
-
-Ротация - Горизонт событий (2024) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Не стреляй!
-02 - Город грехов
-03 - Не будь как все
-04 - На краю пропасти(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0307FB1A1D5D59690083CCD53867C9FB6827A136
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719231   (110584) от 29.04.2024
-
-Waysted - Waysted (1983) Expanded Edition, 2024, Cherry Red Records [MP3|320 Kbps] <Heavy Metal, Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waysted – Won’t Get Out Alive
-02. Waysted – The Price You Pay
-03. Waysted – Rock Steady
-04. Waysted – Hurt So Good(   Читать дальше...   )Жанр: Heavy Metal, Rock, Hard RockПродолжительность: 01:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1FBB28985162DFCC78C67C223B84EF0AA05469D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719202   (110585) от 29.04.2024
-
-Amerikan Kaos - Armageddon Boogie (2024) [MP3|320 Kbps] <Classic Metal, Hard 'n' Roll, 80's>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - My Little Devil
-02 - The Pasadena Four
-03 - Roll On Down The Highway
-04 - Wait For Me (In Heaven)(   Читать дальше...   )Жанр: Classic Metal, Hard 'n' Roll, 80'sПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29EF90D1E3E18A3F9742ABCC88615D1F9B7A5E17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719386   (110586) от 29.04.2024
-
-Darkness - Blood On Canvas (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110586.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wake Up in a Rage 03:58
-2. A Couple of Kills 04:12
-3. Night in Turmoil 04:57
-4. Human Flesh Wasted 04:37(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D800D5640BFCB15C6A0E4CF04FD74DAB8515E530
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719176   (110587) от 29.04.2024
-
-VA - Eosella Music One Year Anniversary (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florida Forgotten - The Pill (Extended Mix) (04:38)
-02. Montyi;  Frailai - Skam (Extended Mix) (06:41)
-03. Maratone & Zinity - Stargazing (Extended Mix) (07:51)
-04. Rolaway - Africa Chant (Extended Mix) (04:53)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EDB41FF49960926867C85B7285592F5FB0A6AA9
 ```
 
 

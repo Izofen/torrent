@@ -1,3 +1,192 @@
+###  Публикация: 1343278   (219672) от 05.12.2019
+
+Anacondaz - Мои дети не будут скучать (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219672.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мои дети не будут скучать
+2. Пусть они умрут (feat. Noize MC)
+3. Все хорошо (feat. Inice)
+4. Гуд-трип(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4153DBBB200C5BD29F672F768D468A590E70DD4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269717   (219860) от 15.12.2018
+
+Denzel Curry - Ta13oo (2018) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Trap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_219860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taboo | Ta13oo (3:17)
+02. Black Balloons | 13lack 13alloonz (feat. GoldLink | GoldL1nk & Twelve'len | Twelve'len) (3:30)
+03. Cash Maniac | Cazh Man1ac (feat. Nyyjerya | Nyyjerya) (3:18)
+04. Sumo | Zumo (3:45)(   Читать дальше...   )Производство: Loma Vista – LVR00243Жанр: Hip-Hop, TrapПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F960229D0008D7FF7EC1EF50683E1A964B348379
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425239   (220837) от 21.11.2020
+
+Санчес - Продано. Часть 3. Возрождение (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_220837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Неизбежность (Вступление) [00:27]
+02. 220 км (feat. ПИТ Б.О.Р.З. & Виктор) [03:03]
+03. Возрождение (feat. Ramzan/view Point, VA84 & Понка) [03:23]
+04. Я знаю... (feat. Крис & Кислый/МанифестЪ) [06:10](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F523D95DE2CE112351E5D534BC908BB879BF5936
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513864   (221043) от 01.12.2021
+
+Нигатив - Либератта (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кто я [03:18]
+02. Крылья [03:11]
+03. Наоборот [04:00]
+04. Человек - винегрет [03:03](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:813BB3BB4589F2A6BB254982495D5AA10630B22F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514012   (221110) от 01.12.2021
+
+VA - Chillhop Essentials - Winter (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moods – Snaring River (2:54)
+02. Otxhello – Happy In My Mind (2:03)
+03. Taro – The Little Place (2:08)
+04. Ian Ewing, Toonorth, Philanthrope – Mortal Wombat (2:50)(   Читать дальше...   )Производство: Chillhop MusicЖанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF444DE03AD8B68FE34AE420657200A3523DF061
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342928   (221526) от 04.12.2019
+
+Chingy - Powerballin' (2004) [FLAC|Lossless|tracks + .cue] <Crunk/Midwest Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haters 101 (Intro)
+02. Give Em Some Mo
+03. Fall-N ft. G.I.B.
+04. Balla Baby(   Читать дальше...   )Жанр: Crunk/Midwest Hip-HopПродолжительность: 01:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440B557E0905B0301AB3633F55387EE7677F4C27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425245   (221549) от 20.11.2020
+
+Баста - 40 (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_221549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [02:25]
+02. С самых низов [05:39]
+03. Верил всегда (feat. Odi) [05:44]
+04. Время догонит нас (feat. Moscow Gospel Team) [06:06](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C79B6FFBF1418FD755E2D10911F5E4BD3C3790C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425237   (221864) от 20.11.2020
 
 Санчес - Продано, Ч. 2. Конец (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
@@ -506,195 +695,6 @@ Kussani - жизнь наоборот (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB8E234166E17A6BC086036C8B3F9FA7BC7D6337
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460060   (235342) от 04.04.2021
-
-Sagath - Necrotica 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вторая часть (Intro) [02:04]
-02. Это мой крест [03:12]
-03. Существо [02:53]
-04. Ведьмин дом [03:31](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E009CC5E228AFF422365D23233ED1D6A3DBBC40C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629139   (238283) от 26.04.2023
-
-Lloyd Banks - The Course of the Inevitable 3: Pieces of My Pain (2023) [MP3|192 Kbps] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pieces of My Pain
-02. Onyx AMG
-03. Money Machine
-04. Cliffhanger(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B02CCB8721FCA99685FD3A09A4233E1BD2B10D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636585   (238920) от 31.05.2023
-
-$uicideboy$ - YIN YANG TAPES: Winter Season (1989-1990) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Season Intro (0:39)
-02. Bossier City Kidnap Victims (2:44)
-03. Didn't They Give You Percoset? (2:10)
-04. I Deleted Facebook a Long Time Ago (2:57)Жанр: Hip-Hop, RapПродолжительность: 00:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B736CDC9588CE56E5321395A29C173B3E13AE39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636278   (239222) от 29.05.2023
-
-Lil Durk - Almost Healed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Therapy Session (1:28)
-02. Pelle Coat (4:14)
-03. All My Life (3:44)
-04. Never Again (2:20)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2F169C22EEBECDE25E47A9E9E2900C31C23975B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635137   (240052) от 24.05.2023
-
-KAYTRAMINE - KAYTRAMINE (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who He Iz (3:01)
-02. letstalkaboutit (2:47)
-03. 4EVA (3:10)
-04. Westside (2:24)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD87BC77922D1E6D93226323A5CC84DCB2F78B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626930   (240058) от 16.04.2023
-
-ХЛЕБ - Последний (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240058.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дэб
-2. Убили Кирилла
-3. Марина
-4. Дети(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C162ED1D69E3CEAF5DDB784764E7F09175DC3295
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626765   (240100) от 17.04.2023
-
-NF - Hope (2023) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - HOPE [00:04:24]
-02 - MOTTO [00:03:37]
-03 - CAREFUL [00:03:29]
-04 - MAMA [00:03:28](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC076B0014F667FC7BBF32370D97F682748119B
 ```
 
 

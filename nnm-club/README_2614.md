@@ -1,3 +1,57 @@
+###  Публикация: 1787820   (68712) от 27.03.2025
+
+Helloween - Helloween (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out for the Glory (07:19)
+02. Fear of the Fallen (05:39)
+03. Best Time (03:36)
+04. Mass Pollution (04:15)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F8C881FA806420C16F49C7BEE16B806645112F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786245   (68713) от 27.03.2025
+
+Елена Гудкова - 2 Albums (2025) [MP3|320 Kbps] <авторская и военная песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сундучок [00:03:44]
+02. Близкая вода [00:03:19]
+03. Я хорошая [00:05:30]
+04. Берег [00:04:39](   Читать дальше...   )Жанр: авторская и военная песняПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1E86083FEC3672D82EFBD4E94A8A0B983E04E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787854   (68714) от 27.03.2025
 
 VA - Ibiza Spring 2025 (Deep-House Smoothies from the Heart) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -623,60 +677,6 @@ Kris Pohlmann - Relentless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10C35245FCEE57EDE45FD60622937C0ECA81AF98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787474   (68738) от 26.03.2025
-
-Traveler - Echoes of Tomorrow (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Give [00:05:10]
-02. In The Name Of [00:04:00]
-03. Do What You Want [00:04:09]
-04. Never [00:03:51](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:30:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7B50CC40AF218476FA59AD4E03E99603880648
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787575   (68739) от 26.03.2025
-
-Emily Remler - Cookin' At the Queens: Live In Las Vegas (1984,  1988) 2CD, 2024, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Bossa Nova, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of Nowhere [8:18]
-02. Manha de Carnaval [13:36]
-03. Cisco [6:14]
-04. Yesterdays [8:18](   Читать дальше...   )Жанр: Hard Bop, Bossa Nova, Guitar JazzПродолжительность: 02:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A960E123838A0DB935420365BEF2174A4AA95B49
 ```
 
 

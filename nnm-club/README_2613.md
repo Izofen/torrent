@@ -1,3 +1,56 @@
+###  Публикация: 1787779   (68686) от 27.03.2025
+
+Шрифты - Creative Market - Gatsby Gilmour - Art Deco Font - 290806347 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gatsby Gilmour — изысканный шрифт в стиле ар-деко, воплощающий в себе вневременной гламур и смелую эстетику 1920-х годов.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159329F6184D82939A64774864462E0C7DD8E092
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787789   (68687) от 27.03.2025
+
+VA - Amsterdam Session 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleksey Litunov - Zero Two (Reprise) (06:32)
+02. Cryalta Generation - In The Air (06:03)
+03. CJ Stereogun - Cassiopeia (07:02)
+04. DJ 5L45H - Lumin4 (07:48)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FFA0E51BAA4CB4CD5EF2E8F3C7871159219DB90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787808   (68688) от 27.03.2025
 
 Шрифты - Creative Market - Archine Eamore | Fancy Classic Serif - 290922277 [OTF, TTF]
@@ -611,60 +664,6 @@ magnet:?xt=urn:btih:1E42F9E7A32D42986F696D8C4720DCA719811544
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:690E0A3FEB53539209309AF99D2E0490CC97D16F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787820   (68712) от 27.03.2025
-
-Helloween - Helloween (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out for the Glory (07:19)
-02. Fear of the Fallen (05:39)
-03. Best Time (03:36)
-04. Mass Pollution (04:15)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F8C881FA806420C16F49C7BEE16B806645112F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786245   (68713) от 27.03.2025
-
-Елена Гудкова - 2 Albums (2025) [MP3|320 Kbps] <авторская и военная песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сундучок [00:03:44]
-02. Близкая вода [00:03:19]
-03. Я хорошая [00:05:30]
-04. Берег [00:04:39](   Читать дальше...   )Жанр: авторская и военная песняПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1E86083FEC3672D82EFBD4E94A8A0B983E04E8
 ```
 
 

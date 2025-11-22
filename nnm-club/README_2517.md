@@ -1,3 +1,54 @@
+###  Публикация: 1801689   (66190) от 12.06.2025
+
+V.A. - Cafe del Mar Ibiza Chillout Mix V (DJ Mix) (2025) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Hilton, Natalia Clavier - Amor Astral (Mixed)
+02. Stoned Autopilot, Martin Buttrich - June (Mixed)
+03. A Vision of Panorama, Cafe Del Mar - WLM (Mixed)
+04. Dj Python - Club Sentimiental, Vol. 3 (Mixed)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4969F5BF1BC51A83BD6DAFA377CD506FA36CF08E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801741   (66191) от 12.06.2025
+
+Display Tester v5.35.5 Mod by Balatan [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проверьте свой экран и выясните, есть ли у него неприятности. С помощью этого инструмента тестирования вы можете проверить LCD/OLED-экран вашего устройства. Он предназначен для полноэкранного тестирования в устройствах ICS/Honeycomb путем скрытия программных клавиш.Тип издания: ProРелиз состоялся: 11.06.2025Разработчик: BraintrappПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100C223F93CE8E7F997EAF9B1332C4F84A6651C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801760   (66192) от 12.06.2025
 
 The Cure - Mixes Of A Lost World (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock, Rock>
@@ -618,60 +669,6 @@ Blues Rock Generations - Blues Rock Generations No.7 (2025) [FLAC 24/48|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D15B01EE22FC8B2D6E88EC53314E55E3B5374C56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801040   (66216) от 08.06.2025
-
-Tim Hardin Trio - Light Intelligence Series 3 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martini: Plaisir d'amour [4:45]
-02. Gounod: Ave Maria [4:17]
-03. Saint-Saens: The Swan [3:48]
-04. Bizet: Menuett from 'L'arlesienne' [3:28](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD972E0F1FE383EAAB0A8304C1BA1A57053610EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801037   (66217) от 08.06.2025
-
-Tim Hardin Trio - Light Intelligence Series 2 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mozart: 'Alla turca' from Piano Sonata in A major [4:11]
-02. Mozart: 'Allegro molto' from Symphony No.40 in G minor [4:13]
-03. Beethoven: Fur Elise [3:49]
-04. Beethoven: 'Allegro' from Violin Sonata No.5 in F major [3:34](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F693E9D6891FB6415125955B61D5287EDA6629D9
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1785070   (69414) от 14.03.2025
+
+VA - Rewind - 29 Italo Disco Classics (1997) 2CD [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scotch - Disco Band (4:07)
+02. Righeira - Vamos A La Playa (5:09)
+03. Valerie Dore - The Night (6:17)
+04. Ryan Paris - Dolce Vita (7:31)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7DA615F00DFCD0D2C58CE47C7A91565A3C3497
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785039   (69415) от 14.03.2025
+
+Дайте танк (!) - Хрупко (2025) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69415.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Конец
+2. М
+3. Фамилия
+4. Просьба(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7463351DEC58BF6844298C8B91095BA8216FA376
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785042   (69416) от 14.03.2025
 
 Лучший Самый День - Вселенная онлайн (2025) [MP3|320 Kbps] <Punk Rock>
@@ -603,55 +657,6 @@ magnet:?xt=urn:btih:7E946346F5F1F01BABE9CCE35EFFAF9F5EAB8A68
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12AF4CD62B6C3BC772F953D1998BEBB614939F7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785037   (69440) от 14.03.2025
-
-Фоны - Artnoy - Creative Fabrica - Digital Paper Marble Wave Background [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные фоны под мрамор с дополнениями.
-Разработчик: ArtnoyФормат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3478A43D0B13C8BAEE7FD6FCE80915265E295F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785208   (69441) от 14.03.2025
-
-KORG - multi/poly native 1.0.3 Standalone, VSTi 3, AAX (x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдохновленный легендарным KORG Mono/Poly, новый синтезатор аналогового моделирования KORG multi/poly обеспечивает захватывающие аналоговое звучание в сочетании с необычайной цифровой мощностью и гибкостью. Он уже получил признание как один из лучших синтезаторов года.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C69782745E3ACEA962D890DE4AE00A8129B75C7
 ```
 
 

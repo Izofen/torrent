@@ -1,3 +1,189 @@
+###  Публикация: 1753717   (103794) от 06.10.2024
+
+Motley Crue (Mötley Crüe) - Cancelled (2024) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cancelled
+02. Dogs Of War
+03. Fight For Your RightЖанр: Heavy metalПродолжительность: 00:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0731FD4E1FED1FDD9E4F6C4DC668BFA7AA6F64C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753694   (103795) от 06.10.2024
+
+VA - Car Bangers Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slipknot - The Dying Song (Time to Sing) (3:23)
+02. Avenged Sevenfold - Nightmare (6:14)
+03. Linkin Park - Numb (3:07)
+04. All Time Low - Fake as Hell (feat. Avril Lavigne) (2:59)(   Читать дальше...   )Жанр: RockПродолжительность: 03:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A5AFF35B7FC59492CA5E1ABFDBA0A198AA9FA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753697   (103796) от 06.10.2024
+
+VA - Rock Nation October 2024 [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Day - Dilemma (3:18)
+02. twenty one pilots - Overcompensate (3:56)
+03. ALEXSUCKS - Hate Me If You Want (2:52)
+04. Highly Suspect - Summertime Voodoo (6:28)(   Читать дальше...   )Жанр: RockПродолжительность: 01:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339180EB8E800C6EEAA1A987E8B5033C4DCAD51A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753798   (103797) от 06.10.2024
+
+VA - Just Blues (Soulful Groovy Tunes, Vol. 2) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Wisteria - Grafton Street (4:23)
+02. The Boneshakers - Big Legged Man (4:25)
+03. JJ Soul Band - At the Mall (2:53)
+04. Suzanne's Band - Back to Brown (2:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29B8941FE4EF7CE2CA05608B146C0FABB50A764
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753546   (103798) от 05.10.2024
+
+Cannonball Adderley - Burnin' In Bordeaux: Live In France (1969) 2CD, 2024, Elemental Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Experience in E [12:52]
+02. Blue 'n' Boogie [8:47]
+03. Come Sunday [6:53]
+04. Walk Tall (Baby, That's What I Need) [4:17](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BAF6492DABCFE8A9D59F565A6D25C1C92291495
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753589   (103799) от 05.10.2024
+
+CultistOne - Blues from the Abyss (A Lovecraftian Blues Journey) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whispered Shadows (4:00)
+02. Tempest Mountain Blues (3:58)
+03. The Cannibal's Delight (3:15)
+04. Broken Dreams (2:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3059F5B00129CAA0276A857394C6779DA6F1EC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753575   (103800) от 05.10.2024
+
+Waldorf - Microwave 1 1.1.0 VSTi, VSTi 3, AAX (x64) [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Технология Microwave показала себя с наилучшей стороны благодаря уникальной интерпретации волнового синтеза в сочетании с аналоговыми фильтрами.
+Теперь Waldorf Music возвращает этот волшебный инструмент на цифровые рабочие станции по всему миру, выпустив подключаемый модуль Microwave 1.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA09F1CF4D8A5B9D46EF9E46FEDF24930907764
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753523   (103801) от 05.10.2024
 
 VA - Find Your Harmony 2024 Part 2 - NATURE (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -491,185 +677,6 @@ magnet:?xt=urn:btih:BBA5F3A6430CFA6C671A9AB074A6921160CB5C47
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE8C57E8B040DED48BAB87DB7B522570028B5896
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662711   (103820) от 05.10.2024
-
-Sylosis - Studio Albums (9 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Thrash Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sylosis — британская метал-группа из Рединга. Группа была основана в 2000 году гитаристом Джошем Миддлтоном и бас-гитаристом Карлом Парнеллом.2006 - Casting Shadows (EP)
-2007 - The Supreme Oppressor (EP)
-2008 - Conclusion of an Age
-2011 - Edge of the EarthЖанр: Melodic Death Metal, Thrash Metal, MetalcoreПродолжительность: 00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCF3A624E8061F1237F9377BCDE3841CA01A4789
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753504   (103821) от 05.10.2024
-
-Король лев / The Lion King (1994) WEB-DL 3D [H.264/1080p] [Горизонтальная анаморфная стереопара]
-
->>Мультфильмы
->>Мультфильмы (3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103821.jpg" />
-</div>
-
-
-###  Подробнее
-
-У величественного Короля-Льва Муфасы рождается наследник по имени Симба. Уже в детстве любознательный малыш становится жертвой интриг своего завистливого дяди Шрама, мечтающего о власти.
-Симба познаёт горе утраты, предательство и изгнание, но в конце концов обретает верных друзей и находит любимую. Закалённый испытаниями, он в нелёгкой борьбе отвоёвывает своё законное (   Читать дальше...   )Производство: США / Walt DisneyЖанр: мультфильм, мюзикл, драма, приключения, семейныйРежиссер: Роджер Аллерс, Роб МинкоффПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: 01:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2411D943077448F13CD40107078D764F883A4F1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753520   (103822) от 05.10.2024
-
-Главная дорога (05.10.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виновен в смерти двоих или жертва ошибки? Парализованного инвалида то выпускают из колонии, то отправляют туда снова.
- Семь месяцев на ремонт автомобиля по полису ОСАГО, хотя по закону на это отводится всего 30 дней! Андрей Федорцов и Денис Юченков показали все круги страхового ремонта для обычного автовладельца, который вовсе не виноват в аварии. Как ведущим удалось (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4419B20FCCF7FFC0BBF05347BA53F67533AA4743
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753497   (103823) от 05.10.2024
-
-Twisted Sister - Stay Hungry (40th Anniversary Edition)(2CD) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Glam, Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Kids Are Back (Live in San Bernardino, CA, 5/19/1984) (3:11)
-02. I Wanna Rock (Live in San Bernardino, CA, 5/19/1984) (6:10)
-03. Under the Blade (Live in San Bernardino, CA, 5/19/1984) (4:32)
-04. The Beast (Live in San Bernardino, CA, 5/19/1984) (4:44)(   Читать дальше...   )Жанр: Glam, Hard Rock, Heavy Metal
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDAF133704889C47BCF41C6FCAAB0FB96FD0901E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753480   (103824) от 05.10.2024
-
-Димитрий Ростовский | Жития святых. Месяц август (2024) [MP3, Л. Лепшина]
-
->>Обучающие аудиоматериалы
->>Религия (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жития святых издавна были основным содержанием Миней-Четьих - произведений русской церковно-исторической и духовно-учительной литературы. Повествования о жизни святых Православной Церкви излагаются в Минеях-Четьих по порядку месяцев и дней каждого месяца. Из четырех известных сочинений такого рода Минеи-Четьи Св. Димитрия Ростовского, написанные на церковно-славянском (   Читать дальше...   )Жанр: ПравославиеИздательство: Неофициальное изданиеПродолжительность: 19:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94493FB6175194FBE34DED246DDD27383D72766
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753593   (103825) от 05.10.2024
-
-Tablacus Explorer 24.10.4 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tablacus Explorer - удобный в работе и простой в использовании файловый менеджер, позволяющий работать с двумя, либо четырьмя панелями, с возможностью создавать нужное количество вкладок на каждой. Tablacus Explorer дублирует все стандартные функции Проводника для работы с папками и файлами, дополняя их удобным представлением. Благодаря утилите процессы копирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AB61E377C848BE1B9EA96493631BEBBC123339
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753540   (103826) от 05.10.2024
-
-Братья Махно и Гуляй Поле - Любо, братцы, жить! (1993) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рубаха красная
-02. Отпусти меня, Батя
-03. Бродяга
-04. Матрёшка(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDB19B03FA627559A9179E4F0D39A9E9FA0142F5
 ```
 
 

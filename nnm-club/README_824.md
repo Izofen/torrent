@@ -1,3 +1,57 @@
+###  Публикация: 1790963   (21761) от 11.04.2025
+
+VA - Musical kaleidoscope part 37 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisco Le Voyageur - Voyage Enigmatic 5
+02. Aleksey Boychenko - The Broken Heart is Still Beating
+03. Enigma - Mea Culpa
+04. Aurora Night - Tomorrow is Now(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E434D41DEF2B2753FB03326FBE4C6A45357A380B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790989   (21762) от 11.04.2025
+
+Eric Clapton, John Mayall & The Bluesbreakers - Blues Anthology, Vol. 3 (REMASTERED) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Mayall's - Telephone Blues (3:56)
+02. Albert King - Born Under A Bad Sign (3:27)
+03. Fleetwood Mac - Man Of The World (2:49)
+04. Jimi Hendrix - Bleeding Heart (8:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9D2DCEE0CC2D58E4E5780365A96D8DA0EAF06B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790915   (21763) от 11.04.2025
 
 VA - 12.04, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, Synthwave>
@@ -586,54 +640,6 @@ magnet:?xt=urn:btih:CDCF67D3259A867AA0A5F8C4EE8DB3443344B78E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F947B49CE3200AE642FDC71355E1AD5E1735D2A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791010   (21787) от 11.04.2025
-
-The Talos Principle: Reawakened (2025) [Ru/Multi] (build 18057167) Repack seleZen
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_21787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернитесь в невероятно красивый мир интригующих загадок и философских размышлений в The Talos Principle: Reawakened. Издание Definitive Edition предлагает вам снова поучаствовать в захватывающей истории The Talos Principle, отправившись в путешествие по дополненному и переработанному миру симуляции.Тип издания: RepackРазработчик: CroteamЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6DF9E24E7408AE467C0F466C917BE276902DECC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413632   (21788) от 11.04.2025
-
-Горячий снег (1972) HDTV [H.264/1080i]
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_21788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает об одном из эпизодов героического сражения против фашистов на подступах к Сталинграду, в котором в полной мере проявились стойкость и сила духа русских солдат, защищавших родную землю.Производство: СССР / МосфильмЖанр: Драма, военныйРежиссер: Гавриил ЕгиазаровАктеры: Георгий Жженов, Анатолий Кузнецов, Борис Токарев, Вадим Спиридонов, Николай Еременко-мл., Тамара Седельникова, Ара Бабаджанян, Юрий Назаров, Алексей Панькин, Валентин ГрачевСубтитры: Русские, английскиеПродолжительность: 01:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F019B88237B603B8DFB4EEBEA45BBD9D6C3BF826
 ```
 
 

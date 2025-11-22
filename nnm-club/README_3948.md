@@ -1,3 +1,183 @@
+###  Публикация: 1692638   (122333) от 17.01.2024
+
+Вадим Лоткин - Тапер (1997) [FLAC|Lossless|image + .cue] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тапер
+02. Мужчина средних лет
+03. Верность моя
+04. Интимный разговор(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A631B2238FAE6970D72F6BC0BD61F7CE5D6F8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692659   (122334) от 17.01.2024
+
+Lilith’s Black Lotus - Triple Six Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triple Six Revolution 04:26
+02. The Undead Army 03:58
+03. I’m The Storm 05:01
+04. Symphony Of Death 05:16(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A865901FD2DCB1355D649266316D7FDF49BA016
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692730   (122335) от 17.01.2024
+
+4K Tokkit Pro 2.5.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один простой способ скачать все с TikTok. 4K Tokkit - это идеальное приложение для массовой загрузки контента TikTok. Сохраняйте задачи TikTok, подписи, целые аккаунты, хэштеги и отдельные видео в высоком качестве. Смотрите TikToks офлайн, просматривайте ленту TikTok без рекламы, делайте репосты клипов в другие социальные сети.Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2024 Open Media OOOПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C938C3BED06ADE9C3C461C0FDB8E0B2A838F49BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692711   (122336) от 17.01.2024
+
+Crossfire - Switch to Reset (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Switch To Reset (07:28)
+02 - Book Of The Dead (06:09)
+03 - Lost All Control (06:23)
+04 - Who Goes There? (08:00)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD783C2508D3CD7F01E3D73B2EB64F17992DDC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692505   (122337) от 17.01.2024
+
+Ui - Sidelong (1995) Reissue, 2024, Numero Group [FLAC|Lossless|WEB-DL|tracks] <Math Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. August Song [00:05:29]
+02. Long Egg [00:03:03]
+03. Sexy Photograph [00:03:29]
+04. Top Requests [00:04:33](   Читать дальше...   )Жанр: Math RockПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69528FB93D92EE1F04DC59E07097BC601B008B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692724   (122338) от 17.01.2024
+
+Live Wallpaper & Themes 4K Pro for Mac 19.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live Wallpaper & Themes 4K позволяют использовать живые обои на рабочем столе/экранной заставке. Приложение предоставляет тысячи живых обоев в мастерской, потребляя при этом как можно меньше системных ресурсов.Тип издания: macOS SoftwareРелиз состоялся: 03.01.2024Разработчик: © 2023 WHBALZAC IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583B17F0D3A121D470484583DCA22C28EF7EB266
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692682   (122339) от 17.01.2024
+
+Башня переключателей / The Switch Tower (1913) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая и простенькая история о том как сын стрелочника, совсем еще ребенок, оказался весьма сообразительным и шустрым пацанчиком и сумел противостоять банде и спасти своих родителей.Производство: США, Biograph CompanyЖанр: короткометражный, драма, криминал, немое киноРежиссер: Энтони О’СалливанАктеры: Генри Б. Уолтхолл, Клер Макдауэлл, Бастер Эммонс, Лайонел Бэрримор, Чарльз Уэст, Джон Т. Диллон, Уильям А. Кэрролл, Фрэнк Эванс, Джордж Беранджер, Энтони О’СалливанПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35688EDC89B8038CF76E36E1B27D9FE1C9FCB905
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692566   (122340) от 17.01.2024
 
 PaintCode 3 v.3.5.4 [En]
@@ -474,184 +654,6 @@ magnet:?xt=urn:btih:65B6E494BD4F12CF601884B6C5257B064E42E6BC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9332CEB0F87EFAA747AC48DAB17ADBD6FDD054D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692542   (122359) от 17.01.2024
-
-Chain - Study & Workout Timer 10.1 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Chain Timer – это удобный мультитаймер на каждый день.Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © Roman SevastyanovПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C6E45D0CA098EAC8D12D4D5970816D3576C947E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692375   (122360) от 17.01.2024
-
-Subsonica - Realta Aumentata (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cani Umani [00:03:31]
-02. Mattino di Luce [00:03:45]
-03. Pugno Di Sabbia [00:03:36]
-04. Universo [00:04:40](   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64105BC272FEE2CA66E117CAA7E4EBC8483F7C4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692595   (122361) от 17.01.2024
-
-VA - Top 8 December 2023 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sothzanne String - The Day You Left (Cedric Paul Remix) [8:13]
-02. Sauli - Focus (Gav Crayton Remix) [6:29]
-03. Elissandro - Only You (Original Mix) [8:06]
-04. Victor Special - Feel Free Your Dreams (Original Mix) [7:33](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B28E3AD889D8820F7B3315B598B12845580A35C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692536   (122362) от 17.01.2024
-
-4K YouTube to MP3 Pro for Mac 5.1.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122362.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2023 Open Media OOO.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6634888112AE82D50F75ABA8EC8FE4F43E650F6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692539   (122363) от 17.01.2024
-
-DirEqual 5.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122363.jpg" />
-</div>
-
-
-###  Подробнее
-
-DirEqual - это инструмент сравнения папок, который упрощает сравнение локальных файлов и папок на вашем Mac. DirEqual отображает сравниваемые каталоги рядом в виде расширяемых деревьев, а размер и дата указываются для каждого элемента. Различия между каталогами обозначены цветом и легко различимы значками.
-Чтобы скопировать или удалить файлы / папки, щелкните отдельный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2023 by Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC03B41C42376181D5EA165DEF33ACE7092AA52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692543   (122364) от 17.01.2024
-
-FSNotes 6.6.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122364.jpg" />
-</div>
-
-
-###  Подробнее
-
-FSNotes - это менеджер текстовых заметок для macOS и представляет собой современное переосмысление нотационной скорости (nvALT) на стероидах. В нашем приложении рассматриваются следующие открытые форматы: plain / text, Markdown и RTF, а также хранятся данные в файловой системе. Вы можете просматривать, редактировать и копировать данные в своем любимом внешнем редакторе (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2024 Oleksandr GlushchenkoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Украинский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9996FA7925A169E47C9EEE4781965F6A9ECC8B21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692712   (122365) от 17.01.2024
-
-Holy Dragons - Fortress (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Shadows (03:22)
-02. The Stockholm Syndrome (04:11)
-03. Vampire Thrill (03:15)
-04. Warrior of Dreams (Back to the Future) (06:28)(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B82B21E4A120C57750D81A03DE0CBAA61131CD
 ```
 
 

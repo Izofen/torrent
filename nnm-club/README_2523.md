@@ -1,3 +1,57 @@
+###  Публикация: 1799877   (66346) от 30.05.2025
+
+All Against - Straight Down To Hell (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight Down To Hell (09:05)
+02. Narrow Streets Of Disgrace (03:26)
+03. Nação Valente e Imor(t)al (04:44)
+04. Out Of The Box (03:14)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B44C2465E27E62B1C6C5A9A5589D865FDEB657
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799934   (66347) от 30.05.2025
+
+Emma Wilson - A Spoonful of Willie Dixon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  SPOONFUL (4:56)
+02.  GOOD TO THE LAST DROP (4:53)
+03.  I CAN'T QUIT YOU BABY (4:41)
+04.  WANG DANG DOODLE (4:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACDDA6261FDD5C77254E3F423D1CDD3C6E6DBAF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799842   (66348) от 30.05.2025
 
 Футбол. Мелбет 1 лига России 2024/25. 34-тур. Черноморец (Новороссийск) - Сочи (24.05.2025) WEBRip [H.264]
@@ -618,57 +672,6 @@ magnet:?xt=urn:btih:65C4190F442D9FCF5995AE6D49D6ED7E2DB8A5EC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E8CDE6EF20559C033A40696F4E73F251E4E7019
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791386   (66372) от 30.05.2025
-
-Сорвать банк 2: Игра по-крупному / High Rollers (2025) WEBRip [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вор-профессионал Мэйсон даже после инсценировки смерти вынужден вернуться к прежним делам и запланировать очередное супер-ограбление. Его возлюбленная Эми находится в заложниках, и похититель — старый враг Салазар — требует достать ему сейф из казино.Производство: США / Convergence Entertainment Group, Lightnin' Production Rentals, Limitless Films IЖанр: боевикРежиссер: Рэндолл ЭмметтАктеры: Джон Траволта, Джина Гершон, Лукас Хаас, Натали Юра, Ноэль Гульеми, Свен Теммел, Деми Кастро, Алекс Херт, Данни Пардо и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:40Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799915   (66373) от 30.05.2025
-
-Spencer Sutherland - The Drama Deluxe (The Encore!) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to the Show! [00:01:22]
-02. Alive [00:02:49]
-03. Let Me Loose [00:02:25]
-04. Drama [00:02:25](   Читать дальше...   )Жанр: PopПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:754CB3D040904D6C49C5C3D9DA7C0487CF0F1B94
 ```
 
 

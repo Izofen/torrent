@@ -1,3 +1,187 @@
+###  Публикация: 1760095   (103196) от 12.11.2024
+
+Art Blakey & The Jazz Messengers - The Complete 3 Blind Mice (1961, 1962) 2CD, 2022, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mosaic [12:31]
+02. Ping Pong [12:25]
+03. The Promised Land [13:14]
+04. Arabia [11:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204C255DD582E7E691B3A5380152547026F1E29C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759944   (103197) от 12.11.2024
+
+Kenny Thomas - Remixed The Best Of Kenny Thomas (2023) Remixed, 2CD, 2024, Chrysalis Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul, Soulful House, Deep House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thinking About Your Love (Touchdown 2 Mix) [00:04:53]
+02. Outstanding (Macattack Mix) [00:08:04]
+03. Best Of You (12" Mix) [00:04:54]
+04. Piece By Piece (Absolute Mix) [00:06:20](   Читать дальше...   )Жанр: Soul, Soulful House, Deep HouseПродолжительность: 2 CD, 02:23:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8329B01596498E310D17C866A90132FBB2FD85B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760194   (103198) от 12.11.2024
+
+Друзья по офицерской школе / Vennerne fra Officersskolen (1913) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Др-р-раматическая история. Два молодых друга-офицера, Эдмон и Клейтон, влюбляются в прекрасную Роуз. В неожиданной опасной ситуации раскрываются робость Эдмона и смелость Клейтона, после чего Роуз решительно выбирает своим избранником своего героического спасителя. Преисполненный ревности, Эдмон прилагает все усилия к мести...Производство: Дания /  Nordisk Film KompagniЖанр: короткометражный, мелодрама, драма, немое киноРежиссер: Эдуард Шнедлер-СоренсенАктеры: Mathilde Felumb, Friis Anton, Gambetta Salmson, Alma Hinding, Отто Лагони, Карл Лауритцен, Agnes Lorentzen, Клара Понтоппидан, Ааге Шмидт, Franz Skondrup, Карло ВитПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC91A4E1D3E423BC5EC64BA43ED24BAA3850CF5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760169   (103199) от 12.11.2024
+
+НХЛ 2023-2024. Даллас Старз - Питтсбург Пингвинз (11.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103199.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 ноября 2024 г. 03:00 по московскому времени. Стадион: PPG Paints-Arena (Питтсбург, США), 16 526 зрителей (89% от вместимости 18 673)
+Главный судья: Джейк Бренк (Детройт-Лейк, США); Главный судья: Митч Даннинг (Текумсе, Канада); Линейный судья: Си Джей Мюррей (Питтсбург, США); Лайнер: Мэтт Макферсон (Антигониш, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A71B75FE688EE3A384ECE810CB0AA8B4968CA24D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759808   (103200) от 10.11.2024
+
+Nell Bryden - I Love You So Much I’m Blind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cassandra [00:03:19]
+02. Devil Is Everywhere [00:03:42]
+03. Help Me Forget [00:03:40]
+04. I Love You So Much I’m Blind [00:03:20](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45E7B84DE7492E98D241946765438270E4549E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759742   (103201) от 10.11.2024
+
+As I May - Dark Royal Revy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Modern Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Stop Dreaming [00:03:32]
+02. The Last Breath [00:03:38]
+03. Grey Day [00:03:12]
+04. Lighthouse [00:03:46](   Читать дальше...   )Жанр: Modern Metal, MetalcoreПродолжительность: 00:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1165963FDC576D948D10A9F296D32893569F2025
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759642   (103202) от 10.11.2024
+
+Kingfisher Sky - Feeding The Wolves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feeding the Wolves (3:47)
+02. Fade Away (5:18)
+03. Nobody Else Is Watching (4:07)
+04. It Never Ends (3:46)(   Читать дальше...   )Жанр: Heavy ProgПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88845489D3FA83AE881D143C6EB929527E346C98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759631   (103203) от 10.11.2024
 
 The Tragically Hip - Up To Here (1989) Deluxe Edition, Remastered, 2024, Universal Music Canada[FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative rock>
@@ -501,190 +685,6 @@ Nationwide - Echoes (2024) [FLAC|Lossless|tracks] <Melodic Rock, AOR>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E473E97B7DAB1E27687FEC853240FBCE0151F13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759784   (103222) от 10.11.2024
-
-Mezzrow - Studio Albums (2 releases) (1990; 2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mezzrow - трэш-метал группа из Нючёпинга, Швеция1990 - Then came the killing
-2023 - Summon Thy DemonsЖанр: Thrash MetalПродолжительность: 01:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E67D073C407B71598286A1F7516C25B4DAF8EFB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759879   (103223) от 10.11.2024
-
-Phil Vermont - Time Has Come (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Man Alive (5:03)
-02. Sexy, sexy, sexy ! (3:41)
-03. Your time has come (3:28)
-04. I'll be there (4:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72DD28F49496539DF149BA54D4204F26DD1E47A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759749   (103224) от 10.11.2024
-
-Counterline - Two (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Of Rock N' Roll (4:46)
-02. Away (4:20)
-03. Fantasy (4:05)
-04. Those Shadows (4:29)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6A91A479F7DDCC404AF91701F0BEBEB3FE9B6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759723   (103225) от 10.11.2024
-
-Klone - The Unseen (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive-Groove-Metal, Progressive-Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interlaced (5:39)
-02. The Unseen (5:45)
-03. Magnetic (3:19)
-04. After the Sun (4:04)(   Читать дальше...   )Жанр: Progressive-Groove-Metal, Progressive-MetalПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5971D130F3A8EAE865C83E5ECDCF03C6EDFB6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759629   (103226) от 10.11.2024
-
-Никаких переговоров / No Negociable (2024) WEBRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейский переговорщик Алан мечется между семьёй и работой. С одной стороны — дома любимая жена и маленькая дочка, с другой — преступники, которые хватают заложников без учёта будний день или выходной, рабочие часы или время для отдыха. Понимая, что от его переговоров с бандитами зависят жизни, Алан срывается на задание в любую минуту, что и заставляет его жену (   Читать дальше...   )Производство: Мексика / Tiger House Production Company, Sin Sentido FilmsЖанр: боевик, триллер, комедияРежиссер: Хуан ТаратутоАктеры: Маурисио Охман, Тато Александер, Клодетта Маилье, Isabella Arroyo, Леонардо Ортисгрис, Habda Malacón, Fernanda Borches, Гонсало Вега мл., Кристина Мичаус, Itzamna Orizaga и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:23:03Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7742D13E8373B14CF2516B6060F4492951455A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759271   (103227) от 10.11.2024
-
-Impellitteri - War Machine (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Machine (3:34)
-02. Out Of My Mind (Heavy Metal) (4:21)
-03. Superkingdom (4:03)
-04. Wrathchild (3:05)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C77F614F7BEB0B8E8A2B93A616901253F84F1DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759799   (103228) от 10.11.2024
-
-Whitney Houston - The Concert for a New South Africa (Durban) (1994) 2024, Arista - Legacy[FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love's In Need Of Love Today (Live in Kings Park Stadium, Durban, South Africa - November 8, 1994) [00:03:37]
-02. So Emotional (Live in Kings Park Stadium, Durban, South Africa - November 8, 1994) [00:04:01]
-03. Love Will Save the Day (Live in Kings Park Stadium, Durban, South Africa - November 8, 1994) [00:06:16]
-04. Saving All My Love for You (Live in Kings (   Читать дальше...   )Жанр: PopПродолжительность: 02:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE6038F199259F52F4C1D6797B09C3659CE5B723
 ```
 
 

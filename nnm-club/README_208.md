@@ -1,3 +1,27 @@
+###  Публикация: 1814733   (5475) от 29.08.2025
+
+Одно целое / Together (2025) WEB-DL [H.265/2160p] [4K, SDR, 8-bit]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5475.jpg" />
+</div>
+
+
+###  Подробнее
+
+После переезда в уединённый загородный дом пара, переживающая кризис в отношениях, сталкивается с необъяснимым явлением: их тела начинают тянуться друг к другу с пугающей силой. Чтобы спастись, им предстоит раскрыть тайну этого места, прежде чем они сольются в одно целое.Производство: Австралия, США / Tango Entertainment (III), Picturestart, 30WestЖанр: ужасыРежиссер: Майкл ШенксАктеры: Дэйв Франко, Элисон Бри, Дэймон Херриман, Миа Мориссей, Карл Ричмонд, Джек Кенни, Франческа Уотерс, Элин Абелла, Роб Браун, Эллора АйрисПеревод: Дублированный (Dragon Money Studio), Многоголосый (HDrezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40C91F63300A025D6AD425FCA6F841C8D70B0B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796280   (5476) от 29.08.2025
 
 Баллада об острове Уоллис / The Ballad of Wallis Island (2025) WEB-DLRip [H.264] [MVO]
@@ -615,33 +639,6 @@ magnet:?xt=urn:btih:F052ECCAF062A1349873FC7830E30EDAF81F8E46
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C21195C01A6935385102463D42F83097C635507
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815073   (5501) от 28.08.2025
-
-VA - 25 Years Of Anjuna Mixed by SØNIN (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_5501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joonas Hahmo - Together (Original Mix) [7:58]
-02. Carrie Skipper - Time Goes By (David West Vocal Mix) [7:50]
-03. Supermodels From Paris - Keep On (Komytea Remix) [6:48]
-04. Super8 & Tab feat. Anton Sonin - Black Is The New Yellow (Original Mix) [8:13](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAADE22B8DF0594B8AC3D904ACBAEC1DE8183906
 ```
 
 

@@ -1,3 +1,185 @@
+###  Публикация: 1705295   (113935) от 08.03.2024
+
+К.Н. Бальский | Почему они убивали (2023) [MP3, Павел Ломакин]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальное исследование на стыке криминологии, психологии и истории с малоизвестными фактами и шокирующими подробностями!
+Шокирующее исследование мотивов самых жестоких убийц всех времен и народов. Не всегда заостряя внимание на чудовищной жестокости палачей, социолог К.Н. Бальский пытается взглянуть на их кровавые дела с точки зрения криминологии – науки, изучающей (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 09:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC5AD3DAD49A01FF94F135B691C589CA62EC8447
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705235   (113936) от 07.03.2024
+
+YT Saver Video Downloader & Converter for Mac 7.4.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неограниченная загрузка с помощью YT Saver Downloader, с помощью этого приложения вы можете загружать неограниченное количество видео и плейлистов с потоковых сайтов и получать доступ к своим видео в автономном режиме, а также загружать несколько видео одновременно.Тип издания: macOS SoftwareРелиз состоялся: 07.03.2024Разработчик: © 2023 YT Saver StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524A41540585F8C589248988EB908D9D43BF26A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705135   (113937) от 07.03.2024
+
+Skeletal Remains - The Entombment Of Chaos (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Chasm (Intro)
+02. Illusive Divinity
+03. Congregation Of Flesh
+04. Synthetic Impulse(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F70D97CD1D44A2B7782FC9B6EA947A71D92E514B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705239   (113938) от 07.03.2024
+
+Alfred PowerPack 5.5 Beta 2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
+Вызвать окно Alfred очень просто — по умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2024Разработчик: © 2024 Running with Crayons LtdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52107F88EE3F83E7A24082397DD50E376F14C80E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705058   (113939) от 07.03.2024
+
+Eddie "Lockjaw" Davis - On Prestige (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have Horn, Will Blow (5:17)
+02. Eddie "Lockjaw" Davis Big Band - Trane Whistle (Album Version) (6:19)
+03. Very Saxy (Remastered 2007/Rudy Van Gelder Edition) (8:16)
+04. Stardust (6:45)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE05D3C0774C54A91F8398FD70A713C513627871
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705069   (113940) от 07.03.2024
+
+Stephane Grappelli - Parisian Thoroughfare (1973) 1989, Black Lion [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love for Sale [5:38]
+02. Perugia [4:35]
+03. Two Cute [3:45]
+04. Fascinating Rhythm [5:04](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C2BC87F1BA25536B99BC52FA648915FF28225C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705066   (113941) от 07.03.2024
+
+Scott Hamilton - Plays Ballads (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Only Miss Her When I Think of Her [4:18]
+02. Dream Dancing [6:17]
+03. 'Round Midnight [6:01]
+04. Two Eighteen [4:51](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642248437C20E463B2C806A0DE93D453CF1D9790
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705064   (113942) от 07.03.2024
 
 Soulver 3 v.3.10.1 [Multi/Ru]
@@ -485,189 +667,6 @@ magnet:?xt=urn:btih:0574D0FE38096E3A2656181CC43D6A2A8B78F875
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C61C3127AEDAF3875712D99EBFA36DCD0214C971
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705079   (113961) от 07.03.2024
-
-The Count Basie Orchestra - Basie Swings The Blues (2023) Candid [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Have a Good Time (feat. Castro 'Mr. Sipp' Coleman) [4:07]
-02. Boogie in the Dark (feat. Bobby Rush) [3:55]
-03. I'm a Woman (feat. Shemekia Copeland, Buddy Guy, Charlie Musselwhite) [4:59]
-04. Down Home Blues (feat. Keb' Mo', Lauren Mitchell) [4:37](   Читать дальше...   )Жанр: Swing, Big Band, BluesПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3E6ECDB8BFB33C349CC954D24406650EF925BFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705053   (113962) от 07.03.2024
-
-Dario Margeli - Smooth Jazz Electric Guitar (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suffering Is Optional (4:07)
-02. Optimistic Once Again (Smooth Jazz Version) (4:33)
-03. Sacred Mandala (Smooth Jazz Version) (3:51)
-04. Childhood Trauma (4:12)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F60DC4DB380CD3A2028D42EE76AFD9F4EC2E6D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705093   (113963) от 07.03.2024
-
-Kenny Rogers - Поет Кенни Роджерс (1980) [FLAC 24/192|Lossless|tracks] <Country, Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-01. Люсиль
-Lucille (R. Bowling - H. Bynum)
-02. Игрок(   Читать дальше...   )Жанр: Country, Pop-RockПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77FE250003184A4909CE652CBD7B59D2542D7DCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705217   (113964) от 07.03.2024
-
-Folder Icons 1.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добавьте крутой значок в ваши файлы/папки за 3 шага!Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 Marian RaafatПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A9A62E0D32FF2F78087D0F4A634095EAA84488
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705050   (113965) от 07.03.2024
-
-VA - Classy Hotel - Jazz & Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthony Ventura - Eternal Flame (3:41)
-02. Manuel & The Music Of The Mountains - Misty (3:35)
-03. George Benson - Breezin’ (5:42)
-04. Antonio Carlos Jobim - Surfboard (2:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E5679F9D116EA4C23D61AAA1B841721A1E3ABBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705063   (113966) от 07.03.2024
-
-Toni Germani - Easy Pieces Against War, Virus And Crisis (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desejo da Banalidade do Bem (9:34)
-02. A War Is Knockin' At Your Door (8:32)
-03. Waiting For The Rain (8:02)
-04. Elena Is A Name Of Beauty (10:08)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:14:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA06812183508FD80B71C3C6037FFF546F7BD75D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705190   (113967) от 07.03.2024
-
-Михаил Салтыков-Щедрин | Бедный волк (2024) [MP3, Александр Здориков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всю жизнь волк убивает и разбойничает, чтобы добыть еду себе и своей семье. К старости он понимает, что убивать — плохо, но иначе жить не может, поэтому решает сдаться охотнику. Он знал, что и охотник такой же.Жанр: КлассикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A724783237FE42317242C80C4F04AE850712A8F5
 ```
 
 

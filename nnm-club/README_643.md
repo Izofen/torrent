@@ -1,3 +1,57 @@
+###  Публикация: 1810688   (17033) от 05.08.2025
+
+Signature Dish, Lexi Weege, and JJ Slater - They're Red Hot! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Crossroads (5:10)
+02.  I've Got My Mojo Workin' (3:50)
+03.  Voodoo Woman (4:35)
+04.  They're Red Hot (1:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61DFF01EA0224A15A5A240CD45ADB22031B305E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810685   (17034) от 05.08.2025
+
+Roll Mega, Son Little & Eric Krasno - Roll Mega (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rhythm and blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  U Shake Me (3:31)
+02.  We Buy Guns (3:13)
+03.  If Not Soon (3:07)
+04.  Ultimate Beautiful (3:45)(   Читать дальше...   )Жанр: Rhythm and bluesПродолжительность: 00:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF87DC8996544BD79393CAAF2411421D82952018
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810683   (17035) от 05.08.2025
 
 Mojo Hands - GO! GO! GO! (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
@@ -583,57 +637,6 @@ Crystal Ice - In My Fantasy World (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7485857C6C980039632527A12E0FB89FA0B0BD45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810677   (17059) от 05.08.2025
-
-Похититель душ / Sjaeletyven (1916) WEBRip [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семейный врач, доктор Хармоди, обладает невообразимыми гипнотическими способностями и тайно взял под контроль волю графини Джудит. В последнее время в округе начали пропадать драгоценности, и граф Максимилиан Кольтенберг обращается к детективу Джуриану Фоксу, чтобы предотвратить кражу семейных драгоценностей. К сожалению, никакие меры не могут предотвратить кражу (   Читать дальше...   )Производство: Дания / Nordisk FilmЖанр: короткометражный, драма, криминал, немое киноРежиссер: Форест Хольгер-МадсенАктеры: Гуннар Толнес, Чарльз Вилькенс, Йоханне Фритс-Петерсен, Искадновский, Филип Бек, Франс СконрупПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E79224DC8E169E9D6AA8EBD612B4063B42E37EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810675   (17060) от 05.08.2025
-
-Dj Cult Music - Blues Dreams on the Horizon (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_17060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  No Light in This Room (3:31)
-02.  Back Porch Mojo (3:40)
-03.  Blue Moon Trouble (3:44)
-04.  Chain Smoke Heartache (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32158419B7C4D976FA8FC148F225BC56F3291013
 ```
 
 

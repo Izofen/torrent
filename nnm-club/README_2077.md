@@ -1,3 +1,54 @@
+###  Публикация: 1727883   (54367) от 04.06.2024
+
+Rob Houston (editor) | How Food Works (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54367.jpg" />
+</div>
+
+
+###  Подробнее
+
+An easy-to-understand visual guide to the facts of food and nutrition. Through a highly visual approach that uses bold infographics, explore the good, the bad, the confusing, and the trending world of food. Covering a wide variety of topics, from dieting to gluten intolerance, debunks common food myths, explains nutrition, covers the food groups, and looks into organic (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DBA8246128E63E1F294BD21D9B6F93CBDF4029A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727889   (54368) от 04.06.2024
+
+Osvaldo Martin | Bayesian Analysis with Python (2016) [PDF] [EN]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54368.jpg" />
+</div>
+
+
+###  Подробнее
+
+The purpose of this book is to teach the main concepts of Bayesian data analysis.
+What you will learn
+Understand the essentials Bayesian concepts from a practical point of view
+Learn how to build probabilistic models using the Python library PyMC3(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AFE8D2B786D2FCBD539A749BB9A247A347240AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727786   (54369) от 04.06.2024
 
 CoolUtils Total Audio Converter 6.1.0.272 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -574,54 +625,6 @@ magnet:?xt=urn:btih:561AE8CE98BD980738050BB4BD01027F4EC5509C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:108E3C9DE367F7CF174D20076E99DC3D12B24963
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727826   (54393) от 04.06.2024
-
-Notepad++ 8.6.8 Final + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Notepad++ - бесплатный редактор текстовых файлов, значительно превосходящий Блокнот по функциональности. Поддерживает синтаксис всевозможных языков программирования, предназначен для работы в операционной системе MS Windows. Этот проект базируется на компоненте Scintilla (очень мощном компоненте для редактирования) написанном на C++ с использованием только Win32 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FDB091A6F07D8429990BDAEF6DB2E88AC70569B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727663   (54394) от 04.06.2024
-
-Дочь моего босса / My Boss's Daughter (2003) WEB-DL [H.264/1080p] [Theatrical Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Строгий начальник просит своего безотказного молодого сотрудника присмотреть за его домом в течение одного вечера. Добросовестный парнишка вынужден согласиться, к тому же, ему очень нравится симпатичная дочка босса. Но в эту сумасшедшую ночь улетает любимый филин босса, ради присмотра за которым в первую очередь был вызван герой, дом атакуют незваные гости, и, наконец, (   Читать дальше...   )Производство: США / Dimension FilmsЖанр: Мелодрама, комедияРежиссер: Дэвид ЦукерАктеры: Эштон Кутчер, Тара Рид, Теренс Стэмп, Молли Шеннон, Джон Абрахамс, Энди Рихтер, Тайлер Лабин, Майкл Мэдсен, Патрик Крэншо, Дэвид КокнерПеревод: Дублированный, авторский (Карповский)Язык озвучки: русский, английскийСубтитры: русские, английские (SDH)Продолжительность: 01:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E4659433F5AEE10A4A5A5E03DEA18BB65B3625
 ```
 
 

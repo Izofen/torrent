@@ -1,3 +1,186 @@
+###  Публикация: 1762931   (102884) от 28.11.2024
+
+Пьер Бенуа | За Дона Карлоса (2011) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Большая библиотека приключений и научной фантастики.
+Пьер Бенуа (1886–1962) – французский писатель, член Французской академии (1931).
+Роман «За Дона Карлоса» (Pour don Carlos) Роман написан в 1920 году.
+Действие происходит в 1875–1876 годах, когда Испанию раздирали карлистские войны. Речь идёт о Карлосе, герцоге Мадридском, претенденте на испанский престол (   Читать дальше...   )Жанр: Зарубежная литература, классика, авантюрно-приключенческий романПеревод: А.В. ФинкельштейнИздательство: Нигде не купишьПродолжительность: 08:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC800BB664D822021DD3A0B23E992B76302E079F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762966   (102885) от 28.11.2024
+
+Departure Chandelier - Satan Soldier Of Fortune (2024) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102885.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro: Napoleonic Battlefield Cleanup 2:31
+2. By Way Of Torchlight From Parliament To Catacombs	6:14
+3. Hard As A Coffin Nail 6:10
+4. Accipitridae 6:14(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F6FC547255747369AC47F7348B749C88C85E9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762939   (102886) от 28.11.2024
+
+Соперники / De Medeminnaars (1913) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ян и Питер, сыновья старого моряка Шпилсера, не только родные братья, но и хорошие друзья. Были хорошими друзьями. Пока на деревенской ярмарке они не встречаются и оба не влюбляются в симпатичную Каатье...
+Порадовала сцена, когда молодежь идет на ярмарку - бодренькие такие и одеты клёво! :)Производство: Нидерланды /  Pathé FrèresЖанр: короткометражный, мелодрама, драма, немое киноРежиссер: Альфред МачинАктеры: Мари Марке, Klaas SchoutПеревод: немой с интертитрамиСубтитры: голландские, французские (интертитры), русские отдельным файломПродолжительность: 00:12:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4875D3B823FC891CD7EF1B5D8E5EFABD16C1D3C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762862   (102887) от 28.11.2024
+
+Duke Jordan - Three Classic Albums Plus (1955 -1962) 2CD, 2014, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flight To Jordan [5:33]
+02. Star Bright [7:49]
+03. Squawkin' [5:00]
+04. Deacon Joe [8:42](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:914941CDDDCF5080CD6BAD421DE2EDC7490D93FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762944   (102888) от 28.11.2024
+
+Chuck Prophet feat. ¿Qiensave? - Wake The Dead (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chuck Prophet - Wake The Dead (3:20)
+02. Betty's Song (3:53)
+03. Give the Boy a Kiss (3:26)
+04. First Came the Thunder (3:58)(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADCF205F47DC41EB45DF6ABDB9601B6AE7D7D8F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762921   (102889) от 28.11.2024
+
+НХЛ 2024-2025. Вашингтон Кэпиталз - Тампа Бэй Лайтнинг (27.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102889.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 ноября 2024, четверг. 03:30 МСК. Стадион: Амали-Арена (Тампа, США), 19 092 зрителя (100% при вместимости 19 092)
+Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Джастин Кеа (Вудвиль, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46DAA2A939AE4391CAEF86A374C09BEEEA8AEDF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762923   (102890) от 28.11.2024
+
+НХЛ 2024-2025. Ванкувер Кэнакс - Питтсбург Пингвинз (27.11.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102890.jpg" />
+</div>
+
+
+###  Подробнее
+
+28 ноября 2024, четверг. 03:30 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 16 016 зрителей (86% при вместимости 18 673)
+Главный судья: Майкл Маркович (Скарборо, Канада); Главный судья: Фурман Саут (Сьюикли, США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D08CF1AFB9AA9CC70E02E6ABA35AC840C2668C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762787   (102891) от 27.11.2024
 
 Bobby Hutcherson - Mirage (1991) Landmark Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -497,195 +680,6 @@ Nomos - The Great Unknown (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32E6887CC4D5470CF6D667E3610CC694EFF8E5CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762550   (102910) от 26.11.2024
-
-Sky Wolves - Forgotten Tales (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgotten Tales 01:04
-02. Flying Dragons 06:15
-03. Dystopia 04:59
-04. Break The Chains 05:30(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE91A766AC85682C2DF18C4CF02DBAD9E1A0D35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762676   (102911) от 26.11.2024
-
-Furor Gallico - Future To Come (2024) [FLAC|Lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call of the Wind 05:30
-02. Among the Ashes 04:38
-03. Birth of the Sun 04:04
-04. Black Skies 06:39(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9596306F612B4D29F5E3C18B95CC22E10CE491
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762400   (102912) от 25.11.2024
-
-Memory Garden - Studio Albums (7 releases) (1995-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Memory Garden - шведская дум-метал/хэви-метал группа из Кумлы, образованная в 1992 году.1995 - Forever
-1996 - Tides
-1998 - Verdict of Posterity
-2000 - MirageЖанр: Power/Doom MetalПродолжительность: 05:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD749C6A2DD8692986396B077129DDE95689D1FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762427   (102913) от 25.11.2024
-
-Rising Sunset - Vade Draconem Maledicte (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power, Gothic  Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A State Of Darkness [00:05:41]
-02. Deadmass [00:06:05]
-03. Demonic Possession [00:06:52]
-04. Midnight Child [00:05:10](   Читать дальше...   )Жанр: Symphonic Power, Gothic  MetalПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F2FE9BB5B6857CC30C8863740398D020E8D2C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762402   (102914) от 25.11.2024
-
-Gorgone - Barminam (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Zeuhl>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102914.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Van Gis (04:39)
-2. Bidi Zonker (03:58)
-3. Dorbazonn (08:09)
-4. Barminam (04:28)(   Читать дальше...   )Жанр: Progressive Rock, ZeuhlПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C887E5FF56E7FF35C5A84844DC3A9B06D233EA6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762365   (102915) от 25.11.2024
-
-Bathsheba - Servus (2017) SVART066CD [FLAC|Lossless|image + .cue] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conjuration Of Fire (7:35)
-02. Ain Soph (5:42)
-03. Manifest (10:33)
-04. Demon 13 (5:45)(   Читать дальше...   )Тип издания: DigisleeveЖанр: Doom MetalПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4023C2219EDD4177C2EA7B9954CEE60C7ACEC532
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762486   (102916) от 25.11.2024
-
-Counting Hours - The Wishing Tomb (2024) [FLAC|Lossless|image + .cue] <Melodic Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unsung, Forlorn (2:08)
-02. Timeless Ones (4:30)
-03. Away I Flow (5:57)
-04. All That Blooms (Needs To Die) (6:24)(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19AF50E3E6528F77453E1D6D73CF6E97D55507E
 ```
 
 

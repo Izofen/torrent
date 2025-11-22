@@ -1,3 +1,199 @@
+###  Публикация: 471168   (97394) от 21.03.2012
+
+Питер Чейни | Смыться можно всегда [2003] [MP3] [96 kb/s]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Том 1 из Собрания сочинений в трёх томах
+Серия: Лемми Кошен
+Оригинальное название:Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6DE8DBF118FE35E275BC4E9E79B5EF6CAE7B63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471457   (97395) от 21.03.2012
+
+Каникулы в Мексике - 2. Ночь на вилле. Выпуск №13 (2012.03.21) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97395.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:11:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C487428ADA76E32154B50C1216EA6C9EF5F437E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471249   (97397) от 21.03.2012
+
+Журнал | Мой друг кошка №04 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Мой друг кошка" выходит с января 2010 года.
+Новый журнал о породистых и диких кошках, над которым трудится творческий коллектив, много лет работавший над журналом «Друг для тех, кто любит кошек».
+Журнал посвящен проблемам фелинологии. В каждом номере в рубрике «Порода номера» рассказывается об одной из пород, представлен ее стандарт.
+Другие рубрики: «Круглый стол», «Практикум в сети», «Экспертиза», «Важные особы», «Судейская бригада», «Ветакадемия», «Класс новичков».
+В каждом номере также вы найдете материалы, посвященные известным людям, уникальным коллекциям, смешным историям, происходящим с кошками и многое другое.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE9DD649981DE6AA906389DF43FF6212BF2D0A0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471430   (97399) от 21.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 46
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97399.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 46
+Название: Sexy Girl Wallpapers Pack 46
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 3000х1875
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A6950AC14379D15B7D316FAE59932B2608961D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471074   (97400) от 21.03.2012
+
+VA - 200-ка Самых Самых 50/50 (2012) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97400.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Бурановские Бабушки - Party For Everybody (Евровидение 2012)
+002. Tacabro - Tacata (Radio Edit)
+003. Юлия Савичева - Юлия
+004. Laurentiu Duta feat. Andreea Banica - Shining Heart
+005. Пропаганда - Нет-Да
+006. DJ Bobo - Everybodys Gonna Dance (Bryce Remix Extended)
+007. Юрий Шатунов - Это Лето
+008. Jump Smokers feat. Pitbull - Spring Break (Radio Edit)
+009. DJ Грув & Garik DMCB - Я Не Знаю Кто Мы
+010. Katy Perry - Part Of Me(   Читать дальше...   )2012Жанр: PopПродолжительность: 12:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC926A4708FAC5B3E98B99E1E716AABD0B210FEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471232   (97402) от 21.03.2012
+
+VA - XXXL Турбомодный 50/50 Весна (2012) [MP3|256 kbps]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Глюкоза - Мой порок
+02. Avril Lavigne - Wish You Were Here
+03. Яжевика - Яблочки на снегу
+04. Coldplay - Paradise (Fedde Le Grand Remix)
+05. Serebro - Мама Люба
+06. Evanescence - My Heart Is Broken (Radio Edit)
+07. IKA - Москва слезам не верит
+08. David Guetta feat. Nicki Minaj - Turn Me On (Radio Version)
+09. Пара Нормальных - Невеста
+10. B.O.B. feat. Lil Wayne - Strange Clouds(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE11AD18E2A2E70707FFDFA6E01234033DD5045
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470904   (97406) от 21.03.2012
+
+[EN] Ярость ада: Нужен мертвым или живым / Hell’s Fury: Wanted Dead or Alive (2012) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97406.jpg" />
+</div>
+
+
+###  Подробнее
+
+В стране, где всем управляют обладатели больших денег, дочь вынуждена выбирать между заботой о своей семье и откровенностью с мужчиной, которого она любит. Как далеко она должна зайти, чтобы защитить свою семью?Жанр: Вестерн, БоевикРежиссер: Гаям АмерикасАктеры: Ханна Хэгу, Рон Э. Харрис, Хэнк Синатра, Зак Янг, Адам ХэдженбучПеревод: ОтсутствуетПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFE6B1F2878B8AD59BB9203F8F8474C8A3FFA79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470961   (97409) от 21.03.2012
 
 The Pirat Bay отправит свои сервера в стратосферу
@@ -573,214 +769,6 @@ SRS - Совместный [DNИL, DiZou, Benny] (2012) [MP3|256, 320 кб/с]<R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F021582CD9904FB29AFFBA08EADF2E645C623D8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471884   (97439) от 22.03.2012
-
-Водная жизнь (серия 4 из 26) / Water Life (2007)  BDRip [720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету.Жанр: ДокументальныйПродолжительность: 00:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF763FB9D51FE7772BEA9C9903999239DB43432
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471980   (97440) от 22.03.2012
-
-[Wallpapers] HD Pictures №6
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97440.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Pictures №6
-Название: HD Pictures №6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23163F83939E5FF186C063FC0DDD96F690842ED1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471309   (97441) от 22.03.2012
-
-VA - Organic Wick (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silicon Sound - Hyperion (Screenagers remix) 08:24
-02. Cabal - Roll The Drums 07:44
-03. Osher & Avshi - The 60s 08:14
-04. Interval - Nautilus (original mix) 07:31
-05. Sideform - Santo Daime (Relativ remix) 08:42
-06. Twina and Aza Syndrom - Cutting Edge (Science remix) 07:52
-07. Dimension X - Night Sensations 09:45
-08. Ace Ventura & Intelabeam - The John (Mute remix) 08:52
-09. Aqualize - Land of 2 Suns (Klopfgeister remix) 10:02
-10. NOK - Messed Up 08:07(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:20:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BEF255561CAF4D4C5A0AC7FC4664C3576434025
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470558   (97443) от 22.03.2012
-
-Various Artists - Tranceffect 17 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sound Players- Baiana (Paul Miller Vs Ronald de Foe Remix)
-02. Tiddey-Savage Emotions (am Reconstruction 2011)
-03.C-Systems- Daylight (Trance Arts Dub)
-04.Sophie Sugar- Day Seven (am Reconstruction 2010)
-05.Matt Davey- Apocalypse (Matt Skyer Remix)
-06.Talla 2XLC & Skysurfer- Terra Australis (Jorn Van Deynhoven Remix)
-07.Thrshold- Bad Promoter (Club Mix)
-08. Mosahar- Trance 2008 (TrancEye Remix)
-09.Nurettin Colak Conception (Arctic Moon Remix)
-10.Plastic Boy- Silver Bath (Glyn Waters Remake)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832469C8237D598969050E9926F9A7634DE8DE68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471509   (97449) от 22.03.2012
-
-VA - XXXL Клубный Весна (2012) [MP3|192 kbps]<Club | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ritmo Playaz - Everybody Loves The Sunshine (Mike La Funk Remix)
-02. DJ Shevtsov feat. Shena - Face Control (Marty Fame Radio Edit)
-03. Shakira feat. Pitbull - Rabiosa (DJ Pasha Lee & DJ Dmitriy Tsoy Remix)
-04. Morandi - Serenada (Roma Star Remix)
-05. DJ Mafia - Love (DJ Kapuzen & DJ Paul Taylor Remix)
-06. Cabballero - Paris Latino 2k11 (Sean Finn Remix)
-07. Kevin R feat. Naomy - Kiss Me (Damien N-Drix Remix)
-08. Akcent - My Passion (Emin K & Ansarov Remix)
-09. Sander Van Doorn - Koko (Original Mix)
-10. DJ Vengerov feat. Plazma - Angel of Snow (Radio Remix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 08:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244458298CC507A5E3291D285D28A519ECB2AEA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471572   (97452) от 22.03.2012
-
-Раймонд Чандлер | Китайский жадеит [2001] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл: John Dalmas
-Оригинальное название:2001Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:432AAA5F97125DB437A4FEA7B197E74E4ED61429
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471878   (97453) от 22.03.2012
-
-Janice Finlay - Anywhere But Here (2011) [FLAC|Lossless]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97453.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Houston Shuffle
-2. Anywhere but Here
-3. Bye Bye Blackbird
-4. When I Go Away
-5. The Pillaging Pug
-6. Good Neighbours (Make Great Fences)
-7. Remember Me
-8. Song for Selim
-9. A Harbinger of Swing to Come - Movements I & II2011Жанр: Jazz, Mainstream JazzПродолжительность: 01:04:56
-
-## Скачать торент
-```bash
-нет
 ```
 
 

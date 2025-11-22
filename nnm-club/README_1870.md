@@ -1,3 +1,53 @@
+###  Публикация: 1738813   (48975) от 24.07.2024
+
+Beth Hart - You Still Got Me (2024) Single [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Still Got Me (6:01)
+02. Little Heartbreak Girl (4:19)
+03. You Still Got Me (Edit) (4:20)Жанр: Blues RockПродолжительность: 00:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C23EC4C368D8C3F78624E7491047EF4EC5E347
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738682   (48976) от 24.07.2024
+
+DVDFab StreamFab 6.1.8.9 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_48976.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVDFab StreamFab — это удобный и мощный инструмент для загрузки, конвертирования и записи видео-контента. StreamFab поддерживает загрузку видео с большого количества онлайн-сервисов и позволяет пользователям загружать видео в различных форматах и качестве. С помощью StreamFab пользователи могут конвертировать загруженное видео в различные форматы, размеры и разрешения, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76F5EF3B122BC183EE2064B1452E0711EB5D4E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738804   (48977) от 24.07.2024
 
 Animal ДжаZ - Ян (2024) [MP3|320 Kbps] <Alternative Rock>
@@ -592,57 +642,6 @@ magnet:?xt=urn:btih:9E0723DF17A2F9FB8CC5E4BBE6A85E826E8DFB34
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3F7DF1162AEEDD53A4C58C1AA0026A74025C62F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738680   (49001) от 24.07.2024
-
-Internet Download Manager 6.42 Build 16 RePack by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94103C3F081EA570F1C756AF95DA8DDCEC0DBBCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738229   (49002) от 24.07.2024
-
-VA - part 100 velvet saxophone compilation (2024) [MP3|320 Kbps] <Easy Listening, Saxophone>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_49002.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fausto Danieli (F.Papetti) Et Son Orchestre - Adieu, Jolie Candy
-002. Sil Austin - Danny Boy
-003. Le Valedon - Don't Let Me Be Lonely
-004. George Saxon - A Woman in Love(   Читать дальше...   )Жанр: Easy Listening, SaxophoneПродолжительность: 05:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD9CAC9A53E9B09752F33E7870DF9341AE6F7E3
 ```
 
 

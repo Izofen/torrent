@@ -1,3 +1,57 @@
+###  Публикация: 1805121   (65488) от 04.07.2025
+
+VA - Ori Uplift - Uplifting Only Episode 647 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. André Wildenhues, Stacey Jay – Hold on to Hope (Intro Mix)
+02. Db Mokk & DNY’L – I Still Breathe
+03. Starpicker & Denise Rivera – Can’t Live Without You
+04. illitheas – Rise Again(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:02:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A12466FB7906B44F642555944712D5A348FA42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805089   (65489) от 04.07.2025
+
+Metal Detektor - Violence and Pride (2025) [FLAC|Lossless|WEB-DL|tracks] <Old School Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sister Gone Mad [00:06:16]
+02. Grendel Returns [00:05:07]
+03. Shadowrunner [00:05:23]
+04. Violence and Pride [00:05:42](   Читать дальше...   )Жанр: Old School Heavy MetalПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379B780E22BE3D92A2157C3D2B2A8F9A3E18E35C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805231   (65490) от 04.07.2025
 
 The Speaker Wars - The Speaker Wars (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -635,60 +689,6 @@ WarKings - Armageddon (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA03A53D46FB9FD68DBEFAC731B05D37CD20094F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805081   (65514) от 04.07.2025
-
-Транкор - Разные вещи (2025) [MP3|320 Kbps] <Rapcore, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Разные вещи [00:03:03]
-02. Мало [00:03:07]
-03. Говорят [00:02:05]
-04. Атманов Угол [00:04:11](   Читать дальше...   )Жанр: Rapcore, Nu-MetalПродолжительность: 00:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFD2BE59A37061FC3D2774608B053EF21E553247
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805247   (65515) от 04.07.2025
-
-Tim Morse - Transformation (20th Anniversary Edition) (2025) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Present Moment - Remastered 2025 (06:17)
- 02 - To Set Sail - Remastered 2025 (07:12)
- 03 - Prelude - Remastered 2025 (03:26)
- 04 - Goodbye - Remastered 2025 (05:25)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4DECA80F7EB95424A793F0D507DBAA3FCA8894A
 ```
 
 

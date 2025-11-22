@@ -1,3 +1,192 @@
+###  Публикация: 1708917   (112921) от 22.03.2024
+
+Nightblaze - Nightblaze (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sudden Blast
+02. Take On Me
+03. You're Gone
+04. Diana(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BE7AC05E040BAF349CEAB4DBCED4C8A0BB1550B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708828   (112922) от 22.03.2024
+
+Игорь Николаев - Мисс Разлука (1991) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01. Стефания. (Музыка и стихи И.Николаева)
+02. Я сказал себе "Стоп!". (Музыка и стихи И.Николаева)
+03. Консуэло. (С.Краевский - Д.Берков)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EED893AF0EDE0E2F20186E73479E29BF6A8D44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708835   (112923) от 22.03.2024
+
+Маркиза - Маркиза (1990) [FLAC 24/192|Lossless|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. 220 вольт (Д. Лукьянов — Е. Соколова)
+02. Спи, дитя (А. Василенко — Е. Соколова)
+03. Зря ты пришел(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8323C5AB783D3E0AC68EA3905896AD7F6DCA35B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708829   (112924) от 22.03.2024
+
+Крис Кельми - Открой свой Сезам (1990) [FLAC 24/192|Lossless|tracks] <Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Козырная дама
+02 - Открой свой Сезам.
+03 - Она разжигает огонь.(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F27E7E53AAC17901FAA1E7E99D74F65B91A4A8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708809   (112925) от 22.03.2024
+
+Alligator Cats - Whiskeyland (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Red! (3:20)
+02. Coco Blues (4:23)
+03. Whiskeyland (3:35)
+04. Weedsmokers Dream (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED2383B94F35DE7514E24ABCFB3F440D278317C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708745   (112926) от 22.03.2024
+
+Eddie Zeeman - Detours and Treasures (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Kawartha Land (00:03:57)
+02. Preacher (00:03:59)
+03. Now or Never (00:05:02)
+04. Once Upon a Time (00:04:38)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78E69B6B25F94AD0EECA3E420DF391A3343A9E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708910   (112927) от 22.03.2024
+
+Bruce Dickinson - Balls to Picasso (1994) [FLAC|24/96|tracks|Vinyl-Rip] <Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyclops
+02. Hell No
+03. Gods Of War
+04. 1000 Points Of Light(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641AAF879A0740C7F2F0DBE784D8508ECE102B63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708846   (112928) от 22.03.2024
 
 Relaxing Piano Man - Heading South (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
@@ -488,186 +677,6 @@ magnet:?xt=urn:btih:7E05456E16320CC12192FAC2558EBFADF6BB15BC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E57CB6FC80691120FE4221A90CA02B957F17DAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708845   (112947) от 22.03.2024
-
-Журнал | Наша история №4 (58) (апрель 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайны государства в журнале "Наша история". Необычная трактовка известных событий. Самые скандальные события прошлого. Журнал рассказывает об оригинальных версиях, казалось бы, хорошо известных событий мировой истории, делает попытки восполнить пробелы в биографиях великих людей, а также повествует об исторических загадках, которые пока не сумели разгадать (   Читать дальше...   )Жанр: ИсторияИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5EB604D8DF5B8F129440DD15474A1B9E7F160EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708765   (112948) от 22.03.2024
-
-Screen Wonders 2.2.1 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам надоели неподвижные картинки на рабочем столе, если вы готовы приветствовать волшебство разных мест по всему миру и даже параллельных вселенных, мы собрали лучшие живые обои в этом приложении. Вам обязательно придется по душе разнообразие тем, времен года и праздничных сцен и это все - Screen Wonders.
-Говорят, красота требует жертв, но вам не о чем беспокоиться, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.03.2024Разработчик: © 2022-2024 3PlanesoftПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8224F261D68B3339F1ACD4D8D3DD3BE31C301887
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708840   (112949) от 22.03.2024
-
-VA - Top 8 February 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iberian & Poetry Maiden - Hideaway (Original Mix) [8:13]
-02. Masaru Hinaiji - May 1st, Fine (Original Mix) [6:58]
-03. D.J.G. & M.I.K! vs. Iain Mitchell - Ennea (Original Mix) [6:00]
-04. Sam Fletcher & Juan Almiñana Obando - Cinnamon (Original Mix) [7:02](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:299D5BF578CDDACC6C39309558F3DA0E7307BD48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708758   (112950) от 22.03.2024
-
-Nevercenter CameraBag Photo 2024.1.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112950.jpg" />
-</div>
-
-
-###  Подробнее
-
-CameraBag позволяет мгновенно применить одну из сотен красивых предустановок к вашим фотографиям, а затем погрузиться глубже с ультра-интуитивными профессиональными настройками.
-Благодаря CameraBag с предустановками, специально разработанными для портретов, различными пейзажными сценариями, точной эмуляцией аналогового кинопленки из прошлого, популярными современными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.03.2024Разработчик: © 2024 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7109EC362F59CEB6988C3260242DDEE016F135F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708804   (112951) от 22.03.2024
-
-VA - Miami Festival Anthems 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Somnia - The Edge (Extended Mix) [5:24]
-02. Feel & Anton By & Av - Caprice (Extended Mix) [4:29]
-03. Michael Milov - Do Or Die (Extended Mix) [4:40]
-04. Adip Kiyoi - Where I Stand (Extended Mix) [5:16](   Читать дальше...   )Жанр: TranceПродолжительность: 01:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB199F21169756E6FDC6B8B57F73ACF17E62208B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708773   (112952) от 22.03.2024
-
-VA - Armin van Buuren - A State Of Trance 1165 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonicvibe & Tachyean - Deep Dive
-02. Fast Distance - Bosphore
-03. Laura van Dam - This Feeling
-04. Ruben de Ronde x That Girl - Lose Yourself (Cubicore Remix) (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:637C8ABB8181E392C93569A382C4C9077EEBA531
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708777   (112953) от 22.03.2024
-
-Text Workflow 1.9.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный и простой в использовании инструмент, который поможет вам преобразовать ваш текст. Text Workflow устраняет необходимость выполнять повторяющиеся задачи вручную над вашим текстом. Комбинируйте действия по преобразованию, чтобы создать мощную автоматизацию для вашего текста.
-Комбинируйте действия преобразования, чтобы создать мощную автоматизацию для вашего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.03.2024Разработчик: © 2024 Giorgos TrigonakisПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A9D1851C8A9CAE3FE340D390F6D4300863DA7B9
 ```
 
 

@@ -1,3 +1,54 @@
+###  Публикация: 1642795   (67412) от 27.04.2025
+
+Deserted Fear - Studio Albums (6 releases) (2012-2025) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deserted Fear - Death metal группа из Германии, основана в 2008 году.2012 - My Empire
+2014 - Kingdom of Worms
+2017 - Dead Shores Rising
+2019 - Drowned By HumanityЖанр: Death MetalПродолжительность: 04:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C1B5449B9176EF79ED55DB61B6E5471B823333
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793906   (67413) от 27.04.2025
+
+Текстуры - Company Folders - Card Stock Paper Textures [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные бумажные текстуры.Формат: JPGРазрешение файлов: 2100 x 1500 - 3861 x 2574
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C85B94006F5C82A1CCFD1CBAD143E887C8AC02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794171   (67414) от 27.04.2025
 
 Текстуры - Design Stocks - Behance - 10 Rough Plastic Textures - 224509793 [JPG, PNG]
@@ -602,58 +653,6 @@ Orlndo - The Vintage of Own Way (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3A63602D3861EB644E8BFE70BE04BF219A02AFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793869   (67438) от 26.04.2025
-
-Paul Thorn - Life Is Just A Vapor (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tough Times Don't Last (3:31)
-02.  Courage My Love (3:50)
-03.  She Will (4:07)
-04.  Chicken Wing (3:11)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7DCDCF5EF6D8EDE319F24D29FE1FB3109EA082
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793619   (67439) от 25.04.2025
-
-НХЛ. Кубок Стэнли 2025 (Плей офф. 1-й раунд, 3-й матч) Вегас Голден Найтс - Миннесота Уайлд (24.04.2025) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67439.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 апреля 2025, пятница. 04:00 МСК, 1/8 финала. 3-й матч. Стадион: Эксел Энерджи-центр (Сент-Пол, США), 19 058 зрителей (93% при вместимости 20 554)
-Главный судья: Гарретт Рэнк (Эльмира, Канада); Главный судья: Брайан Почмара (Детройт, США); Линейный: Стив Бартон (Ванклик Хилл, Канада); Линейный: Тайсон Бэкер (Сейнт Мэрис, Канада)Телекомпания: FNDSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B35176BE5BF784CF2C6427ACDEA17F39BB5E172
 ```
 
 

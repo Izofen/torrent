@@ -1,3 +1,27 @@
+###  Публикация: 1430326   (174435) от 09.12.2020
+
+VA - Anjunadeep The Remixes 2020 (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <EDM, Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_174435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kauf & Jerro – Tunnel Vision feat. KaufЖанр: EDM, Melodic House & TechnoПродолжительность: 01:26:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56962364BA1EA86EF9C9CD80CABB28D65D578C35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595865   (174498) от 07.12.2022
 
 VA - Remix Rockets (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
@@ -668,33 +692,6 @@ Markus Schulz - Global DJ Broadcast World Tour (X-Demon Wroclaw, Poland) (2023-1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D29CE51E04E2BE542BE7B4D70DA8582D4A65202
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594250   (178699) от 30.11.2022
-
-Michael Rother - Solo (2019) 5×CD, Compilation [FLAC|Lossless|tracks + .cue] <Ambient, Krautrock>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178699.jpg" />
-</div>
-
-
-###  Подробнее
-
-1977 - Flammende Herzen
-1978 - Sterntaler
-1979 - Katzenmusik
-1982 - Fernwärme(   Читать дальше...   )Жанр: Ambient, KrautrockПродолжительность: 02:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287C7AC181F961E5875F79E482A1451709A7D17E
 ```
 
 

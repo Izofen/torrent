@@ -1,3 +1,192 @@
+###  Публикация: 1730094   (107929) от 14.06.2024
+
+John Grant - The Art of the Lie (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <synthpop, synthfunk, artpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - All That School For Nothing (00:05:20)
+02 - Marbles (00:07:14)
+03 - Father (00:07:02)
+04 - Mother And Son (00:07:26)(   Читать дальше...   )Жанр: synthpop, synthfunk, artpopПродолжительность: 01:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C26DCF2F6CF0FA4CF6FF454FC176FF7578D900BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730138   (107930) от 14.06.2024
+
+T-Dow - Vol. 2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Gonna Stay (2:32)
+02. Until The Sun Goes Down (3:18)
+03. Trouble In My Way (3:42)
+04. Running Man (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1326141E0F4E9E91321BB873E09697E24AE06A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730130   (107931) от 14.06.2024
+
+Ebba Bergkvist & The Flat Tire Band - Four Wings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Wings (5:03)
+02. The Pack (3:32)
+03. Northeast Passage (4:07)
+04. Vice Versa (3:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B3E35CC9A8A69CE9AD85DD09C9FD1A6EA37966
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730108   (107932) от 14.06.2024
+
+Ensiferum - Two Paths (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107932.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ajattomasta Unesta
+A2 For Those About To Fight For Metal
+A3 Way of the Warrior
+A4 Two Paths(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C21E15A7E0AA1E82F13AE0520D1622A5C0A9E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730137   (107933) от 14.06.2024
+
+Walt Disco - The Warping (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Seed (00:00:57)
+02 - Gnomes (00:03:34)
+03 - Come Undone (00:03:39)
+04 - The Warping (00:03:55)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DAC5556A9A264B9423BAA8C1CF271E05DD33361
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730093   (107934) от 14.06.2024
+
+Ensiferum - Unsung Heroes (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symbols
+02. In My Sword I Trust
+03. Unsung Heroes
+04. Burning Leaves(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991272E0858EF8EFAC4C69FD8205EC17D1F90C93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730008   (107935) от 14.06.2024
+
+Ensiferum - Victory Songs (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ad Victoriam
+02. Blood Is the Price of Glory
+03. Deathbringer from the Sky
+04. Ahti(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D6FDCD32DC8E10EB165B687A40B67F0CE0FFB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730119   (107936) от 14.06.2024
 
 Amar Sundy - Homme Bleu (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -496,192 +685,6 @@ Veil of Tears - Emo Diaries (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A027516A770AF74038773A733FFCB4C959BDA449
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730136   (107955) от 14.06.2024
-
-Marcela de Campos - Dimmed Lights (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spoonful (5:14)
-02. Blues With a Feeling (4:59)
-03. Nobody Knows You When You're Down and Out (4:51)
-04. Dimmed Lights (3:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB36EC5C754A1EEC7686CCAFAAF54893CAE8FB8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730141   (107956) от 14.06.2024
-
-The Andy MacFarlane Two Man Orchestr - My Old Suitcase (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Did (3:04)
-02. Vicky Straightaway (3:49)
-03. Over the Hill (3:22)
-04. Still Drunk, Still Crazy, Still Blue (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:090D98EC37AAF56430E9482DDFEFE46759BE4E03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730075   (107957) от 14.06.2024
-
-Xeneris - Eternal Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barbarossa
-02. Before The River Of Fire
-03. Eternal Rising
-04. Pandora's Box(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB0CC004950CFB0E3F9709412B5A2B6BA0FAAE34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730133   (107958) от 14.06.2024
-
-Jesse Dayton - The Hard Way Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hard Way (3:38)
-02. Night Brain (3:24)
-03. Talkin' Company Man Blues (4:10)
-04. Baby's Long Gone (3:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11C9CC9DE5382208952C93E4566456B9E66B00C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729979   (107959) от 14.06.2024
-
-VA - Константин Ступин. Трибьют, Часть 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107959.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. White Punk - Лёд и ветер (Константин Ступин cover)
-2. Nemirov - Корсары (Константин Ступин cover)
-3. Banev! - Дождь (Константин Ступин cover)
-4. Гранитный цех - Тварь (Константин Ступин cover)(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9752149737D91B8D5374A5F2843C324A13B110
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730198   (107960) от 14.06.2024
-
-МузЛофт-подкаст / МузLoft. Мартиросян, Сорокин, Аверин, Матуа (2024) WEBRip [H.264/1440p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такого ещё у нас не было! Сразу четыре артиста, да ещё и каких! Резиденты камеди клаб, змей Горыныч из Маски, да и вообще талантливые, музыкальные ребята с которыми было кайфово. Надеюсь, эта невероятная атмосфера передастся вам при просмотре.Производство: Россия | Y-GenerationУчастники: Мартиросян, Сорокин, Аверин, МатуаПродолжительность: 01:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BA6CCA0C2DA261379CB9C8FA53725813C91A8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730140   (107961) от 14.06.2024
-
-Paul McCartney & Wings - One Hand Clapping Sessions [Live Studio Sessions 1974 / Remastered 2024] (2024) MPL Communications [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - One Hand Clapping (00:02:15)
-02 - Jet (00:04:00)
-03 - Soily (00:03:56)
-04 - C Moon-Little Woman Love (00:03:20)(   Читать дальше...   )Жанр: RockПродолжительность: 01:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315FE7F76D5C8E83502E45BD8DC1ACC0B6AA2DEF
 ```
 
 

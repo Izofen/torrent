@@ -1,3 +1,165 @@
+###  Публикация: 1664206   (185972) от 25.09.2023
+
+Helena Hauff - fabric presents Helena Hauff (Mixed) (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno, Industrial, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Your Sights Inward (Mixed) [00:02:36]
+02. Sunken Park (Mixed) [00:04:02]
+03. Data Transfer (Mixed) [00:05:09]
+04. Machine Conflict (Mixed) [00:03:59](   Читать дальше...   )Жанр: Electro, Techno, Industrial, HouseПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2134F425FF7BA0EFF9DC42D58E7119880EC541A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426556   (185983) от 25.11.2020
+
+MediaData - Adore Resurrect (2020) Aliens Production [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Ambient, Downtempo, Glitch, Modern Classical>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_185983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uncontrolled (04:49)
+02. Too Long (04:01)
+03. You'r the Symphony (03:38)
+04. Home Adore (03:12)(   Читать дальше...   )Жанр: IDM, Ambient, Downtempo, Glitch, Modern ClassicalПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C28234373C1E8E48BC78D4E71DD03FC1092A2E88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426533   (186029) от 25.11.2020
+
+Amethystium - Odonata: 20th Anniversary Edition (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_186029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opaque (20th Anniversary Edition) (4:43)
+02. Enchantment (20th Anniversary Edition) (6:02)
+03. Dreamdance (20th Anniversary Edition) (4:17)
+04. Tinuviel (20th Anniversary Edition) (3:14)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591B6936F9D576EEA96D4A612508C7AFCB9F8462
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426562   (186036) от 25.11.2020
+
+VA - Outliers:2 (2020) Samurai Music [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, Halftime, Experimental>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_186036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam KDC - Obsessed (04:42)
+ 02. Last Life - Opium (04:31)
+ 03. Antagonist - Vectors (07:12)
+ 04. Torana - Magnate (06:36)(   Читать дальше...   )Жанр: Drum n Bass, Halftime, ExperimentalПродолжительность: 02:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B332B59D10BFC72ED19DAFE2EF364E39DF8BD62F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426593   (186066) от 25.11.2020
+
+VA - Sexy Love (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_186066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow Rhythm - Digital Theremin (3:58)
+02. Gil Ward - Fluctuate - Red Chill Mix (4:31)
+03. Hale Brooks - Our Emotions - Chill Edit (5:22)
+04. Private Excellence - Private Show - Laby & Rynt Mix (4:00)(   Читать дальше...   )Жанр: Easy Listening, ChilloutПродолжительность: 01:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622ED24B8A14C0CB3E5DD4C7D046179D74D9F093
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664120   (186239) от 24.09.2023
+
+Blank & Jones feat. Mick Roach - Christian (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chill out, Downtempo, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christian
+02. Magnolia
+03. Nothing's Happening By The Sea
+04. (You're Gonna Look) Good in Blues (Radio Edit)Жанр: Electronic, Chill out, Downtempo, LoungeПродолжительность: 00:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9D593D1274CC89DDA7099671BC70CAA64CB7D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663890   (186244) от 24.09.2023
 
 VA - Uplifting Only Top 15: September 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -74,6 +236,33 @@ Cosmic Gate - Live @ Tomorrowland Store Rooftop Ibiza, Spain (2025-09-16) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B45595F08B71AF72B4C767AB8F3210C0294E27D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240914   (186403) от 23.09.2023
+
+VA - We Love Funky by Miguel Vizcaino (2016) [MP3|320 kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_186403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zo! - We Are On The Move (Joey Negro & Dave Lee Remix) (04:56)
+02. Corduroy Mavericks feat. Soledrifter - True Love (Soledrifter Remix) (04:02)
+03. Dr Packer - Bizarre Love (04:47)
+04. Paul Mad - Believe in Love (Deep Beep Records) (06:26)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50CC8A8B7B221E8475D73A06C243082EE6BECAA3
 ```
 
 
@@ -503,195 +692,6 @@ VA - A State Of Trance: Future Favorite - Best Of 2022 - (Extended Versions) (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DEC343689F79D79AC52E61BE50A6A5E912A4911
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591526   (187191) от 18.11.2022
-
-Alpha Romeo - Blue By Design (2022) [Mp3|320 kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Light (2:53)
-02. Namaste (3:19)
-03. Trigger (3:38)
-04. Crazy (To Fall In Love) (4:24)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C07259C835B8E66A0196FBF594CACF090ED80F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591476   (187194) от 18.11.2022
-
-VA - Club Charts 2023 (2022) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrojack & R3HAB feat. AuRa - Worlds On Fire (Extended Mix) (3:54)
-02. Don Diablo x Dominica - Gotta Let U Go (Extended Mix) (4:06)
-03. Farruko - Pepas (Original Mix) (4:47)
-04. David Guetta x Dimitri Vegas vs. Nicole Sherzinger x Azteck - The Drop (Extended Mix) (3:33)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF90B6187073F5D8A609E9C2D4288AB39A97F86C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591375   (187216) от 18.11.2022
-
-VA - Techno Club Vol.67 (Talla 2XLC & Ralphie B) 2CD (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ahmed Romel & Christina Novelli - Lost in Love (Extended Mix)
-02. Ralphie B. & Frank Waanders - Fata Morgana (Original Mix)
-03. BiXX - Start Again (Original Mix)
-04. Ralphie B - Divinity (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9E8CCF8332490E288DF0828EA086CBD75DEE51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591468   (187224) от 18.11.2022
-
-Abbsynth - Back To The Sun (2008) [MP3|320 Kbps] <Electronic, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introx (Breath of the Sun)
-02. 5 Seconds Up To An Orbit-Final
-03. Back To The Sun
-04. Low battery(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30727E49D8B9D90C5FC159C39CFB5DCDCF9E4DC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591135   (187483) от 17.11.2022
-
-George Kopaliani - Nostalgic Road (2020) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars (5:16)
-02. Sunset (4:11)
-03. Nostalgia (4:59)
-04. Alone (4:27)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18BD19A09672060C46EB44ACC9877FC54EEF6BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662855   (187486) от 19.09.2023
-
-Automat - Heat (2023) [FLAC|Lossless|WEB-DL|tracks] <Trip-hop, Indus, Synthwave, Electro-Synthpop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_187486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Climb [00:05:51]
-02. Emperor [00:04:53]
-03. Standing [00:05:26]
-04. Cold [00:04:34](   Читать дальше...   )Жанр: Trip-hop, Indus, Synthwave, Electro-Synthpop, DowntempoПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40EE30CA74D1B1D4BD45945AB158F06A64D85007
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591295   (187501) от 17.11.2022
-
-Hernan Cattaneo & Soundexile - Future Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hernán Cattáneo & Soundexile - Glide (Future Mix)
-02. Hernán Cattáneo & Soundexile - Flair (Future Mix)
-03. Hernán Cattáneo & Soundexile - Atrial Rhythms (Future Mix)
-04. Hernán Cattáneo & Soundexile - Solo (Future Mix)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83B46704EE07E2C9B6E1E4DCB0AAF22EA1FB81F
 ```
 
 

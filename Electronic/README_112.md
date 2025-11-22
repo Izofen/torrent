@@ -1,3 +1,30 @@
+###  Публикация: 1344328   (170146) от 10.12.2019
+
+VA - Top 100 Best Bass House '19 (Part 1) (2019) [MP3|320 Kbps] <House, Future House, Tech House, Bass House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Federico Rosano – Throws Up (Bass House Vip Mix) (4:15)
+02. Houze Muzzik – Puzzle Flow (Bass House Vip Mix) (4:24)
+03. Sick Kids – Friends (Henrick B Jordan Bass House VIP Mix) (4:20)
+04. Michael Beltone – Moving To The Beat (G-Mafia Bass House Mix) (3:50)(   Читать дальше...   )Жанр: House, Future House, Tech House, Bass HouseПродолжительность: 03:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D945CB6E2705959E617E9695E2BEC2DC756BAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1515342   (170310) от 06.12.2021
 
 VA - Trance Dance 2022 (2021) [MP3|320 Kbps] <Trance>
@@ -661,33 +688,6 @@ VA - Electronic Elements - Amsterdam 2023 [MP3|320 Kbps] <House, Progressive Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:926FCF86A9DA85683C36C78EF8B9D12B97F1D305
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670024   (172333) от 19.10.2023
-
-VA - Suanda Amsterdam 2023 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_172333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - For All Time (Suanda 400 Anthem) (Extended Mix) [6:52]
-02. Feel & Papulin & Ren Faye - The Way Of Magic (Alex M.O.R.P.H. Extended Remix) [7:33]
-03. Vinny DeGeorge - Orbit (Extended Mix) [7:50]
-04. Roman Messer & Richard Bedford - Breathe (Alex M.O.R.P.H. Extended Remix) [7:47](   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1791EDE0E5FA95947B3BEDCB4D88EB5D0471BDCA
 ```
 
 

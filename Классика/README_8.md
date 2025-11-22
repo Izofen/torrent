@@ -1,3 +1,30 @@
+###  Публикация: 1594164   (177921) от 01.12.2022
+
+Yevgeny Kissin, Berg, Chopin, Gershwin, Khrennikov - The Salzburg Recital (2022) 2×CD [FLAC|Lossless|image + .cue] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_177921.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ Alban Berg
+01. Piano Sonata, Op.1
+(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1686C4DBB2B0F76FA82A7BBEF6B2506D48BFB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592787   (180961) от 26.11.2022
 
 J. S. Bach, Frank Peter Zimmermann - Sonatas & Partitas Vol.1 (2021) [FLAC|Lossless|image + .cue] <Classical, violin>
@@ -377,6 +404,86 @@ magnet:?xt=urn:btih:414916EF4A1158204257D2153CBC2BB5919989B3
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085455   (214230) от 21.12.2016
+
+The Piano Guys - The Piano Guys (2013) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Instrumental>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Titanium / Pavane [4:50]
+02. Peponi (Paradise) [4:11]
+03. Code Name Vivaldi [4:07]
+04. Beethoven's 5 Secrets [5:10](   Читать дальше...   )Жанр: Classical Crossover, InstrumentalПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C40C4786C00A855D0DD6FFA2F9DAFF0557129A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344027   (214400) от 08.12.2019
+
+Philip Glass - Annunciation (2019) [FLAC|Lossless|image + .cue] <Classical/Minimalism>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_214400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Quintet 'Annunciation'
+1. Part 1
+2. Part 2
+3. Pendulum(   Читать дальше...   )Жанр: Classical/MinimalismПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79B17515D7710713E4BC8173CB98425FC0EBB08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085118   (215589) от 20.12.2016
+
+VA - The Classical Album (2016) 2CD [MP3|320 Kbps] <Classical, Orchestral, Symphonies>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_215589.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vaughan Williams: The Lark Ascending (Edit) by Andrew Litton and London Philharmonic Orchestra and Nicola Benedetti
+2. Rachmaninov: Piano Concerto No.2 in C minor, Op.18 - 2. Adagio sostenuto (Edit) by André Previn and London Symphony Orchestra and Vladimir Ashkenazy
+3. Mozart: Clarinet Concerto in A, K622 - 2. Adagio by Emma Johnson and English Chamber Orchestra (   Читать дальше...   )Жанр: Classical, Orchestral, SymphoniesПродолжительность: 02:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D53CDC0BDB6F79927A6E269644FD831258565B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966089   (218423) от 18.12.2015
 
 Rimsky-Korsakov, Mussorgsky - Works for Piano Trio (The Bekova Sisters) (1999) [FLAC|image+cue] <Classical, Romantic Period, Chamber Music, Recitals, Suite, Trio>
@@ -588,110 +695,6 @@ Joep Beving - Henosis (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Contemporary,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C30C369E1632BAD15C344F5AE7685891554CA1D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651137   (222976) от 05.08.2023
-
-Le Concert Des Nations, La Capella Nacional De Catalunya, Jordi Savall - Beethoven - Révolution Symphonies 6 à 9 (2021) 3 x CD [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222976.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-[1]-[5] Symphony No.6 in F major, Op.68 'Pastoral'Жанр: ClassicalПродолжительность: 02:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BB2FD507BFEEAA7DF8E89F3AF4670A2C442EB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991943   (225025) от 01.12.2019
-
-Heinali - Sway, sway (2013) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Modern Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sway, sway (04:54)
-02. Little by Little (04:04)Жанр: Modern ClassicalПродолжительность: 00:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4073FD229DAD8C53B74E154D040914C0D5CE79A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341994   (225207) от 01.12.2019
-
-Rick Wakeman - Christmas Portraits (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL]<Classical, Piano, Instrumental>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225207.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - The First Noel [3:26]
- 2 - In The Bleak Midwinter [3:36]
- 3 - Deck The Halls  / Away In A Manger [3:29]
- 4 - The Holly & The Ivy / Mary's Boy Child [3:25](   Читать дальше...   )Жанр: Classical, Piano, InstrumentalПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D78648C6F69A0D70C4392FF31D64FD91588E90A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341651   (225346) от 01.12.2019
-
-Rick Wakeman - Christmas Portraits (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225346.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The First Noel (03:25)
-2. In The Bleak Midwinter (03:35)
-3. Deck The Halls / Away In A Manger (03:29)
-4. The Holly & The Ivy / Mary's Boy Child (03:24)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3589665E9A55670893D179D386DF713FF1282B4D
 ```
 
 

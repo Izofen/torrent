@@ -1,3 +1,53 @@
+###  Публикация: 1807661   (65124) от 20.07.2025
+
+Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation | Альтернативная игра богов | Игровое гиперпространство Нептунии [2019, OVA, 3 из 3] BDRip 1080p HEVC 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четыре богини вместе со своими сёстрами встречаются на знаменитом горном курорте в королевстве Ластейшн. Но в самый разгар отдыха младших сестёр уносит в портал, который ведёт в параллельную вселенную.Производство: Okuruto Noboru / オクルトノボルЖанр: приключения, фэнтези, комедия, фантастика, махо-сёдзёРежиссер: Мукай МасахироПеревод: RinaIchigo & SpiderDanger (эп. 01-03), warqsize (эп. 01), Serious Livsi (эп. 02, 03)Язык озвучки: японскийСубтитры: русскиеПродолжительность: 3 эп. по 30 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D149FB2155ABCBF5281E2FB79EBEF10ABC23E2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807807   (65125) от 20.07.2025
+
+Шрифты - MyFonts - SkyWing [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный округлый шрифт, вдохновлённый японскими консольными компьютерными играми.
+
+Кириллица не поддерживаетсяФормат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A459FD397BCF240C4345A270D3A126131A97D276
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807712   (65126) от 20.07.2025
 
 The Doobie Brothers - Walk This Road (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -602,60 +652,6 @@ Chyco Simeon - Future (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion & 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAB28A294020B621BC9042CEFDD50F55B5BD697A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807404   (65150) от 19.07.2025
-
-Recorruptor - Sorrow Will Drown Us All (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Deathcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bathe in the Ashes of Heaven [00:01:46]
-02. Sorrow Will Drown Us All [00:04:26]
-03. Bearing the Befouled Spawn [00:04:39]
-04. Within the Vault [00:03:56](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDCEC224E6DA35F8A49BB41CDA82E6AD79A8A50D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807439   (65151) от 19.07.2025
-
-VA - Latin Jazz House Summer Mix (Poolside Cocktails & Sunset Grooves) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tito Valdez - Tumbe (Alessio Collina Hill Paradise Mix) (7:20)
-02.  Ana Flora - Mas Que Nada (4:16)
-03.  Café Safado - Māo Pra Cima (3:34)
-04.  Black & Brown - Cool Affair (Eric Kupper Remix) (7:36)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E2BE443A4A9F18C16BE2F561415787C4F43878
 ```
 
 

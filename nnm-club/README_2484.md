@@ -1,3 +1,55 @@
+###  Публикация: 1806752   (65332) от 14.07.2025
+
+Night Must Fall - Dissonance of Thought (2007) (EP), Released, 2008, Descending Towards Damnation [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invocation
+02. Awaiting the Sixth ExtinctionЖанр: Funeral Doom MetalПродолжительность: 00:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC75CAD23FC860BD24498C0F9B8643E5E8701828
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806733   (65333) от 14.07.2025
+
+Maniae - Vestiges (2023) (EP) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damnatio ad Bestias
+02. Clinical Messiah
+03. Gold into Your Veins
+04. Inner Plague(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6726B0E9B89FF428E8C78057D2081A500482C3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806776   (65334) от 14.07.2025
 
 Relligary - Hearts and Minds (2025) [MP3|320 Kbps] <Heavy, Power Metal>
@@ -623,55 +675,6 @@ Gruesome - Fragments of Psyche (2017) (EP) [FLAC|Lossless|WEB-DL|tracks] <Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96B13E02069B4164135304C2342B9144DE0D8812
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806480   (65358) от 13.07.2025
-
-Шрифты - Authentype - Gothema - A Modern Geometric Sans [OTF, WOFF, WOFF2, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современное семейство геометрических шрифтов с кириллицей, без засечек. Идеален для получения впечатляющих результатов как в цифровой, так и в печатной форме.
-Материал раздаётся с официальной документацией.Формат: OTF, WOFF, WOFF2, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C339DDDE4536E4CBFB6F50468B084900275178
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806501   (65359) от 13.07.2025
-
-Иконки - Envato - Matcha Food and Drink 3D Illustration - 2XT8KQA [PNG]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поднимите на новый уровень свои проекты по дизайну мобильных приложений, UI/UX и веб-дизайну с помощью набора иконок Matcha Food and Drink 3D Illustration, добавив уникальный и привлекательный элемент в свои проекты.Формат: PNGРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D259383AEEE1020E210663C9882A0CFBC7846798
 ```
 
 

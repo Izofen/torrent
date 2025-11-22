@@ -1,3 +1,57 @@
+###  Публикация: 1766119   (33971) от 16.12.2024
+
+Чел.OUT - Назад к Солнцу (2012) [FLAC|Lossless|image + .cue] <Pop Rock, Alternative Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Желто-голубой листвою
+02. Мы умираем с тобой до весны
+03. Ам
+04. Я вернусь(   Читать дальше...   )Жанр: Pop Rock, Alternative Rock, Female VocalПродолжительность: 00:27:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27AF41202533FF7FA664D8FD5BAB2CDE93E961A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766069   (33972) от 16.12.2024
+
+VA - Alfredo Golino & Collettivo 112 (Classe Pop Rock) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alessandro Cuccato - The Ring (3:50)
+02. Claudio Pandolfi - Driving my car (4:34)
+03. Enzo Boscarino - Bump 'n' Jump (4:34)
+04. Leo Ingegno - Breaking news (4:49)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C21257560CD3F569CD992FFDF71D66F78D8780E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765739   (33973) от 16.12.2024
 
 Dark Lightning - Studio Albums (2 releases) (2023-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
@@ -599,57 +653,6 @@ magnet:?xt=urn:btih:9A8BC436A4E98C49DAFB05263869D2D1BB3D328B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BF2E1609953FEF88E06764128A8EE506ABD793F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766132   (33997) от 16.12.2024
-
-Nazareth - Rampant (1974) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Belle Antique [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver Dollar Forger (Parts 1 & 2)
-02. Glad When You're Gone
-03. Loved And Lost
-04. Shanghai'd In Shanghai(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:920D44C4C35BB4422F31E0488A99006E202728E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766044   (33998) от 16.12.2024
-
-И.З. Штокало (отв.ред.) | История отечественной математики [4 тома в 5 книгах] (1966 - 1970) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четырехтомный труд «История отечественной математики» подготовлен к изданию Институтом истории естествознания и техники АН СССР и Сектором истории техники и естествознания Института истории АН УССР. В написании этого труда приняла участие большая группа специалистов, поставившая перед собой цель осветить с позиций диалектического материализма развитие отечественной (   Читать дальше...   )Жанр: МатематикаИздательство: Наукова думкаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5AE9A8B8A305F0FE3529E741883F69BF3FF0F8
 ```
 
 

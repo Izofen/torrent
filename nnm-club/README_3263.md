@@ -1,3 +1,189 @@
+###  Публикация: 1749260   (104523) от 13.09.2024
+
+VA - Armin van Buuren - A State Of Trance 1190 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond ft. Richard Bedford – Heart Of Stone
+02. MEDUZA ft. HAYLA – Another World
+03. AYU – Move
+04. MORTEN & ARTBAT ft. Bonn – Hollow(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0482AC329A5B22493FBC5384A5905107E81CA2A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749302   (104524) от 13.09.2024
+
+Velvet Revolver - Contraband (2024 Deluxe Edition) (2004) Reissue, 2024, RCA - Legacy [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sucker Train Blues (4:28)
+02. Do It For The Kids (3:56)
+03. Big Machine (4:26)
+04. Illegal i Song (4:18)(   Читать дальше...   )Жанр: RockПродолжительность: 01:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49507843CF8FF5590EE1B5E2208D5BFE78D6D2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749298   (104525) от 13.09.2024
+
+Velvet Revolver - Contraband (2024 Deluxe Edition) (2004) Reissue, 2024, RCA - Legacy [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sucker Train Blues (4:28)
+02. Do It For The Kids (3:56)
+03. Big Machine (4:26)
+04. Illegal i Song (4:18)(   Читать дальше...   )Жанр: RockПродолжительность: 01:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C968807473BA99F6E5C22C346EF388C180472FD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749169   (104526) от 13.09.2024
+
+London Grammar - The Greatest Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - House [3:11]
+02 - Fakest Bitch [4:20]
+03 - You And I [5:01]
+04 - LA [4:32](   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAF3C60F48CD06D8AE703CFC4F88895111143F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749318   (104527) от 13.09.2024
+
+VA - Black Hole House Music 09-24 (2024) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Thomas & Christian Burns - Enjoy The Silence (Extended Mix) [7:25]
+02. PARAFRAME - Close To Me (Extended Mix) [5:56]
+03. Markus Schulz & Sarah De Warren - Light On (ZOYA Extended Remix) [5:05]
+04. Scot & Millfield x Cabriolet Paris - Talamanca (Extended Mix) [5:25](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E75C3FFBE2FF6DDE1352CB80B77FFC64C9AEA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749133   (104528) от 13.09.2024
+
+Wake The Nations - Heartageddon (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive
+02. Don't Call Me Tonight
+03. Never Say
+04. Bulletproof(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46CEE2DE3D28A59E34D6A9D8D35FA3FF3FDF67AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749166   (104529) от 13.09.2024
+
+Моя заветная мечта / Der ganz grosse Traum (2011) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конрад Кох - один из первых учителей английского языка в Германской империи, в Брауншвейге. Он знакомит своих учеников с новым видом спорта - футболом, в то время совершенно не известным за пределами Англии, чтобы заинтересовать их английской культурой и языком. Но либеральные методы преподавания Коха расстраивают его консервативных коллег, родителей учеников и местных (   Читать дальше...   )Производство: Германия, Cuckoo Clock Entertainment, Degeto Film, Deutschfilm...Жанр: драма, спортРежиссер: Себастьян ГроблерАктеры: Даниэль Брюль, Бургхарт Клаусснер, Томас Тиме, Юстус фон Донаньи, Юрген Тонкель, Винсент Кастнер, Катрин фон Штайнбург, Аксель Праль, Тео Требс, Адриан МурПеревод: профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493DD44C9A25F3C2CB4AA0D564ACE3105FB5BDA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749153   (104530) от 13.09.2024
 
 Моя заветная мечта / Der ganz grosse Traum (2011) BDRip [H.264] [DVO]
@@ -497,193 +683,6 @@ VA - DJ Hits Vol. 363 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D26498D5C8D5E2A34050D002BC12F7D076B68B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748585   (104549) от 10.09.2024
-
-Ruby Braff & Scott Hamilton - A Sailboat In The Moonlight (1986) Concord Jazz [APE|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Sailboat in the Moonlight [5:36]
-02. Lover Come Back to Me [5:21]
-03. Where Are You? [4:26]
-04. 'Deed I Do [6:03](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90CC7E19BA011DAB0F71B092F66AF94DC8BC000
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748580   (104550) от 10.09.2024
-
-Carmeria - Tragedie D'amour (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Forth My Sorrow (4:57)
-02. A Thousand Winter Rains (4:19)
-03. Thorns (3:44)
-04. Leading the Lyre (3:40)(   Читать дальше...   )Жанр: Symphonic Metal, Melodic Power MetalПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0322E4ADCEC7AD3C0F488DA6BF02CDAFCABC74E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748553   (104551) от 10.09.2024
-
-Lenny Kravitz - Human (Remixes Edits) (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Pop, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Human (LF SYSTEM Remix Edit) [2:35]
-02 - Human (Paul Woolford Edit) [3:36]
-03 - Human (Paul Woolford Classic Edit) [3:37]
-04 - Human (Dave Audé Remix edit) [3:53](   Читать дальше...   )Жанр: Electronic, Pop, DanceПродолжительность: 00:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A7BA068A9E3E596B34FC9808CA586DA6B213C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748549   (104552) от 10.09.2024
-
-Lenny Kravitz - Human (Paul Woolford Remix) (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Pop, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Human (Paul Woolford Edit) [3:36]
-02 - Human (Paul Woolford Classic Edit) [3:37]
-03 - Human (Paul Woolford Remix) [6:36]
-04 - Human (Paul Woolford Classic Club Mix) [5:35](   Читать дальше...   )Жанр: Electronic, Pop, DanceПродолжительность: 00:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD753CF5629CAAD78702502EDBE5323445361831
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748550   (104553) от 10.09.2024
-
-Aircoach - Prism (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can’t Find A Place (4:19)
-02. Dear Conrad (5:01)
-03. The Man Who Walked Softly (5:24)
-04. Wake Up (4:47)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDD6402B5B3A1280839AB92FCAB9172EB032091
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748529   (104554) от 10.09.2024
-
-Obscene - Agony & Wounds (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cloverland Panopticon 03:29
-02. Watch Me When I Kill 02:25
-03. Breathe the Decay 04:15
-04. Noxious Expulsion 03:33(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708CE23097DDCE8DA84C542D626289415C7757E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748613   (104555) от 10.09.2024
-
-Любовь находит путь / Love Finds the Way (1912) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этель влюблена в Джека, одного из сотрудников ее отца. Джека увольняет отец Этель, потому что он хочет, чтобы Этель вышла замуж за богатого банкира. Что же делать этой парочке? Они сделали то, что всегда делают в такой ситуации дураки-влюбленные, они сбежали...
-В фильме играет Лотти Пикфорд, младшая сестра великолепной "Малышки Мэри" - Мэри Пикфорд.Производство: США / Vitagraph Company of AmericaЖанр: короткометражный, драма, мелодрама, немое киноРежиссер: Тэффт ДжонсонАктеры: Лео Делани, Лотти Пикфорд, Уильям Р. Данн, Тэффт ДжонсонПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907FA999DB3B7952F55EE86F41E14BCAC3B2D75B
 ```
 
 

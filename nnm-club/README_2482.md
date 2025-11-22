@@ -1,3 +1,57 @@
+###  Публикация: 1807370   (65280) от 18.07.2025
+
+Руслан Казанцев - Лесоповал (2001) Remastered, 2025, Vybez Music [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лесоповал (Remastered 2025) [00:03:43]
+02. Цыганочка (Remastered 2025) [00:02:41]
+03. Черный ангел (Remastered 2025) [00:04:44]
+04. Срок (Remastered 2025) [00:03:35](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA3E273343220BBD083C47EAE5C28775239F698
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807214   (65281) от 18.07.2025
+
+Earthen Sea - Recollection (2024) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Jazz>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Present Day
+02 - Another Space
+03 - Sunlit Leaving
+04 - A Single Pub(   Читать дальше...   )Жанр: Ambient, JazzПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53840DCE54AAAEE9368D86D4C2E2F8D9B6736B04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807357   (65282) от 18.07.2025
 
 Reign Of Glory - Slingshot (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -611,58 +665,6 @@ magnet:?xt=urn:btih:5D819253BD699E66D9B97A8B23D2E226F4451C37
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8B0DE9B8C368DAFB954618799F32718E36C20F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807116   (65306) от 17.07.2025
-
-Константин Бакшт | Боевые команды продаж. Продажи на 100% (2008) [MP3, Вячеслав Тимошенко]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бизнес — это война, где пленных скупают за бесценок. Линия фронта проходит там, где идет работа с клиентами. Ваша основная ударная сила — ваш отдел продаж. Ваши менеджеры по продажам всегда в бою, всегда на передовой. Так вооружите их надежными технологиями и новейшими достижениями в области продаж!
-Автор этой аудиокниги как бизнес-консультант диагностировал десятки (   Читать дальше...   )Жанр: БизнесИздательство: ПитерПродолжительность: 05:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1458A061FE3CF292937F604040D1CFF562184B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807196   (65307) от 17.07.2025
-
-Scardust - Souls (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Forgotten Song (4:20)
-02. My Haven (3:18)
-03. RIP (3:40)
-04. Dazzling Darkness (2:37)(   Читать дальше...   )Жанр: Progressive Symphonic MetalПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42DEDA791E4A0C80D3D27E82AA3EF83AEA6EEA9D
 ```
 
 

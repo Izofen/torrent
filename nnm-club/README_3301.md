@@ -1,3 +1,187 @@
+###  Публикация: 1742886   (105511) от 13.08.2024
+
+Lacey Sturm(ex Flyleaf) - Kenotic Metanoia (2024) Deluxe Edition [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (My Heartbeat) (02:18)
+ 02 - State of Me (03:14)
+ 03 - Are You Listening (04:08)
+ 04 - The Decree (04:15)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F495E0A6EF5E436BD3ED32F7EB65D77F83FDAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742908   (105512) от 13.08.2024
+
+Зверь внутри / The Beast Within (2024) WEB-DLRip [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105512.jpg" />
+</div>
+
+
+###  Подробнее
+
+10-летняя Уиллоу и ее родители живут отшельниками в диких лесах Англии. Серия странных событий заставляет девочку задуматься о том, почему же все это время мама с папой избегали внешнего мира. Однажды она решает проследить за родителями, отправившись вслед за ними в глубину леса. Так героиня узнает страшную тайну своего отца, превращающегося в ужасного монстра. А (   Читать дальше...   )Производство: Великобритания / Future Artists Entertainment, Paradox House, Filmology FinanceЖанр: ужасыРежиссер: Ксандер ФарреллАктеры: Кит Харингтон, Эшли Каммингс, Джеймс Космо, Кэолинн Спринголл, Ian Giles , Адам Бейзил, Мартина МакКлементсПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:08Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742707   (105513) от 13.08.2024
+
+Andre Obin (André Obin) - Armored King (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Synthpop, Darkwave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armored King [00:02:48]
+02. Testament [00:03:32]
+03. Refuse to Surrender [00:04:53]
+04. The Tower [00:03:36](   Читать дальше...   )Жанр: Synthpop, DarkwaveПродолжительность: 00:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB47C0AD817754566A3008B80F2797E85B4F1B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742859   (105514) от 13.08.2024
+
+Вадим Бурлак | Золотые тельцы Иеровоама (2005) [MP3, Виктор Зозулин]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Романтика приключений и путешествий.
+Более 130 экспедиций совершил по всему миру писатель и путешественник Вадим Бурлак. Поэтому кому, как не ему, подарить нам, оседлым жителям мегаполисов, свои впечатления от необыкновенных путешествий. Писатель слой за слоем снимает для нас пласты веков, не утверждая и не навязывая свое мнение, но, предлагая нам самим (   Читать дальше...   )Жанр: Русская литература, приключения, повестьИздательство: Говорящая книга, ИД «Равновесие»Продолжительность: 03:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D4E05B0AD27B6E1B81692352785EC9AD49D48B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742759   (105515) от 13.08.2024
+
+Black Valentine - Heavy Hearts (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blessing In Disguise (4:49)
+02. Unrequited (Me This Whole Time) (3:11)
+03. Don't Need Nobody (4:54)
+04. Crickets (How Can I Get You To Care) (3:31)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3802B902D69E6346E7B90EA956F5F3C5AF2E5048
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742879   (105516) от 13.08.2024
+
+Waynestock - Family Friendly (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Family Disco Yeah! (feat. Carucha Podestá) (3:20)
+02. Retardado (3:08)
+03. Drama Queen (3:52)
+04. Una Mentira Que Actuamos Todos (3:04)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2244CC12131473D6244AA8101B4E5889D1A17D81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742698   (105517) от 13.08.2024
+
+Nicole Marxen - Thorns (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwave, Industrial>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Path of Fire [00:03:36]
+02. Blood of Mine [00:04:32]
+03. Thorns [00:04:09]
+04. Dark Water [00:01:12](   Читать дальше...   )Жанр: Darkwave, IndustrialПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529816E77F71B7E582126415A9EA53C9FAD694D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742760   (105518) от 13.08.2024
 
 Matt Mitchell & the Coldhearts - Matt Mitchell & the Coldhearts (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -470,193 +654,6 @@ Alien Ant Farm - Mantras (2024) [FLAC|Lossless|tracks + .cue] <Alt. Rock, Post-G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A4D3E8793766069888593FDB830766A6BBC3D63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742434   (105537) от 12.08.2024
-
-DJ Love (Sherwin Tuna) - Budots World (Reloaded) (2024) [FLAC|Lossless|WEB-DL|tracks] <edm, electronic, philippines, budots, club, dance, filipino>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TiwTiw [00:03:48]
-02. Sabak Sa DJ Basuri [00:02:53]
-03. Mura Kag Erfs [00:03:46]
-04. Y Que Fue Bomb DJ [00:04:26](   Читать дальше...   )Жанр: edm, electronic, philippines, budots, club, dance, filipinoПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CCAD071D195C95DBE7A9B80F633D100993D4179
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742697   (105538) от 12.08.2024
-
-Bill Wyman - Drive My Car (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Билл Уайман (Rolling Stones) выпустил свой девятый сольный альбом "Drive My Car" 9-го августа. "Drive My Car", представляющий собой мастерскую смесь его уникального англо-американского ритм-энд-блюза, является первым альбомом Уаймена с 2015 года, который будет доступен в цифровом формате, на CD и виниловых пластинках.01. Thunder on the Mountain (3:13)
-02. Drive My Car (3:23)
-03. Bad News (3:24)
-04. Storm Warning (3:44)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F43A5A99974023497E1772A6D5E5C08E2E7DE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742485   (105539) от 12.08.2024
-
-Ann Wilson & Tripsitter - Live in Concert (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blues Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Even It Up (Live) [00:07:57]
-02. Ruler of the Night (Live) [00:04:21]
-03. Love Alive (Live) [00:05:39]
-04. Isolation (Live) [00:03:04](   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Hard RockПродолжительность: 01:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E294144061A3E16AA3D495C1FE738C96CF778566
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742638   (105540) от 12.08.2024
-
-Newman - Colour In Sound (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Godspeed
-02. In Euphoria
-03. Wake Of The Wanderlust
-04. Afterglow(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE13B4EB73BE2ADB7A8FE646D76872C782F2CB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742497   (105541) от 12.08.2024
-
-Nathan Haines - Notes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, soul, analog, jazz, saxophone>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love You More [00:06:58]
-02. Night Moves [00:05:47]
-03. Just Holdin' On [00:03:48]
-04. Journey To The Peak [00:07:05](   Читать дальше...   )Жанр: House, soul, analog, jazz, saxophoneПродолжительность: 01:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9B0EB321FDF6310EFA95EBFF043298E2BCAE56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742581   (105542) от 12.08.2024
-
-Фёдор Сологуб | Красногубая гостья (2011) [MP3, Вадим Яковлев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Проза Серебряного Века.
-Фёдор Кузьмич Сологуб (1863–1927) – русский поэт, писатель, драматург, публицист. Один из виднейших представителей символизма.
-В сборник вошли рассказы одного из ярких представителей «Серебряного Века» Федора Сологуба в исполнении Вадима Яковлева.Жанр: Русская литература, классика, рассказИздательство: Вира-М (аудио)Продолжительность: 01:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F13DAB86E80E6C55376FEE31F16AF0C8AEC625F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742580   (105543) от 12.08.2024
-
-Фёдор Сологуб | Творимая легенда (Книга 2). Королева Ортруда (2013) [MP3, Аркадий Бухмин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика.
-Фёдор Кузьмич Сологуб (1863–1927) – русский поэт, писатель, драматург, публицист. Один из виднейших представителей символизма.
-В романе Фёдор Сологуб выразил свои философско-художественные идеи, обозначенные им ранее в статьях и эссе. Изначально, задуманный им цикл романов назывался «Навьи чары», и первая часть называлась «Творимая легенда» (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: МедиаКнигаПродолжительность: 12:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277BEC826D651044FCFB48303AE889173C60D668
 ```
 
 

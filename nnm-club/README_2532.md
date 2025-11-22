@@ -1,3 +1,54 @@
+###  Публикация: 1797712   (66580) от 24.05.2025
+
+Фоны - Design Stocks - Iridescent Abstract Backgrounds [JPG, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абстрактные фоны в радужных тонах.Формат: JPG, PNGРазрешение файлов: 6000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098ED198565803D46EEA382D5B1E5E55BFDFC872
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798709   (66581) от 24.05.2025
+
+VA - Amsterdam Classic Trance Festival (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleks Neptune - The Wolfs (06:53)
+02. Cryalta Generation - Airflow (07:39)
+03. Aleksey Litunov - The Time Has Gone (05:40)
+04. Andrey Gaydukov - Gentle Embraces (06:50)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1231B5DA30DCE302F54920857EA4FA966C45DB8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797962   (66582) от 24.05.2025
 
 Фоны - Graphic Studio - Creative Fabrica - Abstract Hearts Backgrounds [PNG]
@@ -610,60 +661,6 @@ magnet:?xt=urn:btih:98B6DCF3A52737F7FAA6B3BEE75D12F192F30145
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FE1ECF0AA95F8757654BE2B7E88DF5C1DCAABD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798482   (66606) от 22.05.2025
-
-PinkPantheress - Fancy That (2025) Mixtape [FLAC|Lossless|tracks + .cue] <Dance-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illegal (02:29)
-02. Girl Like Me (02:24)
-03. Tonight (02:56)
-04. Stars (02:21)(   Читать дальше...   )Жанр: Dance-popПродолжительность: 00:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73279A498F681767F10D029B673A6459AF5DD19E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798560   (66607) от 22.05.2025
-
-Евгения Калина - Кокон (2025) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Здравствуй [00:02:42]
-02 - Я прячу тело под мутоном [00:01:41]
-03 - В вашем городе [00:01:16]
-04 - Мука [00:00:17](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B024DC36F1823455279C275DFFF7F012ECE0C6F
 ```
 
 

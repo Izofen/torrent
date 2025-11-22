@@ -1,3 +1,186 @@
+###  Публикация: 1701909   (115989) от 23.02.2024
+
+Iridient Developer for Mac 4.2.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью не разрушают и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2024Разработчик: © 2024 Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.13 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA34F8A3A7FF9F35152EE4102B8926D13EAE87B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702178   (115990) от 23.02.2024
+
+Iron Curtain - Savage Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Speed, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Aftermath (Intro)
+02. Devil's Eyes
+03. Gypsy Rocker
+04. Thy Wolf(   Читать дальше...   )Жанр: Speed, Heavy MetalПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C416A5313BE2202C1FFB7280F5E064D9CEBE064
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701873   (115991) от 23.02.2024
+
+Genevieve (Geneviève) Leclerc - Big Band (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Swing. Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sing, Sing, Sing (00:04:02)
+02 - Cheek To Cheek (00:03:36)
+03 - L.O.V.E. (00:03:30)
+04 - It's A Good Day (00:02:28)(   Читать дальше...   )Жанр: Swing. JazzПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D4952AE5883B5F49C57F82C934BECA5D03C245
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701882   (115992) от 23.02.2024
+
+Boulevard - Blvd. (1988) [FLAC|Lossless|WEB-DL|tracks] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream On (03:41)
+02. Far from Over (04:10)
+03. Western Skies (03:40)
+04. Never Give Up (04:38)(   Читать дальше...   )Жанр: AORПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB8F9C3F96F317E0B437B2E907500F323ECBFE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702056   (115993) от 23.02.2024
+
+Blaze Bayley - Live in Czech (2020) 2CD, Live [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115993.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+01 - The Dark Side of Black (Live) [4:11]
+02 - A Thousand Years (Live) [3:16]
+03 - Dark Energy 256 (Live) [4:40](   Читать дальше...   )Жанр: Heavy Metal, MetalПродолжительность: 01:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFA3489F834D4F82EC2ED27AFBE18BC5EC5ACC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701877   (115994) от 23.02.2024
+
+BetterMouse for Mac 1.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115994.jpg" />
+</div>
+
+
+###  Подробнее
+
+BetterMouse — это утилита для macOS, улучшающая производительность и функциональность внешней мыши и призванная заменить громоздкие, навязчивые и ресурсоемкие драйверы мыши, такие как Logitech Options. Это многофункциональная, легкая, оптимизированная по эффективности и абсолютно безопасная для конфиденциальности система, пытающаяся удовлетворить все ваши потребности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.02.2024Разработчик: © 2024 BetterMouseAppПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34DE42F9064306479A90D702C12FB1CCF02614D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701930   (115995) от 23.02.2024
+
+VA - Sax For Lovers (1996) Legacy [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Webster - My Romance (4:16)
+02. Gerry Mulligan - My Funny Valentine (4:08)
+03. Stan Getz - Misty (5:27)
+04. Dexter Gordon - Laura (7:40)(   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Hard BopПродолжительность: 00:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500831FA651A4FDD229A233F16A97C5A4AFD76CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701880   (115996) от 23.02.2024
 
 Boulevard - Into the Street (1990) [FLAC|Lossless|WEB-DL|tracks] <AOR>
@@ -480,186 +663,6 @@ magnet:?xt=urn:btih:4CCFB166B4F3EC93FDC3DB670535E55B40B6DC73
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EA82404B03B3EAF816F0A248BF6E7B5F3944BF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701955   (116015) от 23.02.2024
-
-VA - Instrumental Jazz Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cooltrane Quartet - Dreams (4:08)
-02. Eve St. Jones - Everywhere (3:01)
-03. The Cooltrane Quartet - Just Like Heaven (3:35)
-04. Nova Bossa Ltd. - Go Your Own Way (2:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CFC37591F97067380195780348518261A836246
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702159   (116016) от 23.02.2024
-
-Al Corley - Square Rooms (1984) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Square Rooms (03:42)
-02. Hungry for Your Love (04:13)
-03. Lie Detector (03:31)
-04. One of a Kind (05:33)(   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFCEDB3F613904BD03518B1B83BE13269522D59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702111   (116017) от 23.02.2024
-
-Music Collection 3.6.4.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Music Collection - неплохая программа для создания на компьютере собственной музыкальной коллекции и ее удобного управления. Вся информация об имеющихся композициях может быть отредактирована и изменена. При этом она вводится либо в ручном режиме, либо загружается из интернета, что значительно экономит время и предотвращает от возможных ошибок. Удачно реализован (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D073E34DF50181CE7F5FCFE252EFDD47435E3F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701991   (116018) от 23.02.2024
-
-Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Swing>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby of Broadway (5:03)
-02. Oh Marie (2:33)
-03. Sentimental Journey (2:55)
-04. Pennies from Heaven (2:59)(   Читать дальше...   )Жанр: Pop, Rock, SwingПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:346B7E2318A4B807F6ECD46A4AC2F5688374CC82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701985   (116019) от 23.02.2024
-
-Журнал | Psychologies №77 (март 2024) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Psychologies - уникальный «специалист по жизни», поскольку главная его тема — жизнь его читателей. Это знающий друг, доброжелательный советчик и помощник в любых жизненных ситуациях. Он предназначен для женщин и мужчин, молодых и зрелых, семейных и холостых — для всех, кому нужна внятная и достоверная информация о происходящем с ним и с другими; для всех, (   Читать дальше...   )Жанр: ПсихологияИздательство: Hearst Shkulev MediaФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D623420921D78DC743AE6EEC3B9C9DDC5BEA43CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701921   (116020) от 23.02.2024
-
-Владимир Древс | Сердце Льва (2022) [MP3, Сергей Курнаев]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если мы оглянемся на свою жизнь, то заметим, что время от времени попадаем в одни и те же повторяющиеся ситуации. Это означает, что мы не прошли те или иные уроки, не сделали тех выводов, которые стоило бы сделать. В своей новой книге «Сердце льва» специалист по ведической психологии и бизнес-тренер Владимир Древс доступно и увлекательно рассказывает о том, как распознать (   Читать дальше...   )Жанр: Саморазвитие. ПсихологияИздательство: БОМБОРА, ЭКСМОПродолжительность: 03:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A43EF2E6955F86F1D6A9EDE76E9C73409DBBC96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701742   (116021) от 23.02.2024
-
-VA - 60 minutes. Old School Dance Music vol.23 (mixed by Dj V) (2024) [MP3|320 Kbps] <Euro Trance, Progressive Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_116021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren feat. Victoria Horn - Sunburn (Walk Through The Fire) (Extended Vocal Mix)
-02. Markus Schulz vs. Andy Moor - Daydream (Ronski Speed Remix)
-03. Rapid Eye - Circa-Forever (Rapid Eye's R.E.Mix)
-04. DT8 Project feat. Roxanne Wilde - Destination (Above & Beyond Extended Remix)(   Читать дальше...   )Жанр: Euro Trance, Progressive Trance, Vocal TranceПродолжительность: 01:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B38816513F7E4F4247D79749FD0F0CEBC517349
 ```
 
 

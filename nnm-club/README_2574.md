@@ -1,3 +1,51 @@
+###  Публикация: 1792393   (67672) от 19.04.2025
+
+Растровый клипарт - Creative Store - Creative Fabrica - Cherry Blossom Flowers Digital Papers [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с цветами вишни.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D10D99B8579A7124BF50BB08DB6D3FECFE0AB988
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792421   (67673) от 19.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Polka Dots 3d Flowers Mug Wrap Sublimation Design [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дизайн сублимационной упаковки кружки в горошек с 3D цветами.Формат: PNGРазрешение файлов: 2925 × 1425
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7CE7B76A68D6BE77788DFE8100699E5A674F00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792419   (67674) от 19.04.2025
 
 Растровый клипарт - Artnoy - Creative Fabrica - Sliver Metallic Glitter Digital Papers [JPG]
@@ -596,54 +644,6 @@ magnet:?xt=urn:btih:2F4D1A45C9A92FC3DE5FD1CC7CD20448178E902D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6249957D89761ED146BE7DFAB81157FF3D657966
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792641   (67698) от 19.04.2025
-
-Текстуры - Ivana Tomasevic Nikolic - Behance - Linen Papers Package - 114729667 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это набор из 14 высококачественных цифровых листов бумаги с текстурой холста в пастельных тонах.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0411DCF707816291DBCDB7DD7E19C39C1EA66945
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792650   (67699) от 19.04.2025
-
-Фоны - retroqueen - Creative Fabrica - Golden Glittering Background Bundle [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор золотых фонов с блёстками.Формат: JPGРазрешение файлов: 4500 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE1BB622B0BDEF159542DA9FF76B46970F756DA1
 ```
 
 

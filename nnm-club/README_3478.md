@@ -1,3 +1,191 @@
+###  Публикация: 1720859   (110113) от 06.05.2024
+
+VA - Monday Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - The Chain (2004 Remaster) (4:28)
+02. Ben E. King - Stand by Me (3:00)
+03. Curtis Mayfield - Move On Up (2:46)
+04. Booker T. & the M.G.'s - Green Onions (2:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB5FAF26A16672B6538858F6F627C9B1CB9D37D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721263   (110114) от 06.05.2024
+
+Marvel83' - 5th Element (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Retrowave, Synthwave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For You, Luisa [00:04:58]
+02. Welcome to My World [00:05:34]
+03. Those Kind of Memories [00:04:44]
+04. Ghost of Ayutthaya [00:04:16](   Читать дальше...   )Жанр: Retrowave, SynthwaveПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47CD6F97259C7D5985DFD0F1DAF6A9C8EE4A4B5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721352   (110115) от 06.05.2024
+
+Paul Jabara - The Third Album (1979) LP [MP3|320 Kbps] <Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй трек от Donna Summer01. Medley: Disco Wedding - Honeymoon (In Puerto Rico) - Disco Divorce (14:05)
+02. Medley: Foggy Day - Never Lose Your Sense Of Humor (9:47)
+03. Just You And Me (5:11)Жанр: Disco, Funk SoulПродолжительность: 00:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881796472A8B2231845BE1B427BD9E9A47F8F894
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720854   (110116) от 06.05.2024
+
+The Head Hunters Blues Band - Back from the Delta (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who's Coming Down the Road (3:41)
+02. Just Can't Keep from Crying (3:30)
+03. Bye Bye Baby (4:18)
+04. I'll Get Along Some How (2:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA43D508296C1C8E7AC86695F1D084638FC8373
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721317   (110117) от 06.05.2024
+
+Spacebirds - Singles Team (Singles Collection 2008-2023) (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desafio de Neon (Extended Version) (7:05)
+02. Spaceship Lab (Cosmo Day Mix 2022) (4:40)
+03. Princess Of Venus (R-Mix 2021) (7:28)
+04. Cosmonaut Dreams (Space Day Version) (7:50)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 02:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D564A46E86A197D00900EE1FE0837D7C788984
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721275   (110118) от 06.05.2024
+
+VA - Futurenow (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Chillwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exemia & Thermal Noise - Insert Memory Disk (5:19)
+02. Lexinton Tales - Dead End (3:48)
+03. GlitchBay - Simulation (3:22)
+04. Blind Cobra - Viper Vice (2:57)(   Читать дальше...   )Жанр: Synthwave, Retrowave, ChillwaveПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F97856096F913AA6299A6F52D564C8C9D65A53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721026   (110119) от 06.05.2024
+
+Dug Masters - Digital Variety (2022) [FLAC|Lossless|WEB-DL|tracks] <Spacewave, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iron Eagle (5:42)
+02. Eva (4:15)
+03. Seas of Saturnia (5:16)
+04. Cosmovision (5:28)(   Читать дальше...   )Жанр: Spacewave, SynthwaveПродолжительность: 01:04:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12E166F86A1724C02D19EB9F16B5464F8B04B9EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720852   (110120) от 06.05.2024
 
 Judith Hill - Letters from a Black Widow (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -469,190 +657,6 @@ Lares - Et in Arcadia Ego (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Blac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0F46113A7825E28C41994AACC346A0D3F6890A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720803   (110139) от 05.05.2024
-
-n-Track Studio Suite 10.1.0.8659 (x32) Portable by 7997 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110139.jpg" />
-</div>
-
-
-###  Подробнее
-
-n-Track Studio — кроссплатформенный аудиоредактор с возможностью многодорожечной записи звука (цифровая звуковая рабочая станция), разработанный итальянской компанией n-Track Software. Программа поддерживает неограниченное число аудио- и MIDI-дорожек и позволяет использовать различные виртуальные инструменты (VST, VST3, AU и др.). Имеет нативную версию компьютеров (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DF4E91B3C1DBB5EA368AF7C0EAE5FF07C5F7E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720951   (110140) от 05.05.2024
-
-Mind's Mirrors - Forever Is Not Nearly Long Enough (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110140.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - Glacial Extinction (feat. Christian Mnzner) (01:09)
-2 - Mechumanity (feat. Christian Mnzner) (05:17)
-3 - Counting on Me (05:59)
-4 - Deadline (feat. Ron Jarzombek) (04:36)(   Читать дальше...   )Жанр: Progressive Metal, Heavy MetalПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3046F73AAF3FA5A74ECE2BA680A0B58787288C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720929   (110141) от 05.05.2024
-
-НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 7-й матч) Торонто Мэйпл Лифс - Бостон Брюинз (04.05.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110141.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 мая 2024, воскресенье. 03:00 МСК. 1/4 финала - Восток. 7-й матч. Стадион: Ти-Ди Гарден (Бостон, США), 17 850 зрителей (100% при вместимости 17 850)
-Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Линейный: Мэтт Макферсон (Энтигониш, Канада); Линейный: Джонни Мюррей (Бипорт, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A80293267A82FA086614B91D3BCEA133089BFFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720777   (110142) от 05.05.2024
-
-Allcharters - AllCharters (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня подкроватных монстров [00:03:17]
-02. Лжизнь [00:03:50]
-03. Лето [00:04:04]
-04. Прятки [00:04:00](   Читать дальше...   )Жанр: Nu Metal, RapcoreПродолжительность: 00:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7CE7B779807CBEF70C084011E1E309081B06C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720900   (110143) от 05.05.2024
-
-The Monarch - A Moment to Lose Your Breath (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For My Own Being [00:02:32]
-02. Man-Made-Chaos [00:06:11]
-03. Imperil By My Hand [00:06:25]
-04. When Death Finds You [00:06:44](   Читать дальше...   )Жанр: Melodic Death Metal, Metalcore, Alternative MetalПродолжительность: 01:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C5C51DE1B1AD166E550FAB9386E2F56FB5E42F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720607   (110144) от 05.05.2024
-
-Yasru - Bilinmeze (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dünya [00:08:05]
-02. Kozmik Yolculuk [00:05:36]
-03. Gün Batımında [00:05:42]
-04. Bilinmeze [00:06:56](   Читать дальше...   )Жанр: doom metal, FolkПродолжительность: 00:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC344225B0C2053894779800C92ED2AFBC66D9AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720917   (110145) от 05.05.2024
-
-Juke Cove - Tempest (2024) [FLAC|Lossless|WEB-DL|tracks] <stoner, doom, psych, punk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Path [00:05:04]
-02. Hypnosis [00:04:54]
-03. Wait [00:06:37]
-04. Confined [00:05:16](   Читать дальше...   )Жанр: stoner, doom, psych, punkПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A377CDCA79EE66C57DC775EA3B579749F127CE5A
 ```
 
 

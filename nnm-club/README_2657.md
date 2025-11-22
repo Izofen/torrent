@@ -1,3 +1,51 @@
+###  Публикация: 1783328   (69830) от 05.03.2025
+
+Футбол. Лига Чемпионов 2024/2025. 1/8 финала. Обзор матчей (04.03.2025) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол.Лига Чемпионов 2024/2025. 1/8 финала. Обзор матчей (04.03.2025)Телекомпания: ОккоЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 00:24:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5F429F05CE5D4154E90EFDC0A8B40819AF8803
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783250   (69831) от 05.03.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Free Deco Geometry - 3D Lettering - 16762 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 900 x 900
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F6117DD34D74770DF6BD9183BD6B61447C9AFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783226   (69832) от 05.03.2025
 
 Dommin - The Martyr (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
@@ -630,59 +678,6 @@ Unto Others - Strength (2021) [FLAC|Lossless|image + .cue] <Gothic Metal, Post-P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:026481824F223C3BF701ED4346C70C31D8486CCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782964   (69856) от 03.03.2025
-
-Joey DeFrancesco, Massimo Farao - Estate (2008) Zucca Records [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estate [13:41]
-02. On a Clear Day [9:04]
-03. Fly Me to the Moon [11:10]
-04. Voyage [9:47](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 01:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A68152C5F5D964226C70871A3E730A2677F9FE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782902   (69857) от 03.03.2025
-
-Thrashfire - Studio Albums (3 releases) (2011-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thrashfire - турецкая метал-группа, основанная в январе 2006 года2011 - Thrash Burned The Hell
-2015 - Vengeance of Fire (EP)
-2019 - Into the ArmageddonЖанр: Thrash MetalПродолжительность: 01:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E025A726FE4BED589DE7273F818F6C3BE46AC8
 ```
 
 

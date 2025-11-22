@@ -1,3 +1,30 @@
+###  Публикация: 1802365   (14400) от 16.06.2025
+
+Kris Cayden - Stranger Than Fiction (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dubstep>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Paranormal Summer [1:07]
+02 - Love Is On Fire [4:39]
+03 - Wake [3:59]
+04 - Ghost [3:39](   Читать дальше...   )Жанр: Electronic, DubstepПродолжительность: 01:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD03E61DD9C470987F30293922A9B964E82A1221
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802341   (14401) от 16.06.2025
 
 VA - Dancefloor Sessions, Vol. 01 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -643,30 +670,6 @@ magnet:?xt=urn:btih:AB57FC53187BEDB4518911EA06E412E279A27351
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F743BD27A2EDAF9ADED381972CD63F793D1442B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802369   (14426) от 16.06.2025
-
-Формула 1. Сезон 2025. Этап 10. Гран-при Канады. Гонка (15.06.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14426.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 июня 2025 воскресенье. 21:00 МСК этап 10, Монреаль. Арена: Автодром имени Жиля Вильнёва. Гран-при Канады. Гонка (70 кругов)Телекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 02:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F54BFE58C0EBAD21AEC2FDA27597F77ED8932F
 ```
 
 

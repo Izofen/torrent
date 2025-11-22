@@ -1,3 +1,189 @@
+###  Публикация: 1735429   (106941) от 08.07.2024
+
+Triddana - Breaking From The Fold (2024) [MP3|320 Kbps] <Celtic Folk, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking From The Fold (04:02)
+ 02. Wasted Paradise (04:24)
+ 03. The Ground Of The Fallen (04:04)
+ 04. Son Of Your Deeds (04:40)(   Читать дальше...   )Жанр: Celtic Folk, Power MetalПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:327A822C65F7B1E0BF1D8BB7ABFF3B9A828217BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735383   (106942) от 08.07.2024
+
+Duran Duran - Meet El Presidente (1987) Remaster, 2024, Parlophone Records [FLAC|Lossless|WEB-DL|tracks] <Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet El Presidente (Single Remix) [00:03:43]
+02. Vertigo (Do the Demolition) [00:04:44]
+03. Meet El Presidente [00:04:18]
+04. Meet El Presidente (Meet El Beat) [00:05:33](   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCBFABC3DB26B64E42F1BA08EDCE2230E62A0363
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735232   (106943) от 07.07.2024
+
+Nitetime Drive - NTD 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awaken (4:02)
+02. Outside (3:09)
+03. CIWYW (3:54)
+04. Take A Little Drive (4:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:269F8227D908C2B5BF0C0AAC546784DBEFA0FFAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735230   (106944) от 07.07.2024
+
+Count Pariah - Count Pariah (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prison I Call Home (3:28)
+02. Untouchable (4:20)
+03. Hate (3:26)
+04. Unknown (4:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D8C8C3C132C4451AA044FF2D57487774B12F9D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735134   (106945) от 07.07.2024
+
+Duel - Breakfast (with) Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Psych, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Moonlight (3:46)
+02. Satan's Invention (3:55)
+03. Chaos Reigns (3:52)
+04. Fallacy (5:06)(   Читать дальше...   )Жанр: Heavy Metal, Psych, Stoner RockПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88447E40882F97B1DDB53B22DB84277255783DFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735270   (106946) от 07.07.2024
+
+The Dreaded Laramie - Princess Feedback (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mess [00:03:20]
+02. Breakup Songs [00:02:47]
+03. Life Is Funny [00:02:41]
+04. Happiness [00:02:12](   Читать дальше...   )Жанр: Pop-Rock, Female VocalПродолжительность: 00:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC0F2529569D63712245364F706C16989963D47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735319   (106947) от 07.07.2024
+
+Анастасия Галкина, Екатерина Ладатко | Разгадка исчезновения динозавров. Расследование в меловом периоде (2021) [MP3, Мария Лутовинова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однажды во время экскурсии в палеонтологическом музее волшебная книга перенесла близнецов Риту и Никиту и эрудированного попугая Кориандра в поздний меловой период. Близнецов ждут незабываемые приключения! Они поиграют в мяч с пахицефалозаврами, станут свидетелями сражения мозазавров, понаблюдают за трицератропсами, спасут детёныша тираннозавра, спрячутся от дождя (   Читать дальше...   )Жанр: детские приключения, книги о животных, энциклопедииИздательство: CLEVERПродолжительность: 00:22:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFAA707E7DECA054023E64C14C47AC4C5EE62696
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735320   (106948) от 07.07.2024
 
 Yellow House - Psalms of Yellow House (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dream Pop>
@@ -491,195 +677,6 @@ Scarlet Bandit - Lose Your Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D4B2A4DA15C1BADFAC4E70C34CB482BCD11D5FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735235   (106967) от 07.07.2024
-
-Payback - Never Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destiny (3:18)
-02. End of the World (5:30)
-03. Freedom Call (3:40)
-04. Get Out (3:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA168B603675973CC623890454F19BCCF783450
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735185   (106968) от 07.07.2024
-
-Sunshine Makers - Sunshine Makers (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Away [00:03:33]
-02. The Dream [00:03:01]
-03. Got to be Good [00:02:33]
-04. Nothing Lasts Forever [00:03:09](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18D29F14D6B7CB7D8042D3C8F2E469FF7BEC0F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735243   (106969) от 07.07.2024
-
-Saltatio Mortis - Finsterwacht (2024) [FLAC|Lossless|WEB-DL|tracks] <Medieval Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finsterwacht 09:20
-02. Schwarzer Strand 03:44
-03. Vogelfrei 03:09
-04. Grimwulf (Interlude) 01:43(   Читать дальше...   )Жанр: Medieval Folk MetalПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7B911895CEFD2192345946D273F468D51F51C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735238   (106970) от 07.07.2024
-
-Shattered - Darker Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost Town (5:25)
-02. Deceit (5:11)
-03. Rising Tide (4:39)
-04. World Comes Down (5:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08CEE36D58F34E18A33BA81CBD980CE29F9DFEEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735236   (106971) от 07.07.2024
-
-Pyrograph - Pyrograph (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ram (5:26)
-02. Hollywood (4:29)
-03. Third Leg (4:40)
-04. Mariana (4:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22EC50BD17CC0C790552CE29989A1190E15B917
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735231   (106972) от 07.07.2024
-
-Kung Fu Overdrive - Kung Fu Overdrive (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to the Dojo (4:33)
-02. Hanging onto Nothing (3:57)
-03. Bad Super Charger (4:59)
-04. Big Trouble (4:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3092789CFA00638C8B0E1C316771A337795A4B6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735190   (106973) от 07.07.2024
-
-Fem Snabba - Pupiller (серия "Другие восьмидесятые") (1988) Vinyl, LP, Album [MP3|320 Kbps] <New Wave, Post-Punk, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saknad
-02. Dagar Som Pupiller
-03. Jord Och Stad
-04. Gnistrande(   Читать дальше...   )Жанр: New Wave, Post-Punk, Pop RockПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F8D495C94D42E2F14D9A945FF06EA73517A85C
 ```
 
 

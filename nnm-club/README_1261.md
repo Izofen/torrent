@@ -1,3 +1,57 @@
+###  Публикация: 1768256   (33139) от 24.12.2024
+
+Sunny Bleau And The Moons - Bag of Tracks (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little by Little (Live) (5:47)
+02. Vegas Blues (Hey, Mister Rich Man) (3:00)
+03. Everybody Wants to Rule the World (4:08)
+04. Can't Turn Down Rock and Roll (3:35)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F6DF86F60927ADE4B18AD4627ACAA254E70530
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768167   (33140) от 24.12.2024
+
+La Blues Company - La Blues Company (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pottoko Shuffle (3:22)
+02. Long Road Blues (4:23)
+03. I Need You By My Side (3:19)
+04. New Early In The Morning (3:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0DDAB7123CCDD073FB64747DF4840E236349844
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768302   (33141) от 24.12.2024
 
 The Dirt Whisperers - The Dirt Whisperers (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -597,54 +651,6 @@ magnet:?xt=urn:btih:D6A1F6D0C6A7D4D9A3A4AE150065FAF7B50056A9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D169DFEB04046AD058975D05F3390DF5B2B888A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768095   (33165) от 24.12.2024
-
-Corr Database 2024 (2023) [En] (2024) License
-
->>Win Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая база данных Corr 2024 - это большая коллекция партий по переписке ChessBase за период с 1804 по 2023 год. С более чем 80 000 турниров и более чем 2,2 миллиона партий по переписке Corr 2024 - обязательная база данных для всех любителей шахмат по переписке. Но база данных Corr очень популярна даже среди многих гроссмейстеров и тренеров по шахматам, поскольку (   Читать дальше...   )Тип издания: LicenseРазработчик: ChessBase GmbHЖанр: ШахматыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B50A359E1F1B562DFEF23F80ED00A15D10DBA7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768168   (33166) от 24.12.2024
-
-Ночью у моря одна / Bamui haebyunaeseo honja / On the Beach at Night Alone (2017) BDRip [H.264/720p] [KOR / RU Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Актриса Ён Хи, переживающая последствия романа с женатым кинорежиссёром, сбегает в Гамбург. А когда она возвращается в Корею и встречается с друзьями, следуют шокирующие признания...Производство: Южная Корея, Германия / Jeonwonsa FilmЖанр: драмаРежиссер: Хон Сан-суВ ролях: Ким Мин-хи, Со Ён-хва, Чон Джэ-ён, Мун Сон-гын, Квон Хэ-хё, Сон Сон-ми, Ан Джэ-хон, Хан Джэ-и, Кан Тхэ-уПеревод: субтитрамиЯзык озвучки: корейскийСубтитры: русские (Крестьянин и Поэт)Продолжительность: 01:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F69574DCACACC67FCE02718A3F49275752F1D8
 ```
 
 

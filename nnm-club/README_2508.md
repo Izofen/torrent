@@ -1,3 +1,57 @@
+###  Публикация: 1802896   (65956) от 20.06.2025
+
+VA - Armin van Buuren - A State Of Trance 1230 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Fax – To The Ground (Matt Fax Doppelgänger Mix)
+02. ILLENIUM & HAYLA – In My Arms (KREAM Remix)
+03. Weekend Players – Into The Sun (Progressive Pick)
+04. Rivo & North – Stay Here (Leblanc Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B361D814E8B75C3763A2018032C9D881A612DA30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802922   (65957) от 20.06.2025
+
+Haim - I quit (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Gone
+02 – All over me
+03 – Relationships
+04 – Down to be wrong(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4E7AD9A58E34DA3D3847841EFFA6F8CC401115
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802949   (65958) от 20.06.2025
 
 Soft Cell - Non-Stop Ecstatic Dancing (1981) Deluxe Edition, 2025, UMC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, Electronic, Powerpop>
@@ -637,60 +691,6 @@ Electric Church - Used and Abused (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9371E5D9F85E2406F2DB16C13C7A6767006F57D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802795   (65982) от 19.06.2025
-
-Around The World in 80 Days - Euphoria (2014) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Rock, Ambient, Space-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Last War [5:40]
-02 - Shock [3:15]
-03 - Gravity [5:40]
-04 - Racing The Light [3:35](   Читать дальше...   )Жанр: Post-Rock, Ambient, Space-RockПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483A4250A786C69787934AC01BC166BA2F6CB072
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802658   (65983) от 19.06.2025
-
-Avenged Sevenfold - Live At The GRAMMY Museum® (2017) Live [MP3|320 Kbps] <Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Opening (Live At The GRAMMY Museum®) [1:14]
-02 - Introduction To As Tears Go By (Live At The GRAMMY Museum®) [0:13]
-03 - As Tears Go By (Live At The GRAMMY Museum®) [3:17]
-04 - Introduction To Hail To The King (Live At The GRAMMY Museum®) [0:30](   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67DDD6C2E807D5B0F35EF7021675483FE8519AE
 ```
 
 

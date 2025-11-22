@@ -1,3 +1,30 @@
+###  Публикация: 1808154   (10582) от 23.07.2025
+
+VA - Uplifting Only Top 15: July 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etasonic - Nature's Garden (Intro Mix) [5:52]
+02. Phil Dinner - The Battle (Extended Mix) [7:14]
+03. Tycoos & Sandro Mireno & Saphron - Lost At Sea (Extended Dub) [5:47]
+04. blurrrSAMA & REX.W - 18TH (REX.W Extended Remix) [6:35](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:48 :10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F983E56B10DF5BB4BBAD2CF671DF1F0AB808D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808183   (10583) от 23.07.2025
 
 Леонид Еленин | Кометы. Странники Солнечной системы (2023) [MP3, Юрий Белик]
@@ -611,30 +638,6 @@ magnet:?xt=urn:btih:1ECE7DF2346E61B108E336BAFF9F0F112AB0DD1C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B580E48BEA653D5585F13E16D7C640E232FC5BBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808280   (10608) от 23.07.2025
-
-PDF-XChange PRO 10.6.1.397 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_10608.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF-XChange Pro — универсальное решение для работы с PDF. Это пакет из трёх лучших приложений от Tracker Software: PDF-XChange Editor Plus, PDF-Tools и PDF-XChange Standard. При помощи PDF-XChange Editor Plus вы сможете создавать, просматривать, а также редактировать изображения и файлы PDF. PDF-Tools — мировой лидер в создании и манипуляции PDF-файлами. Благодаря (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EAAE77460B9B59857E0349738548987A647B1FF
 ```
 
 

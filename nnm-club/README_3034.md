@@ -1,3 +1,195 @@
+###  Публикация: 458916   (94738) от 27.02.2012
+
+Gaudium - Session Of Progression (2011) [FLAC|Lossless]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undercover (7:50)
+02. High On Life (7:59)
+03. I've Got Something (7:08)
+04. In Between (7:02)
+05. When The Sun Rises (10:00)
+06. Blue Lights (8:34)
+07. Searching (6:26)
+08. Tekknobonk (7:41)
+09. A Smile On Your Face Makes You More Beautiful (8:41)
+10. Chasing Shadows (7:16)2011Жанр: Psychedelic / ProgressiveПродолжительность: 01:18:37
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458837   (94741) от 27.02.2012
+
+Lange & Audrey Gallagher - Our Way Home (2012) HDRip [1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданный официальный клип на композицию Lange & Audrey Gallagher - Our Way Home. Свежак!!! ))Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 00:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F276F009004B571E2D4203BBE8B23B92AC6150F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821983   (94743) от 04.10.2025
+
+Ты — мне, я — тебе (1976) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь братьев-близнецов Кашкиных сложилась по-разному: один живет в столице и вполне преуспел в качестве модного... банщика. Другой же так и остался в родном селе простым инспектором рыбнадзора. Но вот случается беда, и столичному счастливцу приходится заменить брата на его посту...Производство: СССР / МосфильмЖанр: комедияРежиссер: Александр СерыйАктеры: Леонид Куравлёв, Татьяна Пельтцер, Алла Мещерякова, Светлана Светличная, Юрий Медведев, Валерий Носик, Роман Ткачук, Евгений Шутов, Илья Рутберг, Валентина КареваСубтитры: отсутствуютПродолжительность: 01:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641A79A749B77375A946B655F15EA01A48E64F9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459033   (94744) от 27.02.2012
+
+Massive - 1 More Time (2012) [MP3|320 кб/с]<Psychedelic/ Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superjam [05:59]
+ 02. One More Time [07:26]
+ 03. Rising Sunshine [07:46]
+ 04. Wanna Do It Now [07:41]
+ 05. Saving Power [07:13]
+ 06. Dangerous Escape [06:39]
+ 07. Party At Boys [07:03]
+ 08. DJ.DJ [07:19]
+ 09. Good Morning Everyone [07:20]2012Жанр: Psychedelic/ Full OnПродолжительность: 01:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D208C35AA954FFC47DFDCCBC1C7EDAD3535DEFC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821969   (94745) от 04.10.2025
+
+Return to Castle Wolfenstein (2020) [Ru/Multi] (5.2-final-1/dlc) License/Mod GOG [RealRTCW]
+
+>>Win Игры
+>>AddOn/DLC/Mod для Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94745.jpg" />
+</div>
+
+
+###  Подробнее
+
+RealRTCW - глобальная модификация для оригинального Return To Castle Wolfenstein. Игра полностью повторяет все аспекты геймплея классического шутера, однако привносит множество улучшений и различных новшеств, среди которых обновленный графический рендер, расширенный арсенал вооружения, реалистичная физика пушек и текстуры высокого разрешения.Тип издания: LicenseЖанр: Экшены, От первого лицаЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EB2843BD1EC484CE0003C2D843B3BB719FBBB65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821966   (94747) от 04.10.2025
+
+Бродяга Кэнсин / Самурай Икс / Rurouni Kenshin: Meiji Kenkaku Romantan / Samurai X (1996-1997) DVDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 2 из 3, серии 1-35 из 35) СТС [hand made Upscale AI]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Япония, вторая половина XIX века. Только что закончилась Гражданская война, в которой проимперская партия победила сторонников сёгуна. Постепенно начинается переход жизни страны на западный лад. Молодой воин Кэнсин Химура по верой и правдой служил императору, но ему надоело убивать, и он покинул государственную службу. Теперь он носит меч с заточкой на обратной стороне (   Читать дальше...   )Производство: Япония / Aniplex, Gallop, Shueisha, SME Visual Works, Studio DEENЖанр: аниме, мультфильм, боевик, комедия, история, мелодрамаРежиссер: Кадзухиро Фурухаси, Юдзи Мицуя, Хироси МориокаАктеры: Маё Судзукадзэ, Мина Томинага, Мики Фудзитани, Ёку Сиоя, Каори Юаса, Норико Намики, Норихиса Мори, Таики Мацуно, Кацуя Сига, Юки НакаоПеревод: Дублированный (СТС)Язык озвучки: Русский, ЯпонскийСубтитры: русские, английскиеПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C6E26D236450D9305FF4751813860C86B24BAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458733   (94748) от 27.02.2012
+
+Eboxyde - Bonus Tracks (2012) [MP3|320 кб/с]<Dubstep, House, Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I am a genie in the bottle (03:22)
+02. Mushroom miss (03:14)
+03. Gossip (Missy Elliott) (04:28)
+04. The Thing (04:14)
+05. Wires (03:41)
+06. Heart attack (04:01)
+07. Tox (04:05)
+08. Arch (02:37)2012Жанр: Dubstep, House, Drum & BassПродолжительность: 00:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99417221D2150ACF020286ADA59891F2E84D5A69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821999   (94749) от 04.10.2025
 
 Плохие парни 2 / The Bad Guys 2 (2025) BDRemux [H.264/1080p]
@@ -521,229 +713,6 @@ magnet:?xt=urn:btih:C6FB6184EF1382C5248FF6F93007AE4DF2AC6646
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C84CE9AD9F0BC2F4190E9D3A91344555B2CB3659
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458990   (94816) от 27.02.2012
-
-Rocky - Keyboard Wipeout (2011) [FLAC|Lossless]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocky - Cutback (9:48)
-02. Rocky - Priority Reboot (6:55)
-03. Rocky - Keyboard Wipeout (10:41)
-04. Rocky & Ace Ventura - Serotonin Overdose (8:19)
-05. Son Kite - Other Side (Rocky Remix) (10:18)
-06. Rocky & Sphera - Echo (9:45)
-07. Motion Drive - Dropout (Rocky Remix) (9:00)
-08. Rocky - Porcupine Juggle (10:23)
-09. Rocky - Circulation (4:26)2011Жанр: Psychedelic / ProgressiveПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459047   (94824) от 27.02.2012
-
-Газета | Советчица. Приусадебное хозяйство [Украина] №1 (январь 2012) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94824.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Приусадебное хозяйство» от "Советчицы" - толковый помощник по дому, саду, огороду, которому известны все тонкости выращивания, обрезки, поливки, ландшафтного дизайна.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DAC514C5BA0E5892F2C0939F57870F6C794EBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456129   (94827) от 27.02.2012
-
-Dir en Grey - The Rose Trims Again (2008) DVD9
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт одной из самых популярных японских рок-групп
-без комментариев, это просто надо видеть и получать удовольствиеSA BIR
-OBSCURE
-GRIEF
-AGITATED SCREAMS OF MAGGOTS
-DISABLED COMPLEXES
-Merciless Cult
-蜷局
-艶かしき安息、躊躇いに微笑み
-AGITATED SCREAMS OF MAGGOTS -UNPLUGGED-
-CONCEIVED SORROWЖанр: JRockАктеры: Kyo · Kaoru · Die · Toshiya · Shinya
-http://ru.wikipedia.org/wiki/Dir_en_greyПеревод: ОтсутствуетПродолжительность: 01:48:05
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459003   (94835) от 27.02.2012
-
-VA - Dubstep Boom Vol.2 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flux Pavilion - Haunt You
-02. Breakage - Fighting Fire (feat Jess Mills)
-03. Dj.automix – Calvin Harris - Feel So Close (Nero Remix)
-04. Karton - Chase It High (Original Mix)
-05. Eva – Body On Mine (Laze & Royal Electro Dubstep Remix)
-06. Freestylers - Cracks (Flux Pavilion remix)
-07. BreakNoise – Re-Think (Arkasia Remix)
-08. Evol Intent Feat Jackie B - Under (Bro Safari Remix)
-09. Spor - Pacifica
-10. Chase & Status - Heavy (vs Dizzee Rascal)(   Читать дальше...   )2012Жанр: DubstepПродолжительность: 01:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A424BE65B1C3A19DB55B21DE723919BD9B48BD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459169   (94841) от 28.02.2012
-
-VA - Copy Kills (2011) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Day.Din - Copy Kills (original mix) 06:37
-02. Twins - Speaking Mantra (original mix) 06:54
-03. Interactive Noise - Vienna 06:51
-04. Flegma - Oriented 07:14
-05. Virtual Attack vs Underbeat - 2nd Show 07:07
-06. Liftshift - Ritual Energy 08:49
-07. Eight Sin - Star Of Picker 06:38
-08. Ephedrix - Mexican Wave 07:11
-09. Ace Ventura - Baby Boom (original mix) 09:43
-10. Helber Gun - Swing Drop 07:08(   Читать дальше...   )2011Жанр: Psychedelic / Full On, Psy-ProgПродолжительность: 02:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96D818BA0BE3F51CADCC05F28721CAFDA09840B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459075   (94845) от 28.02.2012
-
-VA - Special Places (2012) [MP3|320 кб/с]<Ambient, Modern Classical>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K.D. Expression - Alpae-3717 (4:44)
- 02. Cygna - Camaras De Lamento (7:14)
- 03. Chronos - Dandelions As Memory (8:56)
- 04. Irukanji feat. JazzyFlute - Out From Little Box (AstroPilot Edit) (6:26)
- 05. Ambient Intelligent Application - Via Lactea (AstroPilot Edit) (8:13)
- 06. Rabitza - Port (6:12)
- 07. AstroPilot - Svoboda (5:13)
- 08. Access To Arasaka - AUG (5:32)
- 09. Field Rotation - Disappear (7:14)
- 10. Nexar - Jewel (AstroPilot Edit) (5:21)(   Читать дальше...   )2012Жанр: Ambient, Modern ClassicalПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30931CAFA318942D6F304898B88C50E086281C08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459502   (94860) от 28.02.2012
-
-Billie Holiday - Easy To Love (2009) [FLAC|Lossless]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laughing at life (2:59)
-02. St. Louis blues (2:56)
-03. All of me (3:00)
-04. Am I blue ? (2:53)
-05. God bless the child (2:58)
-06. Gloomy sunday (3:14)
-07. Trav'lin' light (3:17)
-08. Do nothing 'till you hear from me (3:28)
-09. My old flame (3:02)
-10. He's funny that way (3:16)(   Читать дальше...   )2009Жанр: Jazz, Vocal JazzПродолжительность: 02:34:53
-
-## Скачать торент
-```bash
-нет
 ```
 
 

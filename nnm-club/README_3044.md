@@ -1,3 +1,209 @@
+###  Публикация: 465207   (96032) от 09.03.2012
+
+Myon and shane 54 - International departures 119 (2012) [MP3|320 кб/с]<Trance, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond feat Zoe Johnston – Love Is Not Enough
+ 02. Rex Mundi – The Black Hole (Original)
+ 03. Rave Channel – Illusion (Original)
+ 04. Jaytech – Atlantic
+ 05. Ivan Gough & Feenixpawl feat Georgi Kay – In My Mind (Axwell remix)
+ 06. Juventa – Land Of Far Expectations
+ 07. Emma Hewitt – Colours (Cosmic Gate remix / MS54 re-dub)
+ 08. Oliver Smith – New Dawn
+ Track Of The Moment:
+ 09. Myon & Shane 54 feat Aruna – Helpless (Alexander Popov remix)(   Читать дальше...   )2012Жанр: Trance, Progressive HouseПродолжительность: 00:58:12(1 file)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908C7842400006E33A33C52C7DCD479D383592B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464204   (96033) от 09.03.2012
+
+VA - Greenosophy (2012) [MP3|~237 кб/с (V0)]<Ambient , Downtempo , Electronic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mnnsk & Mizoo feat. Ana G”ldin - Initial 04:36
+ 02. Rildrim - Tear-Blind Eyes 09:44
+ 03. Liquid Stranger - Minimum 06:44
+ 04. Sesen - Emerge 08:20
+ 05. Cell - Idea Spiral (Ozora Festival 2011 Live Edit) 12:05
+ 06. Ajja - Nubian Sandstone 06:14
+ 07. Tripswitch - Subzero 08:54
+ 08. Solar Fields - Cobalt 2.0 09:15
+ 09. Miktek - Flying Dots 06:52
+ 10. James Murray - Folding Pattern 05:26(   Читать дальше...   )2012Жанр: Ambient , Downtempo , ElectronicПродолжительность: 01:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0074188B6297D246CCCF51134D0B185CBF64B66E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464865   (96034) от 09.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 61
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96034.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 61
+Название: Desktop Wallpapers Pack 61
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х1024
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:538F42E4878A650DC7D6987711F9CD6B33634943
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465048   (96036) от 09.03.2012
+
+[Wallpapers] Wallpapers Mix 25 (1600x1200-7002x5050)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C60840CAA5EB9B2EA72F35A334D25BF6E1A4B2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464522   (96038) от 09.03.2012
+
+Symphonix - The Usual Suspects Remixes (2011) [MP3|320 кб/с]<Psy-Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphonix - Downtown (Nok Remix) 07:22
+02. Symphonix - Sexy Dance (Moon. DJ Fabio Remix) 07:46
+03. Symphonix - True Reality (Interactive Noise Remix) 07:03
+04. Symphonix - Sexy Dance (Ritmo remix) 08:12
+05. Symphonix - True Reality (Vaishiyas remix) 05:37
+06. Symphonix - Ask For Permission (Phaxe remix) 06:24
+07. Symphonix and Venes - True Reality (Haldolium remix) 07:53
+08. Symphonix - Dirty Minds (Osher remix) 08:012011Жанр: Psy-ProgressiveПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C175591FCACFDA02112B0CA4C1FEBA129CA16320
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465111   (96041) от 09.03.2012
+
+Астон Мартин - Триумф инженерной мысли / Aston Martin - Victory by design (2005) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основоположниками марки «Aston Martin» называют Лайонела Мартина и Роберта Бамфорда, которые в 1914 году в лондонском районе Кенсингтон построили легкий спортивный автомобиль с 1.4-литровым двигателем «Ковентри-Симплс» (Coventry-Simples) на шасси итальянского легкового «Изотта-Фраскини» (Isotta Fraschini). За год до этого на автомобиле «Зингер-10» (Singer) Мартин одержал победу в местных гонках на холме Астон Клинтон (Aston Clinton), и в память об этом событии новую машину назвали «Астон Мартин».Жанр: ТелепередачаПеревод: Профессиональный (одноголосый)Продолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A205DE13D3902896CABE467E25B67A88784DC2C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465103   (96043) от 09.03.2012
+
+AFFKT - Punto 0 (2012) [MP3|320 кб/с]<Minimal,Tech House,Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Affkt - Intro Feat Truffle (Original Mix) (02:08)
+02. Affkt - Bruminha (Original Mix) (04:26)
+03. Affkt & Mathias Kaden - Kadenzaffkt (Original Mix) (05:55)
+04. Affkt - Wichy Interlude (Original Mix) (00:26)
+05. Affkt - Vainilla & Guayaba (Original Mix) (02:44)
+06. Affkt - Grandiosa (Original Mix) (04:28)
+07. Affkt & dOP - El Flautista (Original Mix) (04:40)
+08. Affkt & Sutja Gutierrez - Nuvo (05:54)
+09. Affkt & Analog People In A Dig - Bonaire (06:06)
+10. Affkt - Joyvan Interlude (Original Mix) (00:22)(   Читать дальше...   )2012Жанр: Minimal,Tech House,Deep HouseПродолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E597C66839AA0E9D031D80E72769FDEE8D05928C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465379   (96044) от 09.03.2012
 
 [Wallpapers] HD Разное ч.46
@@ -518,202 +724,6 @@ magnet:?xt=urn:btih:72185CE6D257A894040D8B5101FAB031C43D1B2D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72E93A93385AB2D233285CD115F050E4D8F47106
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464949   (96089) от 09.03.2012
-
-Amaranthe - Amaranthine (2011) HDRip [720p]
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amaranthe (ранее известный как Avalanche) - это шведско-датская пауэр/мелодик-дет-метал-группа, сформировавшаяся в Швеции и Дании. Amaranthe - новый проект, в котором приняли участие Джейк Е. Лундберг (ex-Dream evil, Dreamland) и Олоф Мерк (Nightrage, Dragonland).
-Amaranthine - видеоклип на песню  с дебютного альбома Amaranthe (2011). Наслаждайтесь приятным женским вокалом и красотой вокалистки группы.Жанр: Melodic Metal,Modern MetalАктеры: AmarantheПеревод: ОтсутствуетПродолжительность: 00:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40881F7E02A3C1F303822AEA077B2CD1F8F70E5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465101   (96090) от 09.03.2012
-
-Gun Barrel - 2 альбома (2003-2007) [FLAC|Lossless]<Heavy-metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invasion Warning
-02. Front Killers
-03. Turn To Black
-04. Wanted Man
-05. The Redeemer
-06. Keep On Movin'
-07. Cheap, Wild & Nasty
-08. Brother To Brother
-09. Ghost Inside
-10. M.I.L.F.(   Читать дальше...   )2003-2007Жанр: Heavy-metalПродолжительность: 00:53:21
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464890   (96091) от 09.03.2012
-
-Дело техники (Выпуски 24-26) / The tech show (2012) DVBRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущий этой передачи главный редактор журнала «Популярная механика» Сергей Апресов представляет последние новости об открытиях, исследованиях, изобретениях и загадках науки.Жанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 01:06:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7270FB18ACCB7C0DED42E706ADE24CBCDE1638
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464882   (96093) от 09.03.2012
-
-[480x360] Резня / Carnage (2011) BDRip
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ссоры детей обычно заканчиваются оплеухами или шумными драками. У взрослых все гораздо хуже — их конфликты могут перерасти в настоящую войну. Задиры и задаваки Захари и Итан даже не подозревали, что натворила их школьная вражда. Сами того не желая, они разбудили древнего бога резни, который заставил расплачиваться за проделки мальчишек их родителей.Жанр: Драма, КомедияРежиссер: Роман ПоланскиАктеры: Джоди Фостер, Кейт Уинслет, Кристоф Вальц, Джон Си Райли, Элвис Полански, Элиот Бергер, Натан Риппи, Таня Лопер, Джули АдамсПеревод: ДублированныйПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465128   (96094) от 09.03.2012
-
-Исторический детектив. Книжная серия в 6 томах [2006 - 2008] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Валерио Манфреди. Башня одиночества
-Р. Мональди, Ф. Сорти. Imprimatur.
-Ариана Франклин. О чем рассказали мертвые
-
-Фиделис Морган. Графиня Эшби де ла Зуш
-Королевы-соперницы
-Неестественный свет
-Тщеславная мачеха2006 - 2008Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA6910CE93D972AC2D8C5EA69A1952C945CA2E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465257   (96095) от 09.03.2012
-
-VA - Mushroom Trance Vol 3 (1999) [FLAC|Lossless]<Goa Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96095.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Продолжительность - 01:17:45
-
- 1. Space Safari – Extended Sun 06:22
- 2. Lou Maximizer – A Good Bug Is A Dead Bug 06:36
- 3. Electric Universe – Meteor 06:54
- 4. Mittelstandskinder Ohne Strom – Unearth 08:12
- 5. D.I.M.O. & Michael Dog – Trip To Sha Ka Ree 08:59
- 6. Atmos – The Only Process 09:42
- 7. Sugar – Magic Void 08:29(   Читать дальше...   )1999Жанр: Goa TranceПродолжительность: 02:36:05
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465122   (96097) от 09.03.2012
-
-Альфа Ромео - Триумф инженерной мысли / Alfa Romeo - Victory by design (2003) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96097.jpg" />
-</div>
-
-
-###  Подробнее
-
-История знаменитой фирмы «Альфа-Ромео» началась в 1910 г. с организации на базе небольшого предприятия по сборке автомобилей, принадлежавшего французской компании «Даррак», фирмы АЛФА.
-Директор нового предприятия Уго Стелла спроектировал два новых мощных мотора для будущих автомобилей. Первой в производство пошла модель «24 НР» с «четверкой» рабочим объемом 4084 куб. см мощностью 42 л.с. при 2200 об/мин. Позже двигатель был форсирован до 45 л.с. «Альфа-24НР» достигала очень высокой для своего времени скорости – 100 км/ч. Параллельно построили 50 автомобилей модели «12НР» (поздняя версия «15НР») с двигателем объемом 2,5 л.
-Интересные фактыЖанр: ТелепередачаПеревод: Профессиональный (одноголосый)Продолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A7DA0FE0BBC7B7B621B9DB662EB21C781302A0
 ```
 
 

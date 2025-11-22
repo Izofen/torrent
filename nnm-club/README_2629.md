@@ -1,3 +1,57 @@
+###  Публикация: 1785546   (69102) от 19.03.2025
+
+Илья Казанцев - Скажи мне ангел (2025) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Актер [00:02:57]
+02 - Скажи мне ангел [00:04:01]
+03 - Роща [00:04:21]
+04 - Колокольный звон [00:03:41](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A2769F270A62C474453E28EC52D10CE34B3FC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786081   (69103) от 19.03.2025
+
+Anita O'Day - Live At Basie (1978) 2007, Ratspack Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Fall In Love [4:26]
+02. Honey Suckle Rose [4:56]
+03. It Don't Mean A Thing [5:02]
+04. Like Someone In Love [3:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C03EB73553C50E6E0971D1B9065F0128E248688
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786083   (69104) от 19.03.2025
 
 Wayne Shorter - Juju (1964) 2024, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -632,60 +686,6 @@ Obscura - A Sonication (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E725907E480184DAA1E530B2AE504EE638F15FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785954   (69128) от 18.03.2025
-
-The Bleeding (U.K.) - Studio Albums (4 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69128.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Bleeding - рок-группа из Великобритании (Лондон, Англия). Образована в 2010 году.2013 - Death Eternal (EP)
-2017 - Rites of Absolution
-2019 - Morbid Prophecy
-2023 - MonokratorЖанр: Death/Thrash MetalПродолжительность: 02:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F0AB573A9D22E875D2884DF5AD4A43741A36E1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785854   (69129) от 18.03.2025
-
-Heathen - Bleed the World (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Speed Thrash Metal, Technical Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - This Rotting Sphere (Live) [1:40]
-02 - The Blight (Live) [4:39]
-03 - Empire of the Blind (Live) [5:47]
-04 - Dying Season (Live) [5:44](   Читать дальше...   )Жанр: Speed Thrash Metal, Technical Thrash MetalПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E756CC631A93E64DD281003A4DE7C9F9781351B6
 ```
 
 

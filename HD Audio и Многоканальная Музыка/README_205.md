@@ -1,3 +1,111 @@
+###  Публикация: 1658993   (190636) от 10.09.2023
+
+OSI - Дискография (4 releases) (2003-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190636.jpg" />
+</div>
+
+
+###  Подробнее
+
+OSI — американская прогрессив-рок-группа, первоначально созданная гитаристом Fates Warning Джимом Матеосом в 2002 году.2003 - Office of Strategic Influence
+2006 - Free
+2009 - Blood
+2012 - Fire Make ThunderЖанр: Progressive MetalПродолжительность: 04:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA46E77299BC47155CC898F96B6AFAB5FA748A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658727   (190968) от 09.09.2023
+
+Mad Butcher - Metal Meat (1987) Reissue, 2021, Relics From the Crypt [FLAC|24/192|tracks|Vinyl-Rip] <Heavy, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190968.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Remember
+A2 Drivin' Drivin'
+A3 U Can't Stand It
+A4 Looser(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D73EF8AD4A278F145A7498DC4E472EC062CCE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658410   (190972) от 09.09.2023
+
+OOMPH! - Richter und Henker (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Industrial Metal, Neue Deutsche Härte>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wem die Stunde schlägt [00:05:04]
+02. Richter und Henker [00:04:37]
+03. Soll das Liebe sein? [00:04:11]
+04. Nur ein Mensch [00:04:14](   Читать дальше...   )Жанр: Industrial Metal, Neue Deutsche HärteПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68F2FEB897CB57B7F3D3E5AA91EB2A8C6FFF96E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012354   (191028) от 06.11.2022
+
+Peter Lipa - Moanin' (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_191028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Comes The Nights
+02. Got To Get You Into My Life
+03. Rain
+04. Tell All The World About You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00A2FC411DA26BC13261C2B0DA89B17E228C234
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658510   (191222) от 08.09.2023
 
 The Chemical Brothers - For That Beautiful Feeling (2023) [FLAC 24/44.1|WEB-DL|tracks] <Big Beat, IDM, Electropop>
@@ -587,114 +695,6 @@ Electric Light Orchestra - Eldorado (1974) (2022) [DSD 128|image+.cue (Vinyl-Rip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C7274A0D8310CC1689F5E60331B3A2A35F21212
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587012   (193218) от 29.10.2022
-
-Tiamat - Studio Albums (10 releases) (1990 - 2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death/Doom Metal, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tiamat — шведская группа. Существует с 1989 года, её основатель, вокалист, ритм-гитарист и автор песен Юхан Эдлунд остаётся её единственным постоянным участником. На ранних альбомах Tiamat исполняли дум/дэт-метал с гроулингом, но начиная с альбома Wildhoney 1994 года группа постепенно перешла к прославившему её более мелодичному жанру готик-метал с влиянием психоделического (   Читать дальше...   )1990 - Sumerian Cry
-1991 - The Astral Sleep
-1992 - Clouds
-1994 - WildhoneyЖанр: Death/Doom Metal; Gothic MetalПродолжительность: 11:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F942100F8234A7305D9FEF80789D38C2726AFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586896   (193257) от 29.10.2022
-
-VA - Keep On Playing/Играй еще (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. «Здравствуй, Песня» - Птица Счастья
-02. Эстрадно-симфонический Оркестр Центрального Телевидения И Всесоюзного Радио - День В Сентябре
-03. Алла Пугачева, «Аракс» - Скажи Мне Что-нибудь
-04. Ленинградский Концертный Оркестр - Утро (из к/ф Служебный Роман)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858BFC12A76C6E60593D994E5AA0078D63576A17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548510   (193411) от 24.10.2025
-
-Amorphis - Дискография (26 releases) (1991-2025) hand made [restored, declipped] [FLAC|44/16.1|tracks +.cue] <Progressive/Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_193411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amorphis — финская англоязычная метал-группа. Группа была основана в 1990 году Яном Рехбергером и Эсой Холопайненом. Группа неоднократно меняла звучание, и её музыка не укладывается в рамки одного жанра. Её первый альбом выдержан в стиле дэт-метал. Начиная со второго альбома группа соединила финскую народную музыку с дэт-дум-метал. На более поздних записях появилось (   Читать дальше...   )1992 - The Karelian Isthmus
-1994 - Tales from the Thousand
-1996 - Elegy
-1999 - Tuonela(   Читать дальше...   )Жанр: Progressive Metal, Melodic Death Metal, Folk MetalПродолжительность: 23:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8F9435EBC069394420658E09378068B6A0A680
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828332   (193427) от 24.10.2025
-
-Garmarna - Studio Albums (7 releases) (1993-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_193427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Garmarna — шведская фолк-рок-группа, основанная в 1990 году.1993 - Garmarna
-1994 - Vittrad
-1996 - Guds speleman
-1999 - VedergallningenЖанр: Folk RockПродолжительность: 05:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3339C8A594217714A1D05338E25254EFEA462313
 ```
 
 

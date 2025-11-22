@@ -1,3 +1,57 @@
+###  Публикация: 1756517   (39665) от 21.10.2024
+
+VA - Amsterdam After Disco (2024) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazibiza - Soul Cool (Original Mix) (4:48)
+02. Cheesecake Boys & Crazibiza & Belle - Good Life (Original Mix) (4:57)
+03. Westray - Last Night (Original Mix) (4:55)
+04. Crazibiza - Like A King (Original Mix) (5:00)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CD5BED667905FA1082CC0C35A661051E377579
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756233   (39666) от 21.10.2024
+
+Luttrell - Life at Full Speed (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When We First Met
+02. Life at Full Speed
+03. Make U Happy
+04. Sunshine(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E22F523825853600DA56C8590EBB3A3A3804AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756432   (39667) от 21.10.2024
 
 VA - Non-religious  Gospel music (2024) [MP3|320 Kbps] <Jazz, Blues>
@@ -594,57 +648,6 @@ Sarah Vaughan - Come Rain Or Come Shine (2000) [FLAC|Lossless|tracks+.cue]<Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4BC6A3AE1C46DB0E6853C95ECB6B1D65AB951CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756559   (39691) от 21.10.2024
-
-VA - Music News For Forum vol.034 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39691.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Maria Jane Smith - Adrian (03:38)
- 002. Ян Марти - Мимо сердца (03:15)
- 003. Alexander Oscar - Sadan Det Er (02:48)
- 004. Юрий Евстифеев - Грешник (05:03)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF8A1870869BB4C9B538DE4B51654243B21B3FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756513   (39692) от 21.10.2024
-
-Королевские воины / Wong ga jin si / Royal Warriors (1986) BDRip [H.265/1080p] [10-bit] [DEU Transfer 4k Remastered] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычный рейс самолёта по маршруту Токио - Гонконг превращается в трагедию. Именно этот рейс выбрали террористы, они требуют изменить маршрут. Оказавшиеся среди пассажиров два спецагента пытаются мирно разрешить конфликт, но в возникшей суматохе происходит перестрелка, преступников арестовывают, а их главаря убивают. Кажется, конфликт исчерпан, но бандиты долгов не (   Читать дальше...   )Производство: Гонконг / D & B Films Co. Ltd.Жанр: боевик, драмаРежиссер: Дэвид ЧунгАктеры: Мишель Йео, Хироюки Санада, Майкл Вон, Бай Ин, Пол Чунь, Хуэй Сиу-Хун, Кеннет Цан, Ньютон Лай, У Фун, Деннис ЧанПеревод: АвторскийЯзык озвучки: русский, английский, китайскийСубтитры: английскиеПродолжительность: 01:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04063F6E61ECB3DE115C28DFB987879E5C596E3C
 ```
 
 

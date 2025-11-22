@@ -1,3 +1,192 @@
+###  Публикация: 1729890   (107981) от 13.06.2024
+
+Umbra Vitae - Light Of Death (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metalcore, Death Metal, Chaotic Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Leave Of Absence (00:04:24)
+02 - Belief Is Obsolete (00:02:16)
+03 - Clear Cutter (00:01:25)
+04 - Anti-Spirit Machine (00:03:40)(   Читать дальше...   )Жанр: Metalcore, Death Metal, Chaotic HardcoreПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5581CB717C270543625D2249F753B757A983091
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729782   (107982) от 13.06.2024
+
+Hour of Penance - Sedition (2012) [FLAC|Lossless|image + .cue] <Technical, Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transubstantiatio
+02. Enlightened Submission
+03. Decimate the Ancestry of the Only God
+04. Fall of the Servants(   Читать дальше...   )Жанр: Technical, Brutal Death MetalПродолжительность: 00:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2ED68414967773053488FCF6F78C9195F00BE6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729754   (107983) от 13.06.2024
+
+Hour of Penance - Paradogma (2010) [FLAC|Lossless|image + .cue] <Technical, Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradogma
+02. Thousands of Christs
+03. The Woeful Eucharisty
+04. Malevolence of the Righteous(   Читать дальше...   )Жанр: Technical, Brutal Death MetalПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934BF875B24F337A1C1D52B20683D267086AF1B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729749   (107984) от 13.06.2024
+
+Grand Slam - Wheel Of Fortune (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Goes My Heart
+02. Starcrossed Lovers
+03. Come Together (In Harlem)
+04. Trail Of Tears(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF60F55DDD2E75E706B586BC86FC01DC12B8D92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729924   (107985) от 13.06.2024
+
+Wildstreet - IV (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heroes (3:10)
+02. Sick to Death (4:27)
+03. Won't Be Apart (3:58)
+04. Come Down (4:04)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9338A2ACA68C52BB9B53ED6EA8CB2F5F0E5A6E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729737   (107986) от 13.06.2024
+
+Blitz - Kicking Up A Storm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break Neck (3:12)
+02. Shell Shock (3:15)
+03. C.O.G (3:04)
+04. Keep Moving On (3:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA5DB3763A11C73193CB6D7AA7663BA275B4AB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729935   (107987) от 13.06.2024
+
+Самуил Маршак | На улице Бассейной (1996) [MP3, Олег Басилашвили и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самуил Яковлевич Маршак (1887–1964) советский поэт, драматург, переводчик, литературный критик.
+Самые любимые стихи Самуила Яковлевича Маршака в исполнении знаменитых актеров Олега Басилашвили Николая Литвинова, Зои Бокаревой и др.
+
+ Самуил Маршак на NoNaMe ClubЖанр: Русская литература для детей, классика, стихи, сказкаИздательство: Inner Circle RecordsПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE713456B163352F9C4E5179CFFD4A4E9D0024FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729925   (107988) от 13.06.2024
 
 The Dead Daisies - Resurrected, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -505,195 +694,6 @@ Mel Torme - In Person (1962) Remaster, 2024, Warner Music Group [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F2BD70D15062387C3CF50D562EA833D3F4F0C44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729770   (108007) от 12.06.2024
-
-Корней Чуковский | Сказки Корнея Чуковского (2005) [MP3, Людмила Лубенская]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мир удивительных историй.
-Эта книга для тех, кто любит стихотворные сказки Корнея Ивановича Чуковского (1882–1969).
-Вам предстоит встреча с добрым доктором Айболитом и веселым Мойдодыром, гадким и нехорошим Бармалеем, жадным Крокодилом и с другими героями, полюбившимися не одному поколению детей.
-(   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: Элитайл, СиДиКомПродолжительность: 03:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575FFFB6446B17B975DA18400B63D40AE8F216C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729480   (108008) от 12.06.2024
-
-Amon Acid - Submerging (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toad Venom [00:06:53]
-02. Crawling Chaos [00:03:50]
-03. Tetrahydron [00:13:02]
-04. Submerging [00:05:50](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F5D595C55988BA3755DD0744D2845A356BB3C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729580   (108009) от 12.06.2024
-
-Kelsley Grant & Andrew Scott - Horizon Song (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horizon Song (5:26)
-02. The Tamarind Tree (5:37)
-03. Beautiful Shira (4:48)
-04. In This Time (5:07)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13948B170383EACADC6CD7B09F2BBAC9E48C6DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729558   (108010) от 12.06.2024
-
-Hour of Penance - Misotheism (2019) [FLAC|Lossless|WEB-DL|tracks] <Technical, Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mass Crucifixion Of Kings
-02.Blight And Conquer
-03.Fallen From Ivory Towers
-04.The Second Babel(   Читать дальше...   )Жанр: Technical, Brutal Death MetalПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE84160227B21B870A8A96CCC593178C29996D92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729583   (108011) от 12.06.2024
-
-Rarity - Lower Feeling (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep it to Yourself (3:34)
-02. OKAY (3:12)
-03. Brain Dance (2:46)
-04. who gives a fuck? (3:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51ACE0F8F7CC6AD72A69B80625ADC6424A25EA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729642   (108012) от 12.06.2024
-
-Jack Walrath & The Masters of Suspense - Serious Hang (1992) 1994, Muse Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anya and Liz on the Veranda [6:36]
-02. Get on the Good Foot [5:11]
-03. Better Get Hit in Your Soul [8:07]
-04. Izlyal e Delyo Haidoutin [7:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2159876B5FC003F4C02B0ECEE6080454AB197446
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729641   (108013) от 12.06.2024
-
-Wallace Roney - No Room for Argument (2000) Stretch Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Room for Argument [5:30]
-02. Homage & Acknowledgement (Love Supreme/Filles de Kilimanjaro) [7:47]
-03. Straight No Nothing [7:12]
-04. Metropolis [4:33](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28933356C7D8CAD375FD247AD144CCBB3966810
 ```
 
 

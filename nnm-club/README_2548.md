@@ -1,3 +1,57 @@
+###  Публикация: 1796133   (66996) от 08.05.2025
+
+Leadpetal - Glass Teeth (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Citizen Down (3:24)
+02.  Glass Teeth (2:44)
+03.  Can't A Girl Dream? (2:57)
+04.  River Styx (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEFD28358CD25F061937B642C41C81D67BA36CD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796122   (66997) от 08.05.2025
+
+Fuel for the Dogz - Puppy Massacre (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Psycho Man (4:15)
+02.  Shadows of the Past (5:43)
+03.  Liar (3:39)
+04.  Doomsday Sirens (4:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8729F381D7FB0D4BB291A044DBCB2A72FE7F8A90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796132   (66998) от 08.05.2025
 
 Kevin Moan & The Howling - Big Milk (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -634,60 +688,6 @@ magnet:?xt=urn:btih:A58E66C211AFB224445B6FAC11F7F155B78FB471
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B60963C5110715B35B70AD62DAD1B7D04A0E209F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795755   (67022) от 06.05.2025
-
-Леонид Андреев | Иностранец (1996) [MP3, Сергей Бехтерев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Звучащая библиотека. Малая проза.
-Леонид Николаевич Андреев (1871–1919) – русский писатель, прозаик и драматург, один из самых знаменитых писателей России начала 20 века.
-Рассказ Л.Н. Андреева «Иностранец», написанный осенью 1901 года, и сегодня, более чем через 120 лет после написания, звучит очень остро…
-(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CF46A9D1C17E928E592AEFDC35353857B7E398B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795805   (67023) от 06.05.2025
-
-Hyena - About Rock and Roll (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightriders
-02. About Rock and Roll
-03. The Eternal Zero
-04. Hail the Fire(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2921AD6FE8F77013F1771E165B42D50EB1E211BE
 ```
 
 

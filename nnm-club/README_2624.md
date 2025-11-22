@@ -1,3 +1,54 @@
+###  Публикация: 1786607   (68972) от 21.03.2025
+
+Ленни / Lenny (1974) BDRip [H.264/720p] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сценарий написан по мотивам одноимённой пьесы Джулиана Барри... Фильм в псевдодокументальном стиле повествует о жизни Ленни Брюса (Леонарда Альфреда Шнайдера), известного американского юмориста и исполнителя, выступавшего в жанре «стендап-камеди» в 1950-1960-х годах. Ленни начал свою карьеру в ночных клубах и стал популярен благодаря резким и остроумным импровизациям. (   Читать дальше...   )Производство: США / Marvin Worth ProductionsЖанр: драма, биографияРежиссер: Боб ФоссАктеры: Дастин Хоффман, Валери Перрайн, Джэн Майнер, Стенли Бек, Фрэнки мэн, Рашель Новикофф, Гэри Мортон, Гай Ренни, Кэтрин Уитт, Монро Майерс, Джон ДиСанти, Мики Гэтлин, Мартин Бегли, Марк Харрис, Ричард ФридманПеревод: профессиональный многоголосый (Союз Видео), авторский (Юрий Сербин)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E6957A8042624243B344878D472930B5B9758C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779606   (68973) от 21.03.2025
+
+Disarmonia Mundi - Studio Albums (6 releases) (2001-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disarmonia Mundi — музыкальная группа из города Турин, Италия.2001 - Nebularium
+2004 - Fragments of D-Generation
+2006 - Mind Tricks
+2009 - The Isolation GameЖанр: Melodic Death MetalПродолжительность: 05:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F97A4AB4EFB63E8EDE9A22CF6E40AA2B5CE0CD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786685   (68974) от 21.03.2025
 
 Lordi - Limited Deadition (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock, Metal>
@@ -619,60 +670,6 @@ magnet:?xt=urn:btih:B9E6957563F920E6B5703CB7E6AAAE8D98B1FD29
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C36DEA42A17CF9FD33546F51DD2B0CEA0938C8FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786559   (68998) от 21.03.2025
-
-Калевала - Глазами Офелии (2025) [MP3|320 Kbps] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68998.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Колокольчик ищет волка
-2. Глазами Офелии
-3. Земной святой
-4. Соколица(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A5B3152A8948C04881801575138B76910E7A1D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786649   (68999) от 21.03.2025
-
-VA - Night'n Day Music Tracks (Expanded Edition) (Mike Mareen and His Music Productions) (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trappy Toxic - Shuffle Mix (2:05)
-02. Mike Mareen - Here I Am (Megatrain-Mix) (7:27)
-03. Rocco Caruso amp Children's Voice - Tirami Su (Maxi Version) (5:38)
-04. Dj's Project - How Are You (Maxi Version) (7:37)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C793B32592C8BA5A91527F0869F5273B5D33B54
 ```
 
 

@@ -376,6 +376,33 @@ magnet:?xt=urn:btih:CA3706FCB6329686ADB3772CB186651577FC67A8
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427588   (182285) от 29.11.2020
+
+VA - Record Super Chart 664 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_182285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)
+02. Tiesto - The Business (2:43)
+03. Foushee - Deep End (2:21)
+04. Slava Marlow - Снова я напиваюсь (1:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC9ADD6883DDF49A5B180F7EA4D9B63C1806E12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665110   (182906) от 29.09.2023
 
 VA - Dance, Disco, Club (2023) [MP3|320 Kbps] <Dance, Disco, Club>
@@ -668,33 +695,6 @@ VA - Bluesy Christmas - Jingle Bell Blues (2022) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:569AE7A8EF4D5A8A67F02E6BE17D8A4FA31273FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427000   (184454) от 27.11.2020
-
-VA - Tech House Electro Music Fest (2020) [MP3|320 Kbps] <EDM, Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184454.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Midtown Level - Pleasure Of The Tomato
-002. Darkvibe - Bullshit Overdose
-003. Master Clip - Nominate
-004. Armin Van Buuren - Mr. Navigator(   Читать дальше...   )Жанр: EDM, Techno, Tech HouseПродолжительность: 08:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40203EEB3E130AC0E90261570FEE77B3111B2A6E
 ```
 
 

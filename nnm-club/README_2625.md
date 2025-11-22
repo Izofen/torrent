@@ -1,3 +1,57 @@
+###  Публикация: 1786559   (68998) от 21.03.2025
+
+Калевала - Глазами Офелии (2025) [MP3|320 Kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68998.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Колокольчик ищет волка
+2. Глазами Офелии
+3. Земной святой
+4. Соколица(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A5B3152A8948C04881801575138B76910E7A1D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786649   (68999) от 21.03.2025
+
+VA - Night'n Day Music Tracks (Expanded Edition) (Mike Mareen and His Music Productions) (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trappy Toxic - Shuffle Mix (2:05)
+02. Mike Mareen - Here I Am (Megatrain-Mix) (7:27)
+03. Rocco Caruso amp Children's Voice - Tirami Su (Maxi Version) (5:38)
+04. Dj's Project - How Are You (Maxi Version) (7:37)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C793B32592C8BA5A91527F0869F5273B5D33B54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786568   (69000) от 21.03.2025
 
 Леонид Фёдоров & Игорь Крутоголов - В солнечном блеске (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -621,56 +675,6 @@ magnet:?xt=urn:btih:01076B990961A075963A2D1B9B7AD477B382CB01
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BB532919AB760C5D222C451F2FA39CE32E7ADDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786405   (69024) от 20.03.2025
-
-Шрифты - Denis Serebryakov - MyFonts - Gik [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт c кириллицей.
-Разработчик: Denis SerebryakovФормат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0657A3C4F8EF99110DFB0628D9E7A92DC768A2AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786304   (69025) от 20.03.2025
-
-Шрифты - Denis Serebryakov - MyFonts - Canapa [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт c кириллицей.
-Разработчик: Denis SerebryakovФормат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:724276F47074E307CC7E187FFE77B524D9B48CB6
 ```
 
 

@@ -1,3 +1,189 @@
+###  Публикация: 486285   (100181) от 22.04.2012
+
+Журнал | Автомир [Украина] №17 [апрель 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100181.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автомир» — первый еженедельный автомобильный журнал, который предоставляет самую разнообразную информацию из мира автомобилей: от репортажей с международных автосалонов до сравнительных тестов автомобильных шин и масел различных фирм.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C58B7FC2CF4692B508B5502CCFC2819CD6C45D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484211   (100193) от 22.04.2012
+
+VA - Клубные Новинки Vol.61 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sebastian Brandt - Mana (Original Mix)
+02. Rafael Frost - Channel 4 (Original Mix)
+03. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix)
+04. Armin Van Buuren & Orjan Nilsen - Belter (Original Mix)
+05. Phunk Investigation - Smash (Original Mix)
+06. Morgan Page feat. Nadia Ali - Carry Me (Extended Mix)
+07. Kachu MX - Alien Bubble (Original Mix)
+08. suGar, Eva Kade, Evil T - All Around (Blood Groove & Kikis Remix)
+09. Matula feat Goldsound - Wonderful World (Gaga Remix)
+10. Chris Online feat. Alray - Once Again (Horny United Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35CE40D0589331F0BB4357B7BC9DA246667A8E06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486208   (100199) от 22.04.2012
+
+Журнал | Yes! №159 [март 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yes! – авторитетный советчик, чье мнение очень важно для его молодой и активной аудитории. Журнал говорит на одном языке со своими читателями обо всех важных для них проблемах.март 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B660186F3FA93BDB18E5328A4413E8F69120937
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485943   (100204) от 22.04.2012
+
+[Wallpapers] Чарующая природа
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка высококачественных обоев на тему "Чарующая природа"
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF4EF3175F8A3B444A35B512EBEE4845EDC0C6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486030   (100206) от 22.04.2012
+
+Lorraine Feather - Tales of the Unusual (2012) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hole in the Map (5:21)
+02. Off the Grid Girl (6:13)
+03. Where is Everybody (4:58)
+04. The Usual Suspects (4:17)
+05. Five (4:13)
+06. Sweet Miriam (3:49)
+07. Out There (4:43)
+08. Get a Room (4:29)
+09. Cowbirds (7:01)
+10. I Took Your Hand (Fellini's Waltz) (3:31)(   Читать дальше...   )2012Жанр: Vocal JazzПродолжительность: 01:01:04
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486071   (100208) от 22.04.2012
+
+Журнал | Домой. Строительство и ремонт №14 [2012 апрель] [JPEG]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100208.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специализированный рекламный журнал2012 апрельФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00286710143056BD9EBADC3DA8F2AA4A07BFF75C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485908   (100213) от 22.04.2012
+
+Godgory - Resurrection (1999) [MP3|320 кб/с]<Doom Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Resurrection (7:06)Жанр: Doom DeathПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855750DC3BD7EC20D860101C3403D68D3353DC59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486385   (100216) от 22.04.2012
 
 Barren Earth - The Devils Resolve (2012) [FLAC|Lossless]<Progressive Melodic Death Metal>
@@ -501,189 +687,6 @@ magnet:?xt=urn:btih:90B0690FD19122BC4744DF23E2C2404DA4219DAE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66A2F8AAF8A5A91C514410D186194807B3CD0823
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487092   (100281) от 23.04.2012
-
-[Wallpapers] Abstract HD Wallpapers (24.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E704D269E4DF0D9271DFAC551658FA6DED814DFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486156   (100282) от 23.04.2012
-
-Askin Arsunan - One A Day (2004) [FLAC|Lossless]<Contemporary Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_100282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Five
-02. New Wave (of 212)
-03. Kriko
-04. Eastern Choo Choo
-05. One Day
-06. Bridge Over Troubled Water
-07. Ethno Karma
-08. Portrait (to be continued…)2004Жанр: Contemporary JazzПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487117   (100283) от 23.04.2012
-
-[Wallpapers] HD Wallpapers №19
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100283.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers №19
-Название: HD Wallpapers №19
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE15064016AD230B90691EB4BF29F45F427A07F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487111   (100284) от 23.04.2012
-
-[Wallpapers] Nature Pictures №50
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100284.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №50
-Название: Nature Pictures №50
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90EB5A72A4F651001BCB4B81B2DFD9E11C2FA946
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487116   (100285) от 23.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers №28
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1280х1024 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C2A490DFDCF9B7516E5242B2DE011716C704B5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487068   (100287) от 23.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (23.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F47148DF8F6FE6E2F5431916DB30DD0A58256B18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487066   (100290) от 23.04.2012
-
-[Wallpapers] Sexy Girls Pack Wallpapers (23.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87A5A8809F9B81BFCB2697E74BD533D2EF857D3
 ```
 
 

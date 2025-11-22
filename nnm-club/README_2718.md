@@ -1,3 +1,55 @@
+###  Публикация: 1775557   (71416) от 27.01.2025
+
+Журнал | Профиль №49-50 (244) (декабрь 2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
+На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B52EA8F96A3E8C6A29F3453E628061630FF993B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775451   (71417) от 27.01.2025
+
+Belle Morte - Pearl Hunting (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71417.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Pearl Hunting (00:01:45)
+✧ 02 - Falling Idol (00:05:10)
+✧ 03 - Exorcism (00:05:29)
+✧ 04 - Blame me (00:04:35)(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC4380F4397E1CEA9527F306E5C0E1FD288414A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775433   (71418) от 27.01.2025
 
 VA - Dance Classics Vol. 1 (1998) [AAC|320 Kbps] <Electronic, Pop, Funk, Disco>
@@ -620,60 +672,6 @@ magnet:?xt=urn:btih:FFF2B369BF54DD1E3F4A1E71EE896D7840D5C4CD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B71461CEF2F9A9E7F96D0A011CA164AAA942B21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775355   (71442) от 26.01.2025
-
-Горячие головы (Hotheads) - 2 Albums (2003, 2005) Remastered, 2025, Creative Media [FLAC 24/48|Lossless|WEB-DL|tracks] <Russian pop, Euro House, Europop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вверх-вниз! (Remastered 2025) [00:03:32]
-02. Алла Пугачева (Remastered 2025) [00:03:46]
-03. Самая лучшая! (Remastered 2025) [00:03:46]
-04. Ням-ням-ням (Remastered 2025) [00:03:28](   Читать дальше...   )Жанр: Russian pop, Euro House, EuropopПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D5750D7AAA5F5118F9C1106C040A23EE268AC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775434   (71443) от 26.01.2025
-
-Joel Corry - Tomorrowland Friendship Mix (2025-01-23) [MP3|320 Kbps] <Tech House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joel Corry - Tears On My Piano
-02. Joel Corry - Hey DJ
-03. Nathan Dawe & Joel Corry & Ella Henderson - 0800 HEAVEN (Joel Corry VIP Mix)
-04. Peggy Gou - (It Goes Like) Nanana (Maddix Remix)(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1EF43EE225EE8FC90B30777B10E5F343DC55011
 ```
 
 

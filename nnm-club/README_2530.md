@@ -1,3 +1,51 @@
+###  Публикация: 1799050   (66528) от 25.05.2025
+
+MotoGP. Этап 07 из 22. Гран-при Великобритании. Квалификация (24.05.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66528.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 мая 2025 суббота. 13:50 МСК. Этап 7 Сильверстоун. Гран-при Великобритании. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00034EDB3219235878D4C207D7F8B816D4EC269A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799131   (66529) от 25.05.2025
+
+Зашанхаенный / Shanghaiet (1912) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66529.jpg" />
+</div>
+
+
+###  Подробнее
+
+У молодого моряка Вилли дела идут хорошо. Он только что с отличием закончил обучение, обручился с любовью всей своей жизни, дочерью судовладельца Клаузена, Лилли. И уже получил работу, понятно дело, на судне будущего тестя. Все хорошо и перспективы радужные. Но есть соперник, некий Бэнг, чье предложение руки и сердца Лилли недавно было отвергнуто. Он полон гнева (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Эдуард Шнедлер-СоренсенАктеры: Cajus Bruun, Alma Hinding, Отто Лагони, Карл Лауритцен, Альф Нилсен, Питер Нилсен, Клара Понтоппидан, Кристиан Шрёдер, Agnete von Prangen, Карло ВитПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712A1F3A78062FE0994CBAC041F803EEF47ACF86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798971   (66530) от 25.05.2025
 
 Brace - Self Titled (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Nu Metalcore>
@@ -619,57 +667,6 @@ B1. Warmageddon(   Читать дальше...   )Жанр: Nu-Metal, Groove, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6BA63258CFA7EEC13DA0FF4E08AC956D1207424
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798833   (66554) от 24.05.2025
-
-Jennifer Lopez - J to tha L‐O! The (Remixes) (2002) CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jennifer Lopez feat. Fat Joe / Love Don’t Cost a Thing (RJ Schoolyard mix)    [0:04:18.55]
-02. Jennifer Lopez feat. Ja Rule & Caddillac Tah / Ain’t It Funny (Murder remix)    [0:03:49.60]
-03. I’m Gonna Be Alright (Track Masters remix)    [0:03:20.15]
-04. Jennifer Lopez feat. Ja Rule / I’m Real (Murder remix)    [0:04:18.50](   Читать дальше...   )Жанр: Electronic, Hip Hop, House, DowntempoПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0851EEF9DB9E769C19762ED441995FD4267AC42F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797178   (66555) от 24.05.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Clipart Christmas [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный рождественский клипарт.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD1720F3717ED865DCA6DEAB6E8DD21375D4AF1E
 ```
 
 

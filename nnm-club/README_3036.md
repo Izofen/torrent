@@ -1,3 +1,217 @@
+###  Публикация: 460011   (94941) от 29.02.2012
+
+VA - Mystic India (Vol.4) (2004) [MP3|320 кб/с]<New Age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craig Pruess - Waiting For The Beloved (07:28)
+02. Ranga - Phoenix (04:33)
+03. Deliter - Yellow Mandala (08:36)
+04. Bhakta - Third Eye (06:41)
+05. Chinmaya Dunster - Hanuman In New Delhi (04:15)
+06. Rasa - Jaya Radha (08:28)
+07. Niladri Kumar - Dhun (Raga Bhairavi) (09:22)
+08. Tanmoy Bose - Communion (04:04)
+09. Chinmaya Dunster & The Celtic Ragas Band - Wedding In Kotree (05:09)
+10. Galactic Agents - Kailash Baba (04:52)(   Читать дальше...   )2004Жанр: New Age, Meditative, RelaxПродолжительность: 01:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04822FF0AE94C86D9C27DA9469208A05D77023EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459355   (94943) от 29.02.2012
+
+[in]trance - The music becomes flesh (2012) WEB [FLAC|Lossless]<gothic metal\alternative>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - instinct of death 05:06
+02 - giant grey spheres 03:14
+03 - entrance to trance 04:11
+04 - antisocial 06:34
+05 - black hole blues 01:54
+06 - kill the hope first 05:49
+07 - круг от руки (Кавер-версия песни Максима Фадеева) 03:57
+08 - addiction 05:41
+09 - лили марлен 05:05
+10 - flesh becomes music 02:07(   Читать дальше...   )2012Жанр: gothic metal\alternativeПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459912   (94946) от 29.02.2012
+
+Журнал | Любимая дача [Украина] №3 [март 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любимая дача - популярный иллюстрированный журнал о загородной жизни круглый год. Информация на любой вкус: советы и рекомендации о том, как обустроить дачный участок, как построить дом; инструкции для тех, кто стремится сделать дачный ландшафт красивым и уютным.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D919580C4CA92D001D5411FFC16FEF3FCD095B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459429   (94947) от 29.02.2012
+
+David Guetta - DJ Mix 085 (11.02.2012) [MP3|~224 кб/с]<House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mix - Intro (00:28 )
+ 02. Zedd - Stars Come Out (Lazy Rich Remix) (05:42)
+ 03. Michael Woods - Airborne (05:25)
+ 04. Starkillers & Dmitry KO - Don't Hold Back (04:43)
+ 05. D-Mad - 1961 (03:49)
+ 06. Quintino - We Gonna Rock (05:27)
+ 07. Steve Aoki feat. Wynter Gordon - Ladi Dadi (Tommy Trash Remix) (04:18 )
+ 08. John Dahlback - Life (05:35)
+ 09. EDX & Nadia Ali - This Is Your Life (05:30)
+ 10. Moguai - Mpire (04:11)(   Читать дальше...   )11.02.2012Жанр: HouseПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BA8251F95E7D38D87446BCA4B9D87D63FA2B50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460001   (94948) от 29.02.2012
+
+VA - Mystic India (Vol.2) (2003) [MP3|320 кб/с]<New Age, Meditative, Relax>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Asher - Pemulwuy (05:32)
+02. Sambodhi Prem - Mirror Of The Sun (05:40)
+03. Narayana - Sangit (08:28)
+04. Chinmaya Dunster - Right Samadhi (05:06)
+05. Kamal - Spirit Gathering (07:47)
+06. Kala Ramnath - Raag N Rythm (08:11)
+07. Deuter - Apres La Pluie (06:35)
+08. Namaste - Shiva Shambo (09:33)
+09. Hariprasad Chaurasia - Folk Melody (08:02)2003Жанр: New Age, Meditative, RelaxПродолжительность: 01:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73EBC70228E801597A42A83CD3C14E91CD85BFDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460019   (94950) от 29.02.2012
+
+Carles Benavent - Un, Dos, Tres... (2011) [FLAC|Lossless]<Latin Jazz, Fusion, Flamenco>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don (3:41)
+02. Bailas (5:17)
+03. Novembre (5:03)
+04. Tirititran Catalan (4:55)
+05. Flamenquillo (5:05)
+06. Scenes d'Enfants (jeunes Filles Au Jardin) (3:12)
+07. Punt i Final (4:09)
+08. Mario (5:44)
+09. Cara Bobo (4:57)
+10. A Solas (3:35)2011Жанр: Latin Jazz, Fusion, FlamencoПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459968   (94961) от 29.02.2012
+
+Время покаяния (2012) TVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое ПОКАЯНИЕ и ЗАЧЕМ оно нужно современному человеку? Об этом рассуждают психолог, философ, богослов и проповедник, поэт и рок музыкант, дирижёр классической музыки, регент и монахиня — наши современники разных профессий и возрастов. Это взгляд на нравственные вопросы — совесть, духовную вертикаль человека, идеалы жизни.
+Среди участников - н.а. СССР Владислав Чернушенко (Художественный руководитель Государственной Капеллы Санкт-Петербурга), психолог Альфред Щёголев, философ и писатель Татьяна Горичева, самый известный в РПЦ миссионер и проповедник протодиакон Андрей Кураев, регент хора монахиня Иулиания (выпускница СПб Консерватории), поэт и рок-музыкант Юрий Шевчук.
+Вы увидите съёмки современного мегаполиса, рок-концерта с участием Э.Кустурица, великопостных концертов 2011 г., храмов и монастырей с использованием специальной съемочной техники.Жанр: ДокументальныйРежиссер: Антон АлексеевПродолжительность: 00:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203A09ECA219C6AE26923800FEB750AB4E345AA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 460009   (94962) от 29.02.2012
 
 VA - Essential Blues (2012) 2CD [FLAC|Lossless]<Blues>
@@ -577,230 +791,6 @@ CD1 Продолжительность: 01:11:31
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94D30D2D8D73786B7666B905B274A55A55C419B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461176   (95084) от 02.03.2012
-
-Marty Ehrlich's Rites Quartet - Frog Leg Logic (2011) [FLAC|Lossless]<Free Jazz, Modern Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frog Leg Logic (5:23)
-02. Ballade (10:54)
-03. You Can Beat the Slanted Cards (6:20)
-04. Walk Along the Way (6:55)
-05. Solace (8:24)
-06. My Song (6:17)
-07. The Gravedigger?s Respite (6:47)2011Жанр: Free Jazz, Modern JazzПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461352   (95085) от 02.03.2012
-
-VA - Armada Top 15: March 2012 (02.03.2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kirsty - Twilight (Armin van Buuren Remix) (6:03)
- 02. tyDi feat. DJ Rap - Talking To Myself (Maison & Dragen Remix) (6:06)
- 03. Mischa Daniels & Solid Gaz - TW3LVE (Original Mix) (5:05)
- 04. Heatbeat - Rocker Monster (Original Mix) (6:43)
- 05. Andrew Bennett feat. Shena - Alright (Sebjak Remix) (6:33)
- 06. Da Hool feat. Jay Cless - She Plays Me Like A Melody (Global Deejays Remix) (5:33)
- 07. Matt Darey & Stan Kolev feat. Aelyn - Follow You (Milan & Phoenix Remix) (6:00)
- 08. Nash & Pepper Pres. Ostrega - First Scream (We aRe Extended Mix) (5:20)
- 09. Orjan Nilsen - Lucky Strike (Original Mix) (7:49)
- 10. Dash Berlin feat. Jonathan Mendelsohn - World Falls Apart (Club Mix) (7:20)(   Читать дальше...   )02.03.2012Жанр: TranceПродолжительность: 01:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B407D0539C7A045E1B4ADEB439497116AAB24FB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461143   (95086) от 02.03.2012
-
-Ranee Lee - Lives Upstairs (2009) [FLAC|Lossless]<Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Just Found Out About Love (3:38)
-02. In Love In Vain (6:01)
-03. A Time For Love (6:26)
-04. A Crooked Road (8:49)
-05. Four (5:30)
-06. Gershwin Medley (9:36)
-07. Fire and Rain (6:10)
-08. Beautiful Love (4:43)
-09. The Storm (6:05)
-10. Dearly Beloved (5:22)2009Жанр: Jazz, VocalПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461212   (95087) от 02.03.2012
-
-Lamat - V (2011) [MP3|~250 кб/с (V0)]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95087.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Predators 8:45
- 2. Perfect System (The Legacy) 8:31
- 3. Cartell Me About It (FFT RMX) 6:48
- 4. Remastered Controller 7:15
- 5. New Technologies 8:18
- 6. Mind Control Neuro Transmitor 7:53
- 7. The Resistance 7:38
- 8. Magnetic Interference 6:562011Жанр: Psychedelic / Full OnПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87B1063E8C8EC907651C6B0908C377860DC43BF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461219   (95091) от 02.03.2012
-
-Xtatic Shiva - Traces (2012) [MP3|320 кб/с]<Psychedelic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death of A Dwarf Star 07:15
- 02. Dominant Alien Culture 07:37
- 03. Maharashtra 05:13
- 04. Sawhead (Original Version) 08:46
- 05. Solar Effect 07:49
- 06. Sulphur 08:01
- 07. There is Truth Beyond Knowledge 08:11
- 08. To Shi Ban 06:14
- 09. Traces 09:192012Жанр: PsychedelicПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17AC8878841F6541F23C1A84FE74FD583340AE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460964   (95094) от 02.03.2012
-
-VA - Face Disco (2011) [FLAC|Lossless]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Hertz - Money for nothing [7:12]
-02. D-Vision - Juicy pad song [7:28]
-03. Timestretch - Dullday [8:02]
-04. Philter - Attribute [8:25]
-05. Lightsphere - Aeroplan [8:04]
-06. Timestretch - Endless Maze [8:09]
-07. Connexx - With Me [8:18]
-08. Shyisma - Harmonic Elements [7:37]
-09. HMB - Special Dreams [6:54]2011Жанр: Psychedelic / ProgressiveПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461348   (95108) от 02.03.2012
-
-DJ LEV - Night Style (2012) [MP3|320 кб/с]<Electro House, Dutch House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bingo Players, Lil Jon - Mutate Rattle (Base Music, DJ Zarubin Mash-Up)
-02. Chuckie - Who Is Ready To Jump (Dada Life Remix)
-03. The Sleepover & Reece Low & Meltek - Disco Slut (D-Jastic Remix)
-04. Spencer & Hill - I Want You (The Koch Remix)
-05. David Guetta - Stay (Johan K Horny Bootleg)
-06. MC Zali - Girls Made In Russia (DJ Melnikoff Remix)
-07. Adrian P & Carl Novy - Sensation (Sferlazzo Remix)
-08. Sasha Veter - Proletayut Dni (DJ Prado & DJ Timakoff Remix)
-09. LMFAO - Sexy And I Know It (Blood Dance Project Remix)
-10. Enrique Iglesias - Tonight (Blood Dance Project Remix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A88DCED50FB29A13E50B90F6FB286886D8FF0D
 ```
 
 

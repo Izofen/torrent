@@ -1,3 +1,354 @@
+###  Публикация: 657759   (153088) от 23.12.2020
+
+Battle Beast - Battle Beast (2013) [FLAC|Lossless]<Heavy Metal, Female Fronted>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Roar
+02. Out Of Control
+03. Out On The Streets
+04. Neuromancer(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D02FD777022F940DFEA403FE2593FF67E092FE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968709   (153089) от 24.12.2015
+
+Мамульки Bend - Coverock (2015) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153089.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ансамбль
+2. Ay
+3. Лимония
+4. Оранжевое настроение(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D268D2746045163A2F1C75690F6FE49893A246B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518784   (153100) от 21.12.2021
+
+Reap The Light - Deliver Hell (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn in Hell (feat. Serouj Guidanian) (05:06)
+02. Fade to Black (feat. Nathalie Astrada) (04:04)
+03. The Reckoning (feat. Jo Down) (04:58)
+04. Deliver Hell (feat. Chris Lion) (05:16)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68900B1739BB23033015107C436559C739284CE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518831   (153123) от 21.12.2021
+
+Parasyche - Sons Of Violence (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Rebellion)
+02. Rebellion
+03. Black Mamba (feat. Aquiles Priester)
+04. Vile Rejection (feat. Diva Satánica & Nidra)(   Читать дальше...   )Жанр: Progressive Heavy Metal, Thrash MetalПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF06568579DE035B9BFB0E30CCBF37A87D8D5B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677132   (153129) от 16.11.2023
+
+McHale's Permanent Brew - Lesson's from the Darkest Storms (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of Luck (4:44)
+02. Dead Magpie (6:18)
+03. Drowning by Numbers (7:33)
+04. Breaking Smile (4:53)(   Читать дальше...   )Жанр: Classic Rock, BluesПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8411E0CEF88EAFC122568D99D6D693F6D60F0455
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677234   (153219) от 16.11.2023
+
+Apocalyptica - Live In Helsinki St. John's Church (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Neoclassical Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro To The Mind (1:55)
+02. Deathzone (2:47)
+03. Sacra (3:44)
+04. Kaamos (4:20)(   Читать дальше...   )Жанр: Symphonic Metal, Neoclassical MetalПродолжительность: 01:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA646A2B2AE8A1D6B013658B6BEDC1D379172231
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968692   (153305) от 24.12.2015
+
+Ладушка - Солнцекараул (2015) [MP3|320 кб/с] <Folk Metal, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153305.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Солнцекараул
+2. Неба Берега
+3. Друже Кубки
+4. Тихо Пел Горицвет(   Читать дальше...   )Жанр: Folk Metal, Folk RockПродолжительность: 00:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08B0B99B6AC07EB9F5B24694FF1DE95087CAFC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677043   (153314) от 16.11.2023
+
+Nita Strauss - The Call of the Void (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Storm 04:31
+02. The Wolf You Feed (feat. Alissa White-Gluz of Arch Enemy) 03:52
+03. Digital Bullets (feat. Chris Motionless of Motionless in White) 03:58
+04. Through The Noise (feat. Lzzy Hale of Halestorm) 03:20(   Читать дальше...   )Жанр: Heavy Metal, Modern MetalПродолжительность: 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D41D1C1FB89433F44A6C7A1A64641ABA16F3B156
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677124   (153338) от 16.11.2023
+
+The Flower Kings - Back in the World of Adventures (1995) Reissue, 2003, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Of Adventures
+02. Atomic Prince / Kaleidoscope
+03. Go West Judas
+04. Train To Nowhere(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:11:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:888301E47C06651E968E6D50246A8B8065C6AE90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677172   (153368) от 16.11.2023
+
+Signum Regis - Undivided (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel's Prophecy (4:29)
+02. Ministry of Truth (4:49)
+03. Salt of the Earth (4:46)
+04. Interpreter of Dreams (3:34)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:219303EED145CD12D0E0C96352535C08848658DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968630   (153405) от 24.12.2015
+
+Last Autumn’s Dream - Paintings (2015) Japanese Edition [MP3|320 кб/с] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Mistake To Make
+02. Bring Out The Heroes
+03. Out Of Love
+04. Too Late(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95C99095FA5249BE12F2163E9E518E34BE3A75FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347177   (153454) от 22.12.2019
+
+Ozzy Osbourne - The Essential Ozzy Osbourne (2003) 2019 remastered Epic [FLAC 2.0|96/24|tracks|WEB-DL] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Crazy Train [4:53]
+ 02 - Mr. Crowley [5:03]
+ 03 - I Don't Know (Live 1981) [5:42]
+ 04 - Suicide Solution [4:18](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 02:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01DE2F21AA895A97AE46F9F727B87B75AFCEBFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086057   (153459) от 24.12.2016
+
+E1NS - Вечная мерзлота (2016) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пурга
+02. Потёмкинский острог
+03. Флаг
+04. Север зовет(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99AA6DF3D0948DDE62FEDD42B511891C3CC1BC09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434230   (153465) от 23.12.2020
 
 БѢСЪ - Кощунства (2020) [MP3|320 Kbps] <Ancient Russian Black Metal>
@@ -339,363 +690,6 @@ magnet:?xt=urn:btih:9D7774C59D78A892F544312DD7EF9AE49B4F3C0A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50649078358C4DA299101CE46DC94C014E3EF6F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452970   (153867) от 22.12.2020
-
-Rainbow - Down To Earth  (1979) 2CD Deluxe Edition /2011, Polydor/ [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night Long [0:03:55.07]
-02. Eyes Of The World [0:06:43.17]
-03. No Time To Lose [0:03:45.55]
-04. Makin' Love [0:04:39.49]
-05. Since You Been Gone [0:03:21.16]
-06. Love's No Friend [0:04:55.54]
-07. Danger Zone [0:04:32.26]
-08. Lost In Hollywood [0:04:54.40]
-09. Bad Girl (7' Single B-Side) [0:04:51.11]
-10. Weiss Heim (7' Single B-Side) [0:05:14.60]Жанр: Hard RockПродолжительность: 00:46:53 / 00:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3698E7663D91BB45CF81382B4D018FC2A7CDC4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600821   (153959) от 29.12.2022
-
-Eric Clapton - Unplugged (1992) Reissue, Remastered, 2022, Mobile Fidelity Sound Lab [OGG Vorbis|480 Kbps] <Rock, Blues Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Signe
-02. Before You Accuse Me
-03. Hey Hey
-04. Tears In Heaven(   Читать дальше...   )Жанр: Rock, Blues Rock, AcousticПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762940BC978B2D55F21C35BD3DE3135B9566E21C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346758   (153992) от 22.12.2019
-
-Pink Cream 69 - 18 альбомов Discography 20 CD (1989-2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock/Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1989 - Pink Cream 69
-1991 - 36° / 140° (EP)
-1991 - 49° / 8° (EP)(   Читать дальше...   )Жанр: Melodic Hard Rock/MetalПродолжительность: 15:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25965B27FDF83B7E721FF87DC646923985FC258E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518643   (154019) от 20.12.2021
-
-Thyrfing - Vanagandr (2021) [FLAC|Lossless|image + .cue] <Viking Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dop Dem I Eld
-02. Undergangens Lankar
-03. Rotter
-04. Fredlos(   Читать дальше...   )Жанр: Viking Metal, Black MetalПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D30174B525181967AE8ECD15A838C779A3C491E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270947   (154023) от 21.12.2018
-
-Дмитрий Певцов - Баллада о Высоцком (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154023.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Горизонт
-2. Горы
-3. Мой друг уехал в Магадан
-4. Лирическая(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC01F9DB44A626C1656F3F4B9EE5F835D9953D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347079   (154056) от 22.12.2019
-
-Gary Hughes - 7 альбомов Discography (1990-2007) [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1990 - Strength Of Heart
-1992 - Gary Hughes
-1998 - In Your Eyes (EP)(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 06:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:786524471CEF3543DD932E297A11FECE72DC39CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347108   (154062) от 22.12.2019
-
-Badhoven - 4 альбома Discography (2001-2019) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2001 - Behind The Masquerade
-2005 - Believe
-2013 - Obsession(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 02:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4B7C8421DFE34110D54FE62F472F64097E0C30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347055   (154072) от 22.12.2019
-
-Heartland - 13 альбомов Discography 14CD (1991-2011) [FLAC|Lossless|image + .cue] <Hard Rock/AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1991 - Carrie Ann (EP)
-1991 - Fight Fire With Fire (EP)
-1991 - Heartland(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 11:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B7AE57668D41FDBB8B910C86D6833E041813F83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518690   (154135) от 20.12.2021
-
-Lost Circus - Lost Circus (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken Shadows
-02. Come To Me
-03. She's A Fire
-04. Ashes In Rain(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97EF29EEB3FF3A1EE8B602FCD2530A8E42F9D00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194738   (154155) от 26.12.2017
-
-Skarlett Riot - Regenerate (2017) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break 4:59
-02. Closer 3:33
-03. Stand Alone 4:07
-04. What Lies Beneath 3:38(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA1500F196CEC7D2167E7758BB4CC027C42C221D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346994   (154199) от 22.12.2019
-
-Casablanca - 3 альбома Discography (2012-2015) [FLAC|Lossless|image + .cue] <Melodic Hard Rock/Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2012 - Apocalyptic Youth
-2013 - Riding A Black Swan
-2015 - Miscatonic GraffitiЖанр: Melodic Hard Rock/Glam RockПродолжительность: 02:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90EE512B0EE3DF53161D353B2677FB168E29F717
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347281   (154215) от 22.12.2019
-
-Emerald Rain - альбомов Discography (1997-2005) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2001 - Behind The Masquerade
-2005 - Believe
-2013 - ObsessionЖанр: Melodic Hard RockПродолжительность: 02:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52813C6E563CCD6B1F54A33D5053C56CF7D3B521
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347097   (154224) от 22.12.2019
-
-Badhoven - 3 альбома Discography (2001-2013) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_154224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2001 - Behind The Masquerade
-2005 - Believe
-2013 - ObsessionЖанр: Melodic Hard RockПродолжительность: 02:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A7E0E48DF996B0E3E6C14F3606C3C63FB6C5EE
 ```
 
 

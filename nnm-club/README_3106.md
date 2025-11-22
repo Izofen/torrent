@@ -1,3 +1,213 @@
+###  Публикация: 479842   (98999) от 08.04.2012
+
+[Wallpapers] Avto Desktop Wallpapers Pack 5
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98999.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Desktop Wallpapers Pack 5 
+Название:  Avto Desktop Wallpapers Pack 5 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4EC4C61B150750220F89F7B14C7114315C6E30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479612   (99000) от 08.04.2012
+
+Биатлон. "Гонка чемпионов" в Москве. Мужчины / Масс-старт (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мужской масс-старт на "Гонке Чемпионов" в Москве.Жанр: Спорт / БиатлонПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F32667E27E23A41ACC8912379805D8BCE2EA2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480006   (99001) от 08.04.2012
+
+VA - Easy Listening (2012) [MP3|320 кб/с]<Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99001.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Enrico Donner - Sensual Education (5:58)
+2. Mellow Cloud - Traveling (4:18)
+3. Schwarz & Funk - Angles (6:48)
+4. Pater Rob - Blade (7:20)
+5. The Sura Quintet - Floating (5:22)
+6. FQP - Lang Syne (2:00)
+7. Loungeside - Palm Island (5:22)
+8. Cane Garden Quartet - Flying With No Wings (5:54)
+9. Sunset System - Sylt Sunrise (7:06)
+10. Goo-Boot - For Always (3:45)2012Жанр: Downtempo, LoungeПродолжительность: 05:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D93689B17465657318F8E8508BBC6497CA81AB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478833   (99003) от 08.04.2012
+
+Eric Sneo - Polarity (2012) [MP3|320 кб/с]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99003.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Polarity (The Intro)
+2. Polarity
+3. Sensation (feat. Marq Figuli)
+4. Apoptose
+5. Omnipotent Nights 2012
+6. Sao Paulo
+7. Inside Shadows
+8. Woodpacker From Mars
+9. Quantum Reality
+10. Morningsun(   Читать дальше...   )2012Жанр: TechnoПродолжительность: 01:27:57
+
+Широкий диапазон электронной музыки и эмоции были отражены в новом альбоме художника электронных звуков - Eric Sneo. "Polarity" наполнен мелодичной последовательностью Technoid Peaktime, атмосферным углублением и тяжёлой драм-машиной. Это своего рода уникальная комбинация, которая ещё не была использована ни кем из современных музыкантов.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F94CBFFDC9CA65966127B4D5026EEB1D186FE80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480010   (99004) от 08.04.2012
+
+Величайшие автомобили. Самые старые автомобили / Great Cars: Oldest cars (Michael Rose) (2005) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Едва появившись автомобили сразу же привлекли внимание людей по всему миру - этим сказочным аппаратам предстояло заменить лошадей и преобразить мир. Автомобильные первооткрыватели торопили время, им приходилось преодолевать громадные препятствия - нужно было убедить публику, что автомобили это не просто мечты. Они шли этим путем, учась на своих ошибках, чтобы наконец посадить всех нас за руль.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00.24.59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747BC471BCCFFD6C20717B1F0DFB031E50767ECF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479693   (99005) от 08.04.2012
+
+VA - Paul Oakenfold DJ Box - April (2012) (2012) [MP3|320 кб/с]<Trance, Progressive, Uplifting>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99005.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Oakenfold, Paul/Varios - Glow In The Dark (original mix)[07:37]
+2. Senadee - Life Support Machine (16 Bit Lolitas remix)[08:35]
+3. Cold Blue - Coconut (radio edit)[03:40]
+4. Paul Oakenfold - Pop Star (feat Robert Vadney - Eximinds remix)[06:54]
+5. Remy Le Duc, The EC Twins, Zen Freeman - In Motion (feat Shakeh - original mix)[06:29]
+6. Magnus - Hypnotic (original mix) [08:09]
+7. AJ Myst & Red Ant - Dune (Too Dusty remix)[05:19]
+8. Way Out West - Killa (Orkidea 2011 remix)[07:41]
+9. Rebels Without A Cause & York - Red Violin (Mario Hammer Lonely Robot remix)[07:57]
+10. Oliver Prime - Hello World (take 1)[07:35](   Читать дальше...   )2012Жанр: Trance, Progressive, UpliftingПродолжительность: 01:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15190C295DE5FE427EDCF4FD2CB9FCA5C4BD8B47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479946   (99007) от 08.04.2012
+
+VA - Trance Eve Volume 25 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99007.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Luke Bond feat. Emel - Amaze (Original Mix) (7:32)
+2. John Askew - Bastard (Original Mix) (7:56)
+3. Sean Tyas feat. David Berkeley - Believe (Original Mix) (8:11)
+4. Super8 - Cre8 (Mike Saint-Jules Remix) (7:51)
+5. Sarah Rogers - Do It Again (Gianni Kosta Extended Mix) (4:25)
+6. Sander Van Doorn - Drink To Get Drunk (Extended Version) (5:59)
+7. JIR3H-3 - Fly (Original Mix) (8:01)
+8. Solid Stone feat. Hanna Finsen - Helpless (Original Mix) (7:18)
+9. Roger Shah & Sian Kosheen - Hide U (Pumpin' Island Mix) (6:00)
+10. Ilya Bezlepkin feat. Monique - Hold On (Original Mix) (6:30)2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8807A4D60334DCA3804113C19084B4B482123BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479816   (99009) от 08.04.2012
 
 Smoke DZA - Cuz I Felt Like It Ep (2012) [MP3|320 кб/с]<Rap>
@@ -539,199 +749,6 @@ magnet:?xt=urn:btih:7E3E82E8B47825F03D6E2BDB76BBA57C72046C0F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1470F49DB7A1510234BDB60791E7F13C7CDEC40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478932   (99045) от 08.04.2012
-
-[Wallpapers] Windows 8_ Wallpapers
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая подборка обоев с логотипом windows 8.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8884846BC893584AF8774E3724D6B64BCC77831
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478779   (99046) от 08.04.2012
-
-Полумгла (2005) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зима 1945 года. Война близится к концу. В глухой северной деревушке бригада пленных немцев строит вышку для радиомаяка. Жители деревни — женщины и старики, чьи мужья и сыновья воюют или погибли на фронте — встречают пленных с понятной неприязнью.
-
-История взаимоотношений совершенно разных, враждебных друг другу людей, которым необходимо найти общий язык, — это притча о том, как человек может оставаться человеком, несмотря на роковые повороты мировой истории.Жанр: Драма, ВоенныйРежиссер: Артём АнтоновАктеры: Юрий Тарасов, Сергей Грязнов, Йоханнес Рапп, Анастасия Шевелева, Лидия Байрашевская, Мартин Яковски, Наталия Бурмистрова, Кристиан Сегевальд, Александр СтекольниковПродолжительность: 01:44:36
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480279   (99048) от 09.04.2012
-
-VA - Танцевальное Движжение 50/50 (2012) [MP3|224 kbps]<Club | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. EL Roosh - Ускоряет на танцполе
-02. Da Hool - No Love Anymore (Radio Edit)
-03. Банzай - Плачу с дождем (Dj XM & Syntheticsax Remix)
-04. Example & Klaas & PH Electro - Kickstarts (Freaky Dj's Mash-Up)
-05. Катя Самбука & Bob Djek & DJ Chika - Broadway (Breida)
-06. Bellini - Samba De Janeiro (Dj Shummi Extended Mashup)
-07. БебиSкул & Max DeLmar & Katy Soul - Oдинокие
-08. Sander Van Doorn - Koko (Original Mix)
-09. DJ Smash feat. DJ Rijov & ChinLong - На заре (Tony Gastello Radio Edit)
-10. Far East Movement & Snoop Dogg - If I Was You (Benny Benassi Remix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 07:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:157D2DD5DA748D386172462B7D5FF7E134736FC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479938   (99050) от 09.04.2012
-
-VA - Wellness Hotels (2012) [MP3|320 кб/с]<Downtempo, ChillOut, Lounge>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99050.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cura - Garden of Happiness (7:57)
-2. Ayurveda Garden - Dreams, Traume (5:56)
-3. Progressence - Melody of Soul (6:36)
-4. Musique Pour Des Montagnes - (Sun) Ascending & Descending (3:18)
-5. Schwarz & Funk - 5 Am (Original Mix) (5:11)
-6. Sanderson Dear - 092502 (5:55)
-7. Mikie Wilde - The Magican (5:15)
-8. Musique Pour Des Montagnes - A Chain of Wooded Mountains (12:20)
-9. Passalo - A New Day (3:18)
-10. Cane Garden Quartet - Ageless (5:52)2012Жанр: Downtempo, ChillOut, LoungeПродолжительность: 04:33 :49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:966B649CA72D5B46E331093F147A54FCD13CC923
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478665   (99051) от 09.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (05.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638E2B36BBD194462CA2A742ACCDDCA39416B348
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479821   (99052) от 09.04.2012
-
-Mariko Makino - On the Beach (2005) [MP3|320 кб/с]<New age, Relax>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99052.jpg" />
-</div>
-
-
-###  Подробнее
-
-(09:07) 1. Beibaisha
-(11:52) 2. Beyond the horizon
-(11:36) 3. Summer Dream
-(07:36) 4. Thinking back
-(10:43) 5. Stars of the night rain2005Жанр: New age, RelaxПродолжительность: 00:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FA2233151C4ED8678F1A1D9D6074C8153C8DFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480607   (99053) от 09.04.2012
-
-Desultor - Masters Of Hate (2012) [MP3|320 кб/с]<Progressive Death>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chapter 1: New Era 01:58
- 02. Black Monday 03:12Жанр: Progressive DeathПродолжительность: 00:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA3EA4730D959004C2798207AB67EB43999EA279
 ```
 
 

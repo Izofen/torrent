@@ -1,3 +1,208 @@
+###  Публикация: 480860   (99186) от 10.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls (10.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC276ECD85BE2801770F6E3D60C8C22644342FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481243   (99193) от 10.04.2012
+
+Каникулы в Мексике - 2. Ночь на вилле. Выпуск №27 (2012.04.10) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99193.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:933D252E9326D22AC945027504C94B9A8E262E5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480733   (99196) от 10.04.2012
+
+Дин Андерссон | Серия "Воительница" [2002] [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99196.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Воительница. Песнь Крови
+Злобная властительница подземного царства Хель лелеет дьявольские планы подчинить себе все живое на земле. А для этого ей необходимо вернуть Череп — огромный магический кристалл, в котором заключена большая часть ее силы. Череп похитил бывший слуга Хель некромант Нидхегг, с его помощью он создал собственное королевство. Тщетно насылала Хель на Ностранд полчища Всадников Смерти — Нидхегг легко отражал их атаки. И тогда пришел черед воительницы Фрейядис. Ее вела любовь к дочери, оставшейся заложницейв руках Хель. Ей помогала вера в победу и несравнимое воинское искусство. Ее ожидали тяжкие битвы и кошмарные застенки Ностранда, чудовищные пытки и леденящий кровь ужас. Но неистовая воительница и ее верные друзья преодолели все испытания и сокрушили мерзкого некроманта...2002Перевод: Л. Ворошилова, Н. ИшковФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E017E19633E7AB18D5F7D0647D00FFD2BD62045A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480867   (99197) от 10.04.2012
+
+Susan Justice - Eat Dirt (2012) [MP3|320 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born Bob Dylan
+02. Eat Dirt
+03. Forbidden Fruits
+04. Paper Planes
+05. I Wonder
+06. My Sweater
+07. Just Imagine
+08. Don’t Be A Stranger
+09. Hello Goodbye
+10. You Were Meant To Sing(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E87BBFFAE9B3C7E5E3D707BC927FD8C8729828
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481065   (99199) от 10.04.2012
+
+Rise To Fall - Defying The Gods (2012) [MP3|320 кб/с]<Modern Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascend to the Throne (3:35)
+02. The Compass (3:39)
+03. Whispers of Hope (3:57)
+04. Reject the Mould (4:05)
+05. Inflexible Kingdom (3:22)
+06. Instruction Cycle (3:22)
+07. Lost in Oblivion (3:31)
+08. Decoding Reality (4:03)
+09. Dare to Cross (3:50)
+10. Fall to Drama (5:00)(   Читать дальше...   )2012Жанр: Modern Melodic Death MetalПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7241D4EE08BA3F45188E4731AD76846EE6CDC61A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481079   (99203) от 10.04.2012
+
+Gaia Epicus - Dark Secrets (2012) [MP3|320 кб/с]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond The Universe 05:05
+02. Hellfire 03:28
+03. Lost Forever 05:13
+04. Mirror Of Truth 04:11
+05. Bounded By Blood 03:24
+06. Ode To The Past (Instrumental) 02:52
+07. Farewell 03:54
+08. The Raven 03:30
+09. Behind These Walls 03:34
+10. Falling Into The Abyss 04:58(   Читать дальше...   )2012Жанр: Power MetalПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76CE33CB7D8389B54B091651B69FA3C9C018A976
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480170   (99204) от 10.04.2012
+
+Alix Combelle - The Swinging Mister Alix (2000) [MP3|320 кб/с]<Saxophone Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy Rhythm
+02. Hang Over Blues
+03. Harlem Swing
+04. It Had To Be You
+05. When You're Smiling
+06. If I Had You
+07. Bouncin' Around
+08. Riding Along The Moscova
+09. Al's Idea
+10. Don't Get Tired(   Читать дальше...   )2000Жанр: Saxophone Jazz, SwingПродолжительность: 00:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1FDE0215A5A16211659AD4D38269E5F64DD24D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481163   (99208) от 10.04.2012
 
 FeedDemon 4.0.0.22 [Английский]
@@ -515,209 +720,6 @@ Volkerball - Weichen Und Zunder (2012) [MP3|224 кб/с]<Industrial Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47B2CA35806D19C41B39E92BB5A4D98A3F2A676C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480897   (99257) от 10.04.2012
-
-Ковалева из провинции (1975) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ТелеспектакльРежиссер: Игорь Владимиров, Майя МарковаАктеры: Алиса Фрейндлих, Анатолий Равикович, Алексей Петренко, Овсей Каган, Валерий Кузин, Ефим Каменецкий, Галина Никулина, Леонид Дьячков, Михаил Девяткин, Владимир Цибин, Цицилия Файн, Алексей Розанов, Ольга Осипова, Лидия ТрубниковаПродолжительность: 02:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A326604057C89DE8562A80B7FA78CDDCF3CC730
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481460   (99269) от 11.04.2012
-
-VA - Trance Maniacs Party: Melody Of Heartbeat #81 (10.04.2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99269.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DNS Project feat. Madelin Zero - Another Day (Markus Schulz Big Room Reconst)
-002. Cosmic Gate & Emma Hewitt - Be Your Sound (Extended Mix)
-003. Full Tilt feat. Deirdre MC Laughlin - Calling My Name (Extended Mix)
-004. Lost Witness vs. Antillas & Dankann feat. Sarah Jane Neild - Chasing Rainbows (Antillas & Dankann Dark Mix)
-005. Justin Dobslaw - Cold Snap (Andrew Rayel Remix)
-006. Roger Shah feat. Inger Hansen - Dance With Me
-007. Cerf, Mitiska & Jaren - Down To You (Pulser Vocal Mix)
-008. The Blizzard & Yuri Kane feat. Relyk - Everything About You
-009. Dennis Sheperd feat. Ana Criado - Fallen Angel (Dennis Sheperd Club Mix)
-010. JIR3H-3 - Fly (Original Mix)(   Читать дальше...   )10.04.2012Жанр: Vocal TranceПродолжительность: 03:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CEB73B36D68C727157C57E67842E778D6BB735F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480898   (99270) от 11.04.2012
-
-Pelican - Ataraxia/Taraxis (2012) [MP3|320 кб/с]<Instrumental Sludge / Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99270.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ataraxia
- 2. Lathe Biosas
- 3. Parasite Colony
- 4. Taraxis2012Жанр: Instrumental Sludge / Post-MetalПродолжительность: 00:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9564230BC0E89FA2BFFFBA280E285FC929D3E65D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481503   (99271) от 11.04.2012
-
-Hugh Coltman - Stories From The Safe House (2008) [FLAC|Lossless]<Acoustic, Pop Rock, Ballad>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sixteen [03:36]
-02. Voices [03:10]
-03. On My hands [05:17]
-04. Could You Be Trusted [03:51]
-05. Something Wicked This Way Comes [03:25]
-06. Where Did The Day Go [03:48]
-07. Greener Than Blue [03:39]
-08. All The Lovers Come And Go These Days [04:43]
-09. Magpie [03:20]
-10. As The Crow Flies [02:56](   Читать дальше...   )Жанр: Acoustic, Pop Rock, BalladФормат: CD, AlbumПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481162   (99274) от 11.04.2012
-
-VA - Хиты на радио клубнячек и попса vol.3 (2012) [MP3|320 кб/с]<Pop,Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99274.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Albina Mango - Счастье (Body Slam radio edit) (4:12)
-2. Alex Gray Feat Monica Harem - P.A.S.T.A (Protoxic Big Room Remix)2012Жанр: Pop,Dance, ClubПродолжительность: 04:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE9011DDB762F9325AF8FA35383F3512BF9D70CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480735   (99275) от 11.04.2012
-
-[Wallpapers] Desktop Wallpapers №17
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99275.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №17
-Название: Desktop Wallpapers №17
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6267521005DE107F1D8F12E55A7E34D3D842A28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481336   (99276) от 11.04.2012
-
-VA - Хиты на радио клубнячек и попса vol.4 (2012) [MP3|320 кб/с]<Pop,Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99276.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Andridi feat. Nils - Ангел (Original Mix) (5:59)
-2. Anton Neumark & Re-Zone ft Yana Fortep - Happy Day (Chris Count Remix) (7:00)
-3. Anton Neumark - IPMBF (Original Mix) (9:12)
-4. Anton Neumark - Sochi Olympics (Sly Dewars Vocal Mix) (7:37)
-5. Anton Neumark - Underground (Timer & Inkwell Remix) (Russian Version) (5:35)
-6. Anton Neumark ft Yana Fortep aka Amuse Boosh - Turn To U (Original Mix) (7:12)
-7. Anton Neumark pres Unreal Babes - Real Love (Re-Zone Rmx) (6:09)
-8. Anton Neumark, Stephano Noferini - Spaceball 2012 (Buenos Aires Live Mashup) (7:30)
-9. Aruba Ice & Cheeky Bitt - Видели Ночь (Cover Version) (4:40)
-10. Aruba Ice & Cheeky Bitt - Видели Ночь (Greysound Extended Mix) (6:22)2012Жанр: Pop,Dance, ClubПродолжительность: 04:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FC54D4FA477278E80AF18CD46A69DF3F264271
 ```
 
 

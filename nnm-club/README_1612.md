@@ -1,3 +1,51 @@
+###  Публикация: 1751808   (42267) от 27.09.2024
+
+Skype 8.129.0.201 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BC5A726D91D15019F2FF63343E5934404A3F839
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145973   (42268) от 27.09.2024
+
+Полное собрание фильмов о рыбалке братьев Щербаковых (2005) DVDRip (серии 1-63 из 68)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия учебных фильмов о снастях и различных способах рыбалкиТелекомпания: Братья ЩербаковыЖанр: Телепередача, Документальный, СпортУчастники: Братья ЩербаковыЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 63 серии ~ 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBACDCB22F7BF752B2D17BED48A9D2FF3E2D0887
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751710   (42269) от 27.09.2024
 
 Microsoft® Windows® 10 Professional VL x86-x64 22H2 RU by OVGorskiy 09.2024
@@ -584,60 +632,6 @@ VA - Deep-House Devotion, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep House, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B63187EB7AD13AF4B81C039CDF2582A0D77A46B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751740   (42293) от 26.09.2024
-
-Tantric Music Masters, Tantric Sex Background Music Experts - Erotic Oasis Tantric Arabic Music (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tantric Music Masters - Sensual Sands (2:31)
-02. Tantra Healing Paradise - Desert Tantra (2:36)
-03. Tantric Sex Background Music Experts - Arabian Sensations (2:53)
-04. Tantric Music Masters - Oasis Rhythms (2:35)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558B3D1BDA5ADE91D5A348A0135E2031C8C96958
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751739   (42294) от 26.09.2024
-
-Калинов Мост - Дастояр (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ребенком звонким
-02. Сон наградой
-03. Одинокий мир
-04. Белая вода(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93B4AB659631AA93A33F65852C6B0E29B2BA90BE
 ```
 
 

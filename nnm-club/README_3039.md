@@ -1,3 +1,212 @@
+###  Публикация: 459536   (95409) от 04.03.2012
+
+DJ Darrel - Happy Filthy Holidays (2011) [MP3|192 кб/с]<Drum&Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95409.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Throttler - Dark steel
+ 2. DJ Hidden - You're not real
+ 3. DJ Hidden - Dying star
+ 4. Seid - The Machine
+ 5. Switch Technique - The edge of chaos
+ 6. Eye-D & DJ Hidden - Rain
+ 7. Zeal & Litta - Screams of Another (Current Value remix)
+ 8. Nanotek - Venus
+ 9. Current Value - Warship
+ 10. Limewax - Aria(   Читать дальше...   )2011Жанр: Drum&BassПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8595AAA523113BD4B3B79F05DD81FECB12CCC070
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459346   (95410) от 04.03.2012
+
+Charlie Straight - Someone With a Slow Heartbeat (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How do you like my earrings (03:14)
+02. Changing trains (04:11)
+03. Dear Jack & Stacey (03:24)
+04. Tiger in your heart (04:59)
+05. Coco (03:41)
+06. Too many knives (03:14)
+07. Something new (05:42)
+08. Someone with a slow heartbeat (05:07)
+09. Stuck in the mud (04:12)
+10. Institutions of the World (05:31)(   Читать дальше...   )2012Жанр: RockПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0F1E3019904A80CCA2908A4A6847D1730528D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462344   (95416) от 04.03.2012
+
+Schallusion - Morphologic Tales (2012) [MP3|320 кб/с]<Goa Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaman 17:10
+ 02. The Aborigine 11:05
+ 03. Transcendance 07:54
+ 04. Harmonic Tales 10:49
+ 05. Crossover 08:59
+ 06. Collaborator 11:03
+ 07. Future Stomp 08:592012Жанр: Goa TranceПродолжительность: 01:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB20C2817CC8F55BC050A0B30441C1DEDBC3D1CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461984   (95430) от 04.03.2012
+
+[EN] Скет / Sket (2011) [H.264] DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда на молодую женщину безжалостно нападает печально известная бригада во главе с жестоким Треем, ее маленькая 16-летняя сестра Кайла хочет мести и не остановится ни перед чем, даже если придется присоединяться к конкурирующей женской бригаде...Жанр: КриминалРежиссер: Нирпал ХогалАктеры: Эшли Уолтерс, Лили Лавлесс, Айми Келли, Эмма Хартли МиллерПеревод: ОтсутствуетПродолжительность: 01:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02003CD8B160191511D2F30F22FD062F6162B290
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462374   (95435) от 04.03.2012
+
+Журнал | ХлебСоль №3 [март 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кулинарный журнал с Юлией Высоцкой.
+Мы знаем, что наши читательницы не стоят сутками у плиты. Поэтому не пропагандируем дорогие гастрономические редкости. Большинство рецептов журнала создано из тех ингредиентов, которые всегда под рукой и их запас легко пополнить в любом супермаркете. Мы думаем о таких же, как мы сами, молодых женщинах, которые активно работают, (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383AE7B7E4C0823F66513E6125A6A3C331647806
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462421   (95443) от 04.03.2012
+
+John McLaughlin with The One Truth Band - Electric Dreams (1979) [FLAC|Lossless]<Jazz fusion, jazz, world fusion>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95443.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Guardian Angels (0:52)
+2. Miles Davis (4:54)
+3. Electric Dreams, Electric Sighs (6:27)
+4. Desire and the Comforter (7:35)
+5. Love and Understanding (6:39)
+6. Singing Earth (0:38)
+7. Dark Prince (5:17)
+8. Unknown Dissident (6:18)1979Жанр: Jazz fusion, jazz, world fusionПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462305   (95448) от 04.03.2012
+
+Maysa - Motions of Love (2011) [APE|Lossless]<Smooth Jazz, Soul, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Wit Me (4:36)
+02. Come Dance with Me (3:34)
+03. Day N Night (5:00)
+04. Flower Girl (feat. Dwele) (4:01)
+05. Have Sweet Dreams (4:27)
+06. Motions of Love (4:02)
+07. You Won't Find Your Way (4:09)
+08. When It's Over (4:47)
+09. Love Sweet Love (LSL) (3:59)
+10. Hold On (5:27)(   Читать дальше...   )2011Жанр: Smooth Jazz, Soul, R&BПродолжительность: 00:59:26
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 458785   (95459) от 04.03.2012
 
 KISS - Dressed To Kill (1975) [MP3|320 кб/с]<Hard Rock, Rock>
@@ -517,231 +726,6 @@ CD1 Продолжительность: 01:17:27
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA3CA5391D961479704DD10A2E93748DBCC2CE4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462883   (95580) от 05.03.2012
-
-VA - Fresh, Sharp & Sweet (1996) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Miles Davis - Milestones (5:45)
-02.Sarah Vaughan - Wave (3:29)
-03.George Benson - Jumpin' With Simphony Sid (6:35)
-04.Weather Report - Birdland (6:01)
-05.Charlie Parker - A Night In Tunisia (4:45)
-06.Stan Getz - Diamond Pin (Diaper Pin) (2:42)
-07.Louis Armstrong - C'est Si Bon (3:32)
-08.Art Blakey - Carol's Interlude (5:36)
-09.Carmen McRae - Sometimes I'm Happy (3:27)
-10.Gerry Mulligan - Bernie's Tune (8:04)(   Читать дальше...   )1996Жанр: JazzПродолжительность: 01:18:31
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462912   (95588) от 05.03.2012
-
-Hot Club Zagreb - Hot Club Zagreb (2003) [FLAC|Lossless]<Swing, Gypsy>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Sandman (2:37)
-02. Dark Eyes (3:47)
-03. Django's Tiger (2:24)
-04. Tears (4:18)
-05. Sweet Georgia Brown (2:19)
-06. Limehouse Blues (2:51)
-07. September Song (3:24)
-08. Sheik Of Araby (2:12)
-09. Dinah (2:32)
-10. Swing 41 (3:28)(   Читать дальше...   )2003Жанр: Swing, GypsyПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462725   (95599) от 05.03.2012
-
-El Suerte & Friends - Cafe Latino (2002) [FLAC|Lossless]<Easy Listening>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Rio De La Pasiуn
-02. Songuara
-03. Nothern Light
-04. Colour Festival
-05. Solola
-06. Garifuna Rhythm
-07. Rice & Beans
-08. Orange Walk
-09. Catalina
-10. Esperanza(   Читать дальше...   )2002Жанр: Easy ListeningПродолжительность: 01:13:18
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462911   (95603) от 05.03.2012
-
-Alice Coltrane - Universal Consciousness & Lord Of Lords (2011) [FLAC|Lossless]<Jazz, Modern Composition>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Universal Consciousness (5:06)
-02. Battle At Armageddon (7:21)
-03. Oh Allah (4:55)
-04. Hare Krishna (8:16)
-05. Sita Ram (4:47)
-06. The Ankh Of Amen-Ra (6:13)
-07. Andromeda's Suffering (9:04)
-08. Sri Rama Ohnedaruth (6:12)
-09. Excerpts From The Firebird (5:43)
-10. Lord Of Lords (11:18)(   Читать дальше...   )2011Жанр: Jazz, Modern CompositionПродолжительность: 01:18:54
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462823   (95604) от 05.03.2012
-
-VA - Seashore Desire #23 (2012) [MP3|320 kbps] <Uplifting Trance, Dream Trance, Progressive Trance, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solesystem presents Mel-O-Maniacs - A Little Big Planet (Basil O'Glue Remix) [07:20]
- 02. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix) [08:28]
- 03. Orjan Nilsen - Atchoo! (Original) [07:16]
- 04. M.I.K.E. - Back In Time (Orjan Nilsen Refix) [07:44](   Читать дальше...   )Жанр: Uplifting Trance, Dream Trance, Progressive Trance, Trance
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B2E0B25A7C1C6BA98DC3EA132AFDE5726A0CFB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462905   (95613) от 05.03.2012
-
-Steve Weingart & Renee Jones - Dialogue (2011) [FLAC|Lossless]<Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Village (5:32)
-02. Restless (4:59)
-03. Back Down (5:37)
-04. Eethray (5:27)
-05. Lighthouse (5:04)
-06. Busy Day (5:39)
-07. Empty Chair (3:05)
-08. Spider Web (5:29)
-09. Tell Tales (4:59)
-10. Do Note Move (5:45)(   Читать дальше...   )2011Жанр: Jazz, FusionПродолжительность: 00:57:02
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462897   (95619) от 05.03.2012
-
-Roy Roberts - Deeper Shade Of Blue (1999) [FLAC|Lossless]<Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me Help You Tonight (3:52)
-02. Blues Get Off My Shoulder (3:19)
-03. Tonight Your Love Belongs To Me (3:47)
-04. Mr. D.J. (3:26)
-05. I Tried (5:29)
-06. I Can't Go On (3:47)
-07. I'll Chase Your Blues Away (6:17)
-08. Learning To Love You Again (3:24)
-09. My Shades Of Blue (5:29)
-10. I've Been Makin' Love (4:10)(   Читать дальше...   )1999Жанр: Modern Electric BluesПродолжительность: 00:5200
-
-## Скачать торент
-```bash
-нет
 ```
 
 

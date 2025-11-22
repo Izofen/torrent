@@ -1,3 +1,205 @@
+###  Публикация: 478083   (98705) от 05.04.2012
+
+Psycraft - Art Of Work (2008) [FLAC|Lossless]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98705.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. New Dance 06:10
+ 2. Memories Inside (with Dali) 07:42
+ 3. Take Control (Remake) (with X-NoiZe) 06:50
+ 4. Follow The Line (feat. Michele Adamson) 06:12
+ 5. Electromance (feat. Mikela) 04:05
+ 6. Frozen (feat. Efrat Darky) 03:46
+ 7. Electromance (Club Mix) (Bonus Track) 06:542008Жанр: Psychedelic / ProgressiveПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478588   (98706) от 05.04.2012
+
+[Wallpapers] Nature HD Wallpapers Pack 13
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98706.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature HD Wallpapers Pack 13 
+Название:  Nature HD Wallpapers Pack 13 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 4320х3240
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B421A45D44DA87FFF31AC9FAC1F3D4A537D41E8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478364   (98707) от 05.04.2012
+
+VA - Made In The 90s (2012) [MP3|224-283 kbps]<Pop | Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Des'ree - Life
+02. Lisa Stansfield - Never, Never Gonna Give You Up
+03. Swv - Right Herehuman Nature
+04. Backstreet Boys - Everybody (Backstreet's Back)
+05. Britney Spears - ...Baby One More Time
+06. Anastacia - I'm Outta Love (Radio Edit)
+07. Jimmy Cliff - Reggae Night
+08. Dr. Alban - It's My Life (Radio Edit)
+09. Alcazar - Crying at the Discoteque (Radio Edit)
+10. Kylie Minogue - Confide in Me (Radio Mix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 02:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E539371B52F56136F879BD997DAD657753BFA10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478582   (98709) от 05.04.2012
+
+Ночная посылка / Overnight Delivery (1998) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто из нас не совершал опрометчивые поступки, будучи всецело поглощенным жгучим чувством ревности? Услышав по телефону, что его девушка «ушла гулять с Рике-ром», Уайт первым делом напился. А так как она учится в другом колледже, он по совету случайной знакомой отправил прощальное письмо.
+
+В конверт срочной доставки он также вложил использованный презерватив и пару соответствующих фотографий. Утреннее сообщение на автоответчике гласило, что «Рикер» — это собака. Попробуй догони теперь эту ночную посылку.Жанр: Комедия, МелодрамаРежиссер: Джейсон БлумАктеры: Пол Радд , Кристин Тейлор , Риз Уизерспун, Сара Силверман , Баффи Седлачек , Ричард Коуди , Гари Вульф , Карл Энтони Пэйн II , Тим Макнифф , Гэйл ПлевацкиПеревод: Двуголосый закадровыйЯзык субтитров: русский, английскийПродолжительность: 01:27:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478208   (98711) от 05.04.2012
+
+Каникулы в Мексике - 2. Ночь на вилле. Выпуск №23 (2012.04.04) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98711.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:11:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAAE2DB0CBF08D75B9A7C894073A3E1CE98927B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478221   (98716) от 05.04.2012
+
+VA - Русский Best от DFM (2012) [MP3|256 kbps]<Pop | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Горячий Шоколад - Без Ума (Dj Vengerov Remix)
+02. Сергей Жуков - Девочка Из Прошлого (Alex Valenso Remix)
+03. Пицца - Надя (Cj Slick Gaspromo Remix)
+04. Dj Gold Sky Feat. Ассорти - Неземное Притяжение
+05. Юрий Шатунов - Розовый Вечер (Ural Djs Dance Mix Rework)
+06. Инфинити - Ну И Пусть (Radio Mix)
+07. Шахзода Feat. Dj Kirill Clash - Нереально Без Тебя
+08. Стас Пьеха - Мы Расстались С Тобой (Dj Kirill Clash Radio Remix)
+09. Градусы - Голая (Andrey S.P.L.A.S.H. Radio Remix)
+10. Dj Vengerov Pres. Dj Dwords Feat. Артур Пирожков - Пэрэдайз (Full Version)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:22:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26F91EE15CBAACF4B47D5FEF0D423BA0108369D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478556   (98717) от 05.04.2012
+
+[Wallpapers] Full HD Wallpapers Pack 7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98717.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Full HD Wallpapers Pack 7 
+Название:  Full HD Wallpapers Pack 7 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E08D4EF4D9B3705377841953B79C325DFE977D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477742   (98719) от 05.04.2012
 
 Стукачка / The Whistleblower (2010) DVD9
@@ -528,206 +730,6 @@ magnet:?xt=urn:btih:AFF100BA2C26A2C8B337B1E7252BE97D9CAC8F4C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FE05B79FA5F02283B228AAB5E64EA1E16CEBD4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478750   (98749) от 06.04.2012
-
-VA - TMP: Vanilla Dreams - 065 (24.03.2012) [MP3|320 kbps]<Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98749.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Emma Hewitt - Colours (Jerome Isma-Ae Remix)
-002. Eximinds - Forever Love (Original Mix)
-003. Ilya Bezlepkin feat. Monique - Hold On (Original Mix)
-004. Dennis Sheperd & Alan Morris feat. Sue McLaren - I Die (Album Extended Mix)
-005. Danyella & Tiff Lacey - Memories (Original Mix)
-006. George Acosta feat. Emma Lock - Never Fear (ATB Remix)
-007. Faruk Sabanci feat. Antonia Lucas - No Way Out (Original Vocal Mix)
-008. John O' Callaghan feat. Cathy Burton - Perfection (Shogun Remix)
-009. Foyle & Zo - Simple Things
-010. Exostate - Without Warning (Myon & Shane 54 Monster Mix)24.03.2012Жанр: Vocal TranceПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA0FDD1C60B406F3AE44D2D89AAFB51A94DDA19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478709   (98750) от 06.04.2012
-
-[Wallpapers] Cars HD Wallpapers (06.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F5D1FFA479B9449B596BE6149D148E3969B09C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478825   (98751) от 06.04.2012
-
-VA - April Club Party (2012) [MP3|160-320 кб/с]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98751.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. El Ray - Безлимитная любовь (Dj Denis Rublev & Dj Natasha Baccardi remix) (6:19)
-2. Леона Аврелина & Shaplin - Цунами (3:38)
-3. Vlad Bostan (Darwin) feat D.I.P Project - А Кто Я Для Тебя (DJ Vit Remiх) (4:09)
-4. Ilya Voice - Солнце Моё (Stereo People Radio Mix) (4:27)
-5. David Tort & Norman Doray - Chase The Sun (Original Mix) (3:46)
-6. Инфинити - Ты мой герой (club remix) (3:45)
-7. Смысловые Галлюцинации - Вечно молодой (Nejtrino radio mix) (4:03)
-8. Junior Caldera feat. Billy Bryan - What You Get (Original Radio Mix) (3:08)
-9. Alexey Romeo feat. JWell - Расправь Мои Крылья (Extented Mix) (6:40)
-10. Javi Reina & Syntheticsax - Oig (DJ V1t & Fast Food remix) (5:17)2012Жанр: ClubПродолжительность: 08:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9B00BAE462A7DD1D419DCEB184E188B9652500
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477669   (98753) от 06.04.2012
-
-Altar of Plagues - 6 альбомов (2006-2011) [MP3|128 - 320 кб/с]<Black Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neptune is Dead (18:44)
- 02. Feather and Bone (11:42)
- 03. When the Sun Drowns in the Ocean (08:17)
- 04. All Life Converges to Some Center (13:15)2006-2011Жанр: Black MetalПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478800   (98763) от 06.04.2012
-
-Журнал | СтройПодряд №11 [апрель 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельный иллюстрированный рекламно-информационный журнал, на страницах которого Вы найдете статьи и интервью о строительстве и обустройстве дома, наглядные идеи по дизайну интерьера, полезные рекомендации и советы по выбору материалов и инструментов, пошаговые инструкции по ремонту, уходу за домом и участком, а также много полезной информации о новинках рынка, товарах и услугах по ремонту и строительству.апрель 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E5E80518A1ACD9FBCBD50BB2C16E47EE901517
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478831   (98768) от 06.04.2012
-
-VA - The Chillout Lounge (2012) [MP3|320 kbps]<Chillout | Downtempo | Lounge>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Rio Sound System - Over & Over
-02 Rafael Lopez - Gypsy Drums
-03 Court Out - My World (feat Mary Lee - d&b mix)
-04 Smokey Tone - Luna Generosa
-05 Losing Genius - Changing World
-06 Uru Mystic Quartet - After Hours
-07 Diego Clamente - Glimpse Of Home
-08 Iboshim Sounds - Sunset On The Water
-09 Brothers Moreno - Time Tracking
-10 Modern Science - Sax Control(   Читать дальше...   )2012Жанр: Chillout | Downtempo | LoungeПродолжительность: 04:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F60EFD72478EA1DA5C8ACB5CE11196392E059F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479032   (98769) от 06.04.2012
-
-Журнал | АиФ. Спецвыпуск. Здоровье №3 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весна - это время, когда каждая женщина начинает с особым интересом и пристрастием разглядывать себя в зеркале. Хочется быть ещё более ухоженной, красивой, желанной. А что для этого необходимо? "АиФ" знает ответы на все вопросы и всегда старается помогать читателям.
-Сегодняшний спецвыпуск полностью посвящён вопросам ухода за собой. В нём вы найдёте ответы самых именитых врачей-косметологов на вопросы читателей "Аргументов и фактов".
-Что нужно для того, чтобы встретить весну во всеоружии? Подробности читайте в этом номере!2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F094B9CEB9C21A1123041FA8E34158CB1D81979A
 ```
 
 

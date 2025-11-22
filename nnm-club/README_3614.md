@@ -1,3 +1,190 @@
+###  Публикация: 1706290   (113649) от 12.03.2024
+
+Alex Winters - Unexpected Trespasses (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undone (2:52)
+02. I Should Know Better (4:29)
+03. More Than Friends (3:52)
+04. I'm On Fire (3:31)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C611379C3933BB9CA2B1F54CEFA06A567CA77684
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706324   (113650) от 12.03.2024
+
+The Dirty Doves - Tunes & Tribulations (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sip My Love (3:25)
+02. Dirty Doves (5:36)
+03. Celtic Rebel (3:32)
+04. Clarity (4:22)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97CD71A28C8C55FE1396178802731641FF6E8D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706191   (113651) от 12.03.2024
+
+Muzozoic - Fuzock (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oberek goes Dakar (5:55)
+02. From Empty to Nothing (3:55)
+03. Red Cat Samba (5:45)
+04. Telegram from Palermo (6:13)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA2BF415616647FE1A1143CB874D80FE41ED2C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706253   (113652) от 12.03.2024
+
+The Arthouse Tomatoes - On The Vine (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wildflower (3:19)
+02. Gunfighter's Heart (3:02)
+03. Driving Across the Desert (2:29)
+04. Kinda Miss the Heartbreak (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:223C2C785A3A43D8CD8D6E7D352907C14762CF97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706192   (113653) от 12.03.2024
+
+Peela - Notbad (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Notbad (4:09)
+02. Don't Touch My Pizza (3:38)
+03. Try Again (6:40)
+04. Liar (4:57)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86F6CE03ECD7FADCBA7E182C5D0A2D896ECB393
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706369   (113654) от 12.03.2024
+
+Vinegar 3.0.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113654.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouTube5 был расширением Safari, когда Flash был еще в ходу. Он заменил проигрыватель YouTube (написанный на Flash) <video> тегом HTML .
+И теперь ситуация с проигрывателем YouTube стала настолько плохой, что нам нужно другое расширение, чтобы исправить это. Вот где на помощь приходит Vinegar. Vinegar также заменяет проигрыватель YouTube с минимальным <video> (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.02.2024Разработчик: © 2022 Zhenyi TanПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1C2BFF871395FC227623AB449EE8E9AE1BA968
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706168   (113655) от 12.03.2024
+
+VA - Rock Aid Armenia. The Earthquake Album (1990) 1992 [FLAC 24/192|Lossless|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1.
+01. Smoke On The Water'90. (Blackmore-Glover-Lord-Paice)
+Rock Aid Armenia - 4.05
+02. Run To The Hills. (Iron Maiden)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EAF8C756B44B0BEA471600D6EE542F604D8A940
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706287   (113656) от 12.03.2024
 
 39 ступеней / The 39 Steps (1935) BDRip [H.264/720p] [MVO]
@@ -486,184 +673,6 @@ magnet:?xt=urn:btih:E15A8944494F44786B83B712CB37AE570A290740
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B7D25F78F67B5744FF1B35E8441ABFB0A9706BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706424   (113675) от 12.03.2024
-
-VA - Harmony in Hush: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - The Dream That Was Summer (Original Mix) (6:03)
-02. Michael E - Jhenna (Original Mix) (4:51)
-03. Marie Therese - Endless Time (Chillout Mix) (4:28)
-04. Florito - Saigon Morning (Original Mix) (4:05)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31D6533A50B1D21CFA57142A3C573FD43C500BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705854   (113676) от 12.03.2024
-
-Soft Cell - Bedsitter E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bedsitter (Remastered 2023) [00:03:36]
-02. Facility Girls (7" Single Version / Remastered 2023) [00:02:22]
-03. Bedsitter (Extended Version) [00:07:51]
-04. Facility Girls (12" Single Extended Version) [00:07:15](   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 00:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA493414BCDEA6D00785828423F9B66524C88F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706393   (113677) от 12.03.2024
-
-HWiNFO 7.73 Build 5385 Beta Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113677.jpg" />
-</div>
-
-
-###  Подробнее
-
-HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42CA05A3A6025AD8B75F0D4139A6BCD75DCE22C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706344   (113678) от 12.03.2024
-
-Журнал | Дачный спец №3 (март 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113678.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дачный спец» — журнал для всех, чья жизнь так или иначе связана с работой и отдыхом на земле. Независимо от уровня знаний в дачных делах, любой человек найдет в журнале именно то, что ему нужно: мнения и обзоры от известных в своей области специалистов, советы опытных дачников и садоводов, планировочные решения и мастер-классы от профессиональных дизайнеров, проверенные (   Читать дальше...   )Жанр: СадоводствоИздательство: ООО "Издательская группа "КАРДОС"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14306696D0584D9D045E77626FDCF8F711040736
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706328   (113679) от 12.03.2024
-
-These Wicked Rivers - Force of Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock / Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Force of Nature (3:53)
-02. The Family (3:18)
-03. Black Gold (3:36)
-04. Testify (5:01)(   Читать дальше...   )Жанр: Classic Rock / Blues RockПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93055D5DD92238EFEF99F1D6C6CC7CE7F2CE58A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706431   (113680) от 12.03.2024
-
-Invoices for Mac 3.5.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Invoices — это нативное приложение для Mac, позволяющее создавать и управлять коммерческими счетами, предназначенными для малого бизнеса.
-Используя Invoices, вы можете создавать коммерческие счета-фактуры с помощью простых операций щелчка мышью, вставляя предварительно заданные значения.Тип издания: macOS SoftwareРелиз состоялся: 08.03.2024Разработчик: © 2019-2024 Ecleti - Roberto PanettaПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26AF16945FEF14AA1CF40C1A3A022BE02CF30BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706392   (113681) от 12.03.2024
-
-Журнал | Дачный сезон №3 (март 2024) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательный журнал для садоводов и огородников — секреты больших урожаев. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации специалистов и многое другое.Жанр: Дом, сад, огород, дачаИздательство: ООО Бауэр МедиаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5653DFE0AE64CDEA19BC30A7D19C541AA86F4C8C
 ```
 
 

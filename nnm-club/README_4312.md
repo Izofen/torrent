@@ -1,3 +1,221 @@
+###  Публикация: 1681473   (132717) от 03.12.2023
+
+Deacon Street Project - One + Two (2023) 2 x CD, Compilation, Reissue, Remastered, 2023, Pride & Joy Music [FLAC|Lossless|image + .cue] <AOR, Arena Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc One:
+01. Radio (4:53)
+02. Changes (3:38)
+03. Caught Up In A Fear Of Loving (4:18)(   Читать дальше...   )Жанр: AOR, Arena Rock, Hard RockПродолжительность: 01:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:354A75BAF7DA892CE8B6E92EAE9AF7E3C384499F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681435   (132719) от 03.12.2023
+
+Ирина Кова | Цинична Умна Успешна (2023) [MP3, Инга Брик]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый человек, заинтересованный в своем успехе, в той или иной степени является «социальным альпинистом». Но далеко не все знают, как добраться до вершины Олимпа и добиться по-настоящему выдающихся результатов. Книга Ирины Ковы – это практическое руководство по социальному альпинизму, которое поможет вам:
+
+– подняться над коллегами и конкурентами в своей сфере; (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 02:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FC32D5DA61CD34AE19D596E9E9A5166BAE4FBB3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681443   (132720) от 03.12.2023
+
+Modus - Friends (1987) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132720.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Show Must Go On
+A2 Friends
+A3 Stallion In The Dawn
+A4 Where Do You Go?(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE706B5823E98F878BF8B6C1534663476060308
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595239   (132721) от 28.12.2012
+
+Michael Bolton - This Is The Time (1996) [FLAC|Lossless]<Pop Rock, Christmas>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Night [04:06]
+02. Santa Claus Is Coming To Town [04:06]
+03. Have Yourself A Merry Little Christmas [04:02]
+04. Joy To The World [04:07]
+05. Ave Maria (Duet with Placido Domingo) [04:42]
+06. The Christmas Song [04:10]
+07. O Holy Night [04:54]
+08. White Christmas [03:44]
+09. This Is The Time (Duet with Wynonna) [04:05]
+10. Love Is The Power [05:37]Жанр: Pop rock, ChristmasПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681586   (132723) от 03.12.2023
+
+Своя игра (03.12.2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8BA006534A2487E711452964EBAD5BBE3BCA77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681470   (132725) от 03.12.2023
+
+Kings Crown - Closer To The Truth (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Too Late (3:31)
+02. Servant (4:58)
+03. Still Alive (3:43)
+04. Standing On My Own (5:00)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C9EDF5AAA82638661DBD910492ED8079B1B26E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681465   (132727) от 03.12.2023
+
+Nitrate - Feel The Heat (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel The Heat (4:32)
+02. All The Right Moves (3:54)
+03. Wild In The City (4:49)
+04. Needs A Little Love (4:16)(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203380942A10A5ED9C1C97D3BF5B1FE73E6829E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681395   (132728) от 03.12.2023
+
+Xtrueder - Забытая Станция (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Радио 1 [00:00:44]
+02 - Ритуал [00:03:27]
+03 - Посейдон [00:03:39]
+04 - Маяк [00:01:51](   Читать дальше...   )Жанр: Rock, Drone MetalПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8296B1D4D046C02D7F2EF53365418E8A5ADCE63A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681458   (132730) от 03.12.2023
 
 Военная тайна с Игорем Прокопенко (02.12.2023) WEB-DL [H.264]
@@ -449,226 +667,6 @@ magnet:?xt=urn:btih:0758BC101D6CD68D369EEE6157BDD5C2CAE669C4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FAB0EA667931EFD63C90351748A709474B31BAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595435   (132756) от 28.12.2012
-
-Николай Прокудин | Остров Амазонок [2006] [RTF, FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый из нас, устав от монотонной жизни, порой мечтает о романтических путешествиях и увлекательных приключениях. А если фантазии и грезы вдруг превращаются в реальность?!
-
-Эта книга – о нашем соотечественнике, который отправился в обычную служебную командировку, а его занесло за тридевять земель, в тридесятое царство, в доисторическое, родоплеменное государство. Кем он только не побывал! И вершителем истории, и монархом на таинственном острове, и спасателем кругосветной экспедиции...
-
-Но зачем же мы будем пересказывать, если Вы сами можете прочитать?Формат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E196363409E65B2FDE2D408390551DE5DD56F8F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681459   (132757) от 03.12.2023
-
-Vitalines - Wheels Within Wheels (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judgement Day Is Here (4:47)
-02. Love Not Fantasy (4:23)
-03. Hello World - We Need To Talk (3:23)
-04. Cards From Another Game (4:15)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5BCB312A1BE6DF06E9D5A38869CBE475E19DEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681496   (132759) от 03.12.2023
-
-Ewiniar - Another World (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Rock, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shattered Illusion [00:03:29]
-02. Your Name [00:03:34]
-03. Cyanide [00:03:52]
-04. Sister Moon [00:04:14](   Читать дальше...   )Жанр: Gothic Metal, Rock, Female VocalsПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25450314467E9AF82F0F72087DCF4A7E47A73AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595247   (132760) от 28.12.2012
-
-New year wallpapers 2013 (26.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:051DEF00C069A12E4AB7EC1BC551BF6F36903320
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681475   (132761) от 03.12.2023
-
-Way2far - Red Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirage- Lost in the Desert [00:04:54]
-02. Red Star [00:04:52]
-03. Devil's Flame [00:05:23]
-04. You Can't Hurt Me [00:04:31](   Читать дальше...   )Жанр: Melodic Metal, Female VocalsПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10ECB7AA15A1C1DF2CE7A70554BA1B3B3B029DB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593991   (132762) от 28.12.2012
-
-Diplo & Friends - Dada Life Guest Mix (23.12.2012) [MP3|320 кб/с]<House / Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dada Life - Happy Violence (Vocal Mix)
-02.TJR - Ode To Oi 
-03 .Qulinez - Bamf 
-04.Dada Life - Rolling Stones T-Shirt 
-05.Sebjak - Follow Me (Gregori Klosman Remix)
-06.Mick Kastenholt & Andrew Dee - One Two Fuck You 
-07.Jochen Miller - Cheer Up
-08.R3hab & ZROQ - Skydrop
-09.Dada Life - Feed The Dada
-10.Basto! - Stormchaser(   Читать дальше...   )Жанр: House / Electro HouseПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1237169CD6FC6FB190446ACCC45163CE4AEE6258
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681512   (132763) от 03.12.2023
-
-PlasmaTrout - Fire When Ready (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faded [00:03:19]
-02. Your Prize [00:04:20]
-03. Diverge [00:04:38]
-04. Fire When Ready [00:03:50](   Читать дальше...   )Жанр: Hard Rock, Garage RockПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A453C41BF249DFB0FED213260D509C0C9CFCAE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681654   (132765) от 03.12.2023
-
-Night In Gales - Ashes & Ends (2014) Compilation, Remastered, 2014, Divebomb Records [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deathaddiction
-02. The Woundwalker
-03. Ashes & Ends
-04. Get Killed Or Die Trying(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8D4F6E6AECFE10AFBD86FC13B0454B52C7C089
 ```
 
 

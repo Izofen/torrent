@@ -1,3 +1,192 @@
+###  Публикация: 1741750   (105615) от 08.08.2024
+
+Cody Dickinson - Homemade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Homemade Blues (3:14)
+02. Big City (2:22)
+03. Walk Right In (3:02)
+04. Goodbye Albuquerque Tuesday Night (3:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D009F71CCCC74ACE453FD064BC75BCC3D92A386E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741730   (105616) от 08.08.2024
+
+AJ Fullerton - Closer (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Almost There (2:49)
+02. Oh Frustration (3:47)
+03. Get By (3:11)
+04. New Stories (3:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE9E56E981CA4111AC149192A27F380B0B0BD705
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741898   (105617) от 08.08.2024
+
+Kaisas - Ieria (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ieria (1:32)
+02. Sad Action (5:47)
+03. Pretty Blonde (5:00)
+04. (She Is Just So) Heavy Metal (5:31)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8774B40CC963F60D9600D72BF9163878CDA91653
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741836   (105618) от 08.08.2024
+
+King Gizzard & The Lizard Wizard - Flight b741 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirage City (4:48)
+02. Antarctica (4:32)
+03. Raw Feel (4:17)
+04. Field of Vision (3:35)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B32FC4C627D597E67AEE09DD41210F42A0DC8CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741765   (105619) от 08.08.2024
+
+Jay Lang - Blues, Vol. 1 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Honey (2:47)
+02. No Name (4:08)
+03. Hopalong Tracy (3:21)
+04. Short Skirt (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59238553C09EA3B9BA1D543125B450954B4DD5C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741864   (105620) от 08.08.2024
+
+In Aphelion - Reaperdawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Extreme Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fields in Nadir (6:08)
+02. A Winter Moon's Gleam (6:01)
+03. When All Stellar Light Is Lost (4:34)
+04. The Darkening (7:14)(   Читать дальше...   )Жанр: Extreme MetalПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D312662023A7A0A1DBF0B9B0D8DFCA2CABA0D9ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741810   (105621) от 08.08.2024
+
+Mister Misery - Mister Misery (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Root of All Evil
+02. Erzsebet (The Countess)
+03. Eye of the Storm
+04. Hand of Death(   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44A4DD0CBB76AA24D7160A396B39D62A4DEFD28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741557   (105622) от 07.08.2024
 
 Tony Ivan O'hara - Harder Times (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -497,193 +686,6 @@ The Red Earth Blues Band - 308 Red (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:583A1E7487F7F20D9B40ED47F78DB0EE18893B64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741648   (105641) от 07.08.2024
-
-Наталья Корнева | Зачем ты вновь меня томишь, воспоминанье (2023) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105641.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Однажды в дверь учителя каллиграфии постучался новый ученик.
-К чему приведёт любовь к искусству красивого письма?" (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6146A842852C26E10BD30890623199CD91D5BEEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741559   (105642) от 07.08.2024
-
-VA - Funky Jazz House Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Belladonna - Inspiration Zone (Belladonna Jazzy Remix) (10:43)
-02. Don Carlos - House of Blues (8:21)
-03. Ltj Xperience - Stronger (6:07)
-04. Clan Greco - Rotation (Eric Kupper Remix) (6:30)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 02:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A0B669733FB30E71700B22993CCEE63A206952B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741548   (105643) от 07.08.2024
-
-Soul.Blues - The Easy Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groove 2 (5:17)
-02. Mind to Travel (5:11)
-03. Serves You Right to Suffer (7:03)
-04. Smoke on the Water (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE37862999BFBA3BD9132DEACF598032E2C0CA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741540   (105644) от 07.08.2024
-
-Jay Lang - Jay Lang and the Devil's Due (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mississippi Bound (3:39)
-02. Preachin' Blues (3:56)
-03. My Mama Crazy (3:04)
-04. Leave My House (3:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F7E5B17AC0106DCFFB123C2D583F70106E46D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741530   (105645) от 07.08.2024
-
-Blues Pickers - Night Avenue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time (4:33)
-02. Uptown Blues (4:25)
-03. Down in Mississippi (6:25)
-04. John the Revelator (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D4513382FF6E99BF95A32B0CAFAA61AD275A8D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741553   (105646) от 07.08.2024
-
-The Honey Badgers - Shakin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken Boy Blues (4:00)
-02. Shakin' (3:33)
-03. Since You've Been Mine (5:39)
-04. Drinkin' and Thinkin' (2:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECF03E1B60F53C765034503837FE6A944EC5DAD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741549   (105647) от 07.08.2024
-
-The Achievers - Easy Going Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Going Days (3:44)
-02. Free Hugs (4:13)
-03. 400 Rabbits (3:00)
-04. How Long (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51F57FE82260BC5D4C41CF9657EB70DCA7D43C0
 ```
 
 

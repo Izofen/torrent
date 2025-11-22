@@ -1,3 +1,379 @@
+###  Публикация: 1656575   (203055) от 31.08.2023
+
+Puhdys - Puhdys Live (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock & Roll, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203055.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Sturmvogel
+A2 Perlenfischer
+A3 Sterne Verspaten Sich Nie
+B1 Ikarus II(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1CF28EF9E05935C863CA97D823895B01242E12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656552   (203173) от 31.08.2023
+
+Cliff Richard/Клифф Ричард - Лучшие Песни Клиффа Ричарда (1977) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203173.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Как Только Ты Ушла • The Minute You're Gone
+A2 Честное Слово • On My Word
+A3 Когда Тебя Нет Со Мной • The Time In Between
+A4 Отпусти Меня • Wind Me Up (Let Me Go)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E61452C9C6E7AEF199D480DD15A53C0FC43247D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656497   (203349) от 30.08.2023
+
+Haggard - Studio Albums (3 releases) (2000-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Classical/Orchestral/Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Haggard — немецкий музыкальный проект, исполняющий симфонический метал. Основан в 1989 году гитаристом, вокалистом и композитором Азизом Нассери, который является автором всей музыки и текстов Haggard. Группа фактически представляет собой оркестр, состоящий из множества музыкантов, играющих на разных инструментах, характерных как для рока, так и для классической (   Читать дальше...   )2000 - Awaking the Centuries
+2004 - Eppur Si Muove
+2008 - Tales of IthiriaЖанр: Classical/Orchestral/Symphonic MetalПродолжительность: 02:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797F95D5B116B6390A84A57163CE1955E99D3179
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656345   (203370) от 30.08.2023
+
+Turbo - Heavy Waters (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203370.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Heavy Waters
+A2 House Of The End Of The Road
+A3 Get That Beat
+A4 Wake Me(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F2395F15CECEDD3EC5C0D21159D9AC9E6F83E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656257   (203527) от 29.08.2023
+
+Legion of the Damned (f.k.a. Occult) - Studio Albums (12 releases) (1994-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Legion of the Damned — голландская трэш-метал/дэт-метал группа. Была основана в 1992 году как Occult, в 2005 году сменила название на Legion of the Damned.2005 - Malevolent Rapture - In Memory Of
+2007 - Sons Of The Jackal
+2008 - Feel The Blade
+2008 - Cult Of The DeadЖанр: Death/Thrash MetalПродолжительность: 09:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A62A075CEA9CE6CBD4D5123F025155C00852838
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567596   (203562) от 25.01.2023
+
+Muse - Studio Albums (10 releases) (1999 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks + .cue] <Alternative rock, progressive metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Muse — британская рок-группа, образованная в 1994 году в городе Тинмут (графство Девон).
+Группа состоит из трёх участников: Мэттью Беллами (вокал, гитара, клавиши), Криса Уолстенхолма (бас-гитара, бэк-вокал, вокал) и Доминика Ховарда (ударные).1999 - Showbiz
+2001 - Origin Of Symmetry
+2003 - Absolution
+2006 - Black Holes And Revelations(   Читать дальше...   )Жанр: Alternative rock, progressive metalПродолжительность: 10:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBA7EF7B7B54B620C338E049529D44B629B3255
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152990   (203599) от 24.01.2023
+
+The Shocking Blue - Golden Hits (1991) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_203599.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Venus
+A2 Shocking You
+A3 Send Me A Postcard
+A4 Long And Lonesome Road(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE01C253D456D1B59789DCB8FEA0F866E12B44B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656086   (203631) от 29.08.2023
+
+Katz - Дуэт Katz. Швеция (1987) Лицензия от World Record Music [FLAC|24/192|image + .cue|Viny-lRip] <Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203631.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Необыкновенная Женщина • Female Of The Species
+A2 Все, Что Я Могу, - Любить Тебя • Loving You Is All I Know
+A3 О Чем Ты Думаешь • What Goes On In Your Mind
+A4 Танцующие Туфельки • Dancing Shoes(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6670368A67381097772F3523C9C683F473CF8AF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655732   (203748) от 28.08.2023
+
+Norther - Studio Albums (7 releases) (2002-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Norther (сильный северный ветер) — мелодик дэт-метал группа из Финляндии.2002 - Dreams of Endless War
+2003 - Mirror of Madness
+2004 - Death Unlimited
+2006 - Till Death Unites UsЖанр: Melodic Death/Power MetalПродолжительность: 05:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908F32F299D493744B4B5C15CD5B743391BD093A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655843   (203795) от 28.08.2023
+
+Emerson, Lake & Powell - Эмерсон, Лейк И Пауэлл (1987) ВФГ Мелодия, лицензия от Polydor [FLAC|24/192|image + .cue|VinylRip] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_203795.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Score • Счет
+A2 Learning To Fly • Учимся Летать
+A3 The Miracle • Чудо
+B1 Touch And Go • Рискованная Игра(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF43BC248540E603C906DEC9C075587250AC43B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604059   (204160) от 12.01.2023
+
+Мираж - МИРАЖ-III (оригинал) (1991) [FLAC 2.0|48/24|tracks|MB-Rip] <Pop, Dance, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_204160.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:52] Я жду тебя
+[4:40] Ты словно тень
+[5:52] Солнечный ЗайчикЖанр: Pop, Disco, DanceПродолжительность: 00:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8D3AECEA25FDDF7DD68C3CE06561BE1374F282
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655542   (204266) от 26.08.2023
+
+Kreator - Hate Uber Alles (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204266.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Sergio Corbucci Is Dead
+A2 - Hate Uber Alles
+A3 - Killer Of Jesus
+A4 - Crush The Tyrants(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8A925B03EC6C3823AA02235C891C97B281DC8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655501   (204295) от 26.08.2023
+
+SPAN - Studio Albums (2 releases) (2004-2005) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204295.jpg" />
+</div>
+
+
+###  Подробнее
+
+SPAN — норвежская рок-группа, образованная в 2000 году.
+Расформирована в 2005 году.2004 - Mass Distraction
+2005 - Vs. TimeЖанр: Hard RockПродолжительность: 02:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56AD5AE651BFC5D0ACB821AB4293C61D6AE00683
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655257   (204462) от 25.08.2023
+
+Игорь Романов и группа «Союз» - Красный Свет (1990) [FLAC|24/192|image + .cue|VinylRip] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_204462.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Осторожней, Сталкер
+A2 Стрелы
+A3 Диктатор
+B1 Племена(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3AE30BC92F8C225A78AD535510DB0078DB00FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655086   (204616) от 24.08.2023
 
 Mastodon - Remission (2002) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive, Sludge Metal>
@@ -187,6 +563,34 @@ magnet:?xt=urn:btih:F787043A0FC2CB2B0C08B19421C4317098EA5DB4
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582513   (206229) от 10.10.2022
+
+AC/DC - Studio Albums (7 releases) (1990 - 2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206229.jpg" />
+</div>
+
+
+###  Подробнее
+
+AC/DC  — австралийская рок-группа, сформированная в Сиднее в ноябре 1973 года выходцами из Шотландии, братьями Малькольмом и Ангусом Янгами.
+Наряду с такими группами, как Led Zeppelin, Deep Purple, Queen, Iron Maiden, Scorpions, Black Sabbath, Uriah Heep, Judas Priest и Motörhead, AC/DC часто рассматриваются как пионеры хард-рока и хеви-метала. Сами же музыканты (   Читать дальше...   )1990 - The Razors Edge
+1995 - Ballbreaker
+2000 - Stiff Upper Lip
+2008 - Black Ice(   Читать дальше...   )Жанр: Hard RockПродолжительность: 05:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B244C7F29869C1B9F72CAA8D9CD2C49EEF44573
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650659   (206467) от 12.08.2023
 
 Eleine - Studio Albums (5 releases) (2015-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
@@ -214,484 +618,82 @@ magnet:?xt=urn:btih:6E5CAD9E055657ADBC21805EB2D811DF9AF0DEE4
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648695   (207678) от 29.07.2023
+###  Публикация: 1311369   (206695) от 03.10.2022
 
-VA - In Love - Greatest Love 5 (1991) Compilation, Gatefold [FLAC|24/96|image + .cue|Vinyl-Rip] <Blues, Pop>
+Middle Of The Road - Middle Of The Road (1972/1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Classic Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206695.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Elton John - Sacrifice
-A2 George Michael - Father Figure
-A3 Oleta Adams - Get Here
-A4 Michael Bolton - How Am I Supposed To Live Without You(   Читать дальше...   )Жанр: Blues, PopПродолжительность: 02:08:47
+A1	The Talk Of All The USA
+A2	Samson And Delilah
+A3	Try A Little Understanding
+A4	Louise(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: Pop Rock, Classic Rock
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E9F590C921E9D61B07375F29E70216C75049BAA
+magnet:?xt=urn:btih:EDE1ED0C9C05634CFAF60E03361524E05D29FEE8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646379   (207751) от 28.07.2023
+###  Публикация: 1530138   (206839) от 01.10.2022
 
-VA - K-Tel's 40 Super Greats (1975) 2 x LP, Compilation, Gatefold [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Soul, Funk>
+Slipknot - Studio Albums (8 releases) (1997 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Nu Metal, Groove Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_207751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206839.jpg" />
 </div>
 
 
 ###  Подробнее
 
-00:58:06
-A1 Hues Corporation – Rock The Boat
-A2 Tymes – Ms Grace
-A3 Ken Boothe – Everything I Own(   Читать дальше...   )Жанр: Pop Rock, Soul, FunkПродолжительность: 02:00:47
+Slipknot — американская ню-метал-группа, образованная в сентябре 1995 года в Айове, США.1997 - Mate.Feed.Kill.Repeat
+1999 - Slipknot (10th Anniversary Edition)
+2001 - Iowa (10th Anniversary Edition)
+2004 - Vol. 3 (The Subliminal verses)Жанр: Nu Metal, Groove MetalПродолжительность: 09:28:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0A84CF59998A6BABC00C21E7C4A63BA5802AECB0
+magnet:?xt=urn:btih:1050291E06C2252D8BA123877438EB18260F506E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645674   (209153) от 11.07.2023
+###  Публикация: 1183813   (206927) от 06.08.2023
 
-VA - 22 Superhits (1976) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Glam, Country, Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209153.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Hot Chocolate - You Sexy Thing
-A2 Silver Convention - Save Me
-A3 Chequers - Rock On Brother
-A4 Drifters - Hello Happiness(   Читать дальше...   )Жанр: Pop Rock, Glam, Country, SoulПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BBC4E9ACA3EF0514DC61B52F614085D892AE85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645475   (209223) от 10.07.2023
-
-VA - Bars Of Gold (1977) Compilation, Gatefold [FLAC|24/192|image + .cue|Vinyl-Rip] <Funk, Pop Rock, Easy Listening>
+Rockets - Atomic (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Italo-Disco>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_209223.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Manuel & The Music Of The Mountains - The Windmills Of Your Mind
-A2 Cliff Richard - Spanish Harlem
-A3 Bobbie Gentry - Ode To Billy Joe
-A4 Roger Whittaker - Dirty Old Town(   Читать дальше...   )Жанр: Funk, Country, Pop Rock, Easy ListeningПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD8D4E54EAE979C637F7A47C69564A37CD4CC0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642386   (210315) от 28.06.2023
-
-Леонид Агутин - Летний Дождь (1998) [FLAC 2.0|44,1/16|tracks|MC-Rip] <Latin, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210315.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Не Унывай!
-A2 Летний Дождь
-A3 Полночи
-A4 Танцевали Пары(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57C4B6B7ECC3820126283DEC211B08B454D5722
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641447   (210780) от 22.06.2023
-
-А. Журбин, Ю. Димитрин - Орфей и Эвридика. Зонг-опера в 2х частях (1980) Box Set, 2LPs [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock-Opera, Modern>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_210780.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Орфей полюбил Эвридику…
-A2 Первый дуэт Орфея и Эвридики и песня Орфея («Когда поет Орфей»)
-A3 Хор вестников («Близится, близится…»)
-A4 Сцена прощания(   Читать дальше...   )Жанр: Rock-Opera, ModernПродолжительность: 01:27:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFF4AC77BF50A3704E82B84B4F0FB9D6C5FCD82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640518   (211108) от 18.06.2023
-
-Alice Cooper - Легенды Зарубежного Рока (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_206927.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Side A:
-01. Poison
-02. Hey Stupid
-03. Feed My Frankenstein(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:30:32
+01 Atomic
+ 02 Some Other Place, Some Other Time
+ 03 Star Vision(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50A56115793206BD7460245434412BB5EC6706E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640068   (211409) от 16.06.2023
-
-Bathory & Quorthon - Studio Albums (8 releases) (1994-2003) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Black/Viking Metal, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bathory — шведская группа, внёсшая значительный вклад в развитие блэк-метала и викинг-метала, возникшая в Стокгольме в 1983 году. В составе Bathory побывало множество музыкантов, но лидером в начале творческого пути и фактически единственным участником в конце был музыкант-мультиинструменталист Quorthon.АЛЬБОМЫЖанр: Black/Viking Metal, Thrash MetalПродолжительность: 07:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:407B5A3C6067B04B9BFBA040B26DADB14FCF09C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639869   (211473) от 15.06.2023
-
-Uriah Heep - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classic Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Sunrise (The Magician Birthday)
-02. July Mornin' (Look At Yourself)
-03. Return To Fantasy (Return To Fantazy)(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:29:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C712DB72B74F771C8CCB2D9B8C39F647EBEB45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639009   (211804) от 11.06.2023
-
-Janis Joplin - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Half Moon
-02. Me And Bobby McGee
-03. Piece Of My Heart
-04. Move Over(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B2EC3EA1552B50F7040E67FAA32B619846642D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638614   (211934) от 09.06.2023
-
-Axel Rudi Pell - Легенды Зарубежного Рока (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_211934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Hear You Calling Me
-02. Nasty Reputation
-03. Dreams Of Passion(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA6FAB84FC4BA1F43C91B6643E388F302776B9CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638374   (212054) от 08.06.2023
-
-Sweet - Легенды Зарубежного Рока (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Glam Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_212054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Set Me Free
-02. Keep It In
-03. Give The Lady Some Respect(   Читать дальше...   )Жанр: Glam RockПродолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABBB3609798A7AC5A9202CBF01CA363336DD64D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832287   (213540) от 30.10.2025
-
-Alkonost - Studio Albums (15 releases) (2004-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Pagan/Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алконост — российская фолк-метал группа, образованная в Набережных Челнах,  Республика Татарстан в 1995 году.2004 - Between The Worlds
-2006 - Межмирье
-2006 - Путь Непройденный
-2007.1 - Песни Вечного ДреваЖанр: Pagan/Folk MetalПродолжительность: 11:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906218C82AA30C8B47261EEF2C3CEC4C1E1C6E97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653979   (213667) от 18.08.2023
-
-Asia - Astra (1985) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Prog Rock, Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213667.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Go
-A2 Voice Of America
-A3 Hard On Me
-A4 Wishing(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3874243E70F4E3A7B443B1D14C4566ED417DBF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652921   (213671) от 18.08.2023
-
-Kreator - Endorama (1999) AFM Records, Reissue 2022 [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_213671.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Golden Age
-A2 Endorama
-A3 Shadowland
-B1 The Chosen Few(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06469C1096A26FC42BB87F979892593406538DE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653299   (214043) от 17.08.2023
-
-ELO (Electric Light Orchestra) - Discovery (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock, Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214043.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Shine A Little Love
-A2 Confusion
-A3 Need Her Love
-A4 The Diary Of Horace Wimp(   Читать дальше...   )Жанр: Pop Rock, Prog Rock, Symphonic RockПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22BDD8CC9582039405F5DEF751DCDEABED0FE55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653669   (214264) от 17.08.2023
-
-Asia - Asia (1982) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214264.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Heat Of The Moment
-A2 Only Time Will Tell
-A3 Sole Survivor
-A4 One Step Closer(   Читать дальше...   )Жанр: Pop Rock, Prog RockПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4BA8AC14B7F5B6963C6A316363423C56132203D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653322   (214374) от 17.08.2023
-
-Asia - Alpha (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_214374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alpha
-A1 Don't Cry
-A2 The Smile Has Left Your Eyes
-A3 Never In A Million Years(   Читать дальше...   )Жанр: Pop Rock, Symphonic RockПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A42E6A5A78A9883EA18C93959CF9F44C9B54D5B
+magnet:?xt=urn:btih:5929F34C01947677489C02587F85081084710E76
 ```
 
 

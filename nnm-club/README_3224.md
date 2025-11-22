@@ -1,3 +1,190 @@
+###  Публикация: 1756334   (103508) от 20.10.2024
+
+НХЛ 2024-2025. Вашингтон Кэпиталз - Нью-Джерси Дэвилз (19.10.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103508.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 октября 2024, воскресенье. 02:00 МСК. Стадион: Пруденшиал-центр (Ньюарк, США), 16 514 зрителей (94% при вместимости 17 625)
+Главный судья: Картер Сандлак (Лондон, Канада); Главный судья: Крис Руни (Бостон, США)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151F1A180957D03281724AB8519D804650BA3B02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756161   (103509) от 19.10.2024
+
+NRBQ - Brass Tacks (2014) 10th Anniversary Edition, 2024, Omnivore Recordings [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waitin' On My Sweetie Pie [00:02:55]
+02. Greetings From Delaware [00:03:31]
+03. Sit In My Lap [00:02:39]
+04. Fightin' Back [00:03:31](   Читать дальше...   )Жанр: RockПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB02E80C4AC3812AC3D2BA33E49BA628AE57EBEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756192   (103510) от 19.10.2024
+
+Smash Atoms - Smash Atoms (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bring The River (3:23)
+02. Black Cloud (3:19)
+03. Buried Under The Open Sky (3:41)
+04. Dead Season (4:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1BC0CCA4998E5A2E1E4F3636D0F50E6E64AD7C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756184   (103511) от 19.10.2024
+
+Malakye Grind - Dystopian Dream (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Night (4:04)
+02. Every Day Is Perfect (4:18)
+03. Seaside Cowboy Cult (2:33)
+04. The Not List (2:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7C45189AEC8973DD34B2BFB27D259C4EE0B86B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756176   (103512) от 19.10.2024
+
+Flamy Grant - CHURCH (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do It for the Song (4:01)
+02. Revenge (3:39)
+03. How to Find the Words (4:37)
+04. Start Again (M.J.'s Song) (4:05)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B60993AC442ECAA2FB987213DE2EA55F7B2B4F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755678   (103513) от 19.10.2024
+
+Eddie Henderson - Collective Portrait (2015) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunburst [8:21]
+02. Dreams [9:56]
+03. Morning Song [7:40]
+04. You Know I Care [5:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C566C59E7F7B92CBEC29CDCD032E09D37B1AFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756179   (103514) от 19.10.2024
+
+Heather Pierson - Back To The Light (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dusty House Blues (2:59)
+02. Up Here In The Mountains (4:04)
+03. Feel Something (3:06)
+04. Nails Trimmed and Clean (2:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73AE7198EFFFDA05EA3E055AA7B2385833FADC8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756167   (103515) от 19.10.2024
 
 Burna - Live Forever (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -495,190 +682,6 @@ Aeonblack - Metal Bound (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A37E538D58EAF7B4A4E4E9BC438C145F81AEC76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755680   (103534) от 19.10.2024
-
-Jef Neve - That Old Feeling (2023) Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Old Feeling (feat. Madeleine Peyroux) [6:38]
-02. Something So Right (feat. Sam Merrick) [5:29]
-03. Here's to Life (feat. Trijntje Oosterhuis) [7:48]
-04. Here Comes the Rain Again (feat. Sam Sparro) [4:49](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream Jazz, Contemporary JazzПродолжительность: 00:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3418DD262FDB6F1644E96A250F0E7649094C6FBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756168   (103535) от 19.10.2024
-
-Swallow The Sun - Shining (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Gothic-Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innocence Was Long Forgotten [00:04:20]
-02. What I Have Become [00:04:06]
-03. MelancHoly [00:03:38]
-04. Under the Moon & Sun [00:06:09](   Читать дальше...   )Жанр: Gothic-Doom MetalПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E341BF07204A2EC33B27709BED5FA5185A63EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756177   (103536) от 19.10.2024
-
-Gato Barbieri - Standards Lost And Found 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terre Lontane (6:24)
-02. So What (10:55)
-03. Softly, As In A Morning Sunrise (3:36)
-04. All Blues (10:54)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277846C82F5C2CCEBF35646E2C44D08DBDA73A74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756143   (103537) от 19.10.2024
-
-Biest - Labyrinth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gift (4:02)
-02. M.E.D.U.S.A. (3:25)
-03. Nimm mich mit (4:00)
-04. Labyrinth (4:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D1C82A72E636D76D06212B60741C5DEA323FC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756063   (103538) от 19.10.2024
-
-WaveStudio (WaveEditor Record & Edit Audio) v1.112 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компактный аудиоредактор с большим количеством фильтров и эффектов. В наличии возможность записи с микрофона и удобный инструмент для перекодирования аудиофайла.
-WaveEditor для Android™ — это профессиональный инструмент для редактирования, записи и мастеринга аудио. WaveEditor также поддерживает большое количество типов файлов, что делает его подходящим для преобразования (   Читать дальше...   )Тип издания: ProРелиз состоялся: 19.10.2024Разработчик: Sound-Base Audio, LLCПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3614F547596D43109A52F710C8BBB76D3EE02BBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756197   (103539) от 19.10.2024
-
-Power Battle Watch Car | Лига WatchCar. Битвы чемпионов [2016, TV, 52 эп.] WEBRip 1080p rus
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ближайшее будущее. Крупная корпорация JH Motors создает высокотехнологичные игрушечные автомобили для детей Watch-Car, оборудованные чипом с искусственным интеллектом (AI). Турниры с участием Watch-Car завоевывают мировую популярность. Главный герой Джино с автомобилем BlueWill входит в Боевую Лигу участников чемпионата и мечтает о победе. Джино с друзьями целыми (   Читать дальше...   )Производство: SAMG Entertainment (Южная Корея)Жанр: ПриключенияРежиссер: Ли Ён-джунЯзык озвучки: Русский (Дубляж)Субтитры: ОтсутствуютПродолжительность: 52 эп. по 15 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8757EE6B0D8EFA5190DB8E31D984DAAE9F87DAFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756148   (103540) от 19.10.2024
-
-Bronski Beat - The Age of Consent (1984) 40 Year Anniversary Edition, 2024, London Records (Because Ltd) [FLAC 16-24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heatwave (Harvey Goldberg Remix) (Hundreds & Thousands Version) [00:05:42]
-02. Why? (Harvey Goldberg Remix) (Hundreds & Thousands Version) [00:06:18]
-03. Run From Love (Dominic Maita Remix) (Hundreds & Thousands Version) [00:08:15]
-04. Hard Rain (Harvey Goldberg Remix) (Hundreds & Thousands Version) [00:08:12](   Читать дальше...   )Жанр: SynthpopПродолжительность: 2 CD, 02:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC538ADBBA3E7DE0B286EFE588A4AB3E1B73C838
 ```
 
 

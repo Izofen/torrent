@@ -1,3 +1,206 @@
+###  Публикация: 480897   (99257) от 10.04.2012
+
+Ковалева из провинции (1975) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ТелеспектакльРежиссер: Игорь Владимиров, Майя МарковаАктеры: Алиса Фрейндлих, Анатолий Равикович, Алексей Петренко, Овсей Каган, Валерий Кузин, Ефим Каменецкий, Галина Никулина, Леонид Дьячков, Михаил Девяткин, Владимир Цибин, Цицилия Файн, Алексей Розанов, Ольга Осипова, Лидия ТрубниковаПродолжительность: 02:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A326604057C89DE8562A80B7FA78CDDCF3CC730
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481460   (99269) от 11.04.2012
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #81 (10.04.2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99269.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DNS Project feat. Madelin Zero - Another Day (Markus Schulz Big Room Reconst)
+002. Cosmic Gate & Emma Hewitt - Be Your Sound (Extended Mix)
+003. Full Tilt feat. Deirdre MC Laughlin - Calling My Name (Extended Mix)
+004. Lost Witness vs. Antillas & Dankann feat. Sarah Jane Neild - Chasing Rainbows (Antillas & Dankann Dark Mix)
+005. Justin Dobslaw - Cold Snap (Andrew Rayel Remix)
+006. Roger Shah feat. Inger Hansen - Dance With Me
+007. Cerf, Mitiska & Jaren - Down To You (Pulser Vocal Mix)
+008. The Blizzard & Yuri Kane feat. Relyk - Everything About You
+009. Dennis Sheperd feat. Ana Criado - Fallen Angel (Dennis Sheperd Club Mix)
+010. JIR3H-3 - Fly (Original Mix)(   Читать дальше...   )10.04.2012Жанр: Vocal TranceПродолжительность: 03:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CEB73B36D68C727157C57E67842E778D6BB735F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480898   (99270) от 11.04.2012
+
+Pelican - Ataraxia/Taraxis (2012) [MP3|320 кб/с]<Instrumental Sludge / Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99270.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ataraxia
+ 2. Lathe Biosas
+ 3. Parasite Colony
+ 4. Taraxis2012Жанр: Instrumental Sludge / Post-MetalПродолжительность: 00:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9564230BC0E89FA2BFFFBA280E285FC929D3E65D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481503   (99271) от 11.04.2012
+
+Hugh Coltman - Stories From The Safe House (2008) [FLAC|Lossless]<Acoustic, Pop Rock, Ballad>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixteen [03:36]
+02. Voices [03:10]
+03. On My hands [05:17]
+04. Could You Be Trusted [03:51]
+05. Something Wicked This Way Comes [03:25]
+06. Where Did The Day Go [03:48]
+07. Greener Than Blue [03:39]
+08. All The Lovers Come And Go These Days [04:43]
+09. Magpie [03:20]
+10. As The Crow Flies [02:56](   Читать дальше...   )Жанр: Acoustic, Pop Rock, BalladФормат: CD, AlbumПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481162   (99274) от 11.04.2012
+
+VA - Хиты на радио клубнячек и попса vol.3 (2012) [MP3|320 кб/с]<Pop,Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99274.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Albina Mango - Счастье (Body Slam radio edit) (4:12)
+2. Alex Gray Feat Monica Harem - P.A.S.T.A (Protoxic Big Room Remix)2012Жанр: Pop,Dance, ClubПродолжительность: 04:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9011DDB762F9325AF8FA35383F3512BF9D70CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480735   (99275) от 11.04.2012
+
+[Wallpapers] Desktop Wallpapers №17
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99275.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №17
+Название: Desktop Wallpapers №17
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6267521005DE107F1D8F12E55A7E34D3D842A28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481336   (99276) от 11.04.2012
+
+VA - Хиты на радио клубнячек и попса vol.4 (2012) [MP3|320 кб/с]<Pop,Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99276.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Andridi feat. Nils - Ангел (Original Mix) (5:59)
+2. Anton Neumark & Re-Zone ft Yana Fortep - Happy Day (Chris Count Remix) (7:00)
+3. Anton Neumark - IPMBF (Original Mix) (9:12)
+4. Anton Neumark - Sochi Olympics (Sly Dewars Vocal Mix) (7:37)
+5. Anton Neumark - Underground (Timer & Inkwell Remix) (Russian Version) (5:35)
+6. Anton Neumark ft Yana Fortep aka Amuse Boosh - Turn To U (Original Mix) (7:12)
+7. Anton Neumark pres Unreal Babes - Real Love (Re-Zone Rmx) (6:09)
+8. Anton Neumark, Stephano Noferini - Spaceball 2012 (Buenos Aires Live Mashup) (7:30)
+9. Aruba Ice & Cheeky Bitt - Видели Ночь (Cover Version) (4:40)
+10. Aruba Ice & Cheeky Bitt - Видели Ночь (Greysound Extended Mix) (6:22)2012Жанр: Pop,Dance, ClubПродолжительность: 04:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96FC54D4FA477278E80AF18CD46A69DF3F264271
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481551   (99277) от 11.04.2012
 
 365ТВ: Рамзес Великий / Ramesses the Great (1996) SATRip
@@ -536,189 +739,6 @@ magnet:?xt=urn:btih:37E1A98867791D6D2BAF27893C541E8A2DF2643F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4893FCA754D17071C6FC678A3FD75E8EE142D7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481529   (99310) от 11.04.2012
-
-Журнал | Кухни & ванные комнаты №12-1 [2011 декабрь - 2012 январь] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Кухни и ванные комнаты" содержит актуальную информацию об основных стилях и направлениях, последних дизайнерских и технологических решениях, новых материалах, идеи и полезные советы по обустройству кухонь и ванных комнат в целом, включая декорирование и аксессуары.2011 декабрь - 2012 январьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC138AFC2D673ABF760885F27A08CF846964D126
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481311   (99311) от 11.04.2012
-
-С. Колосова, Л. Поливалина | Магия соусов и пряностей [2000] [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена соусам и пряностям. Именно они придадут неповторимый вкус вашим кулинарным шедеврам. Воспользуйтесь рецептами использования различных пряностей, «возраст» которых превышает тысячелетия, и вы почувствуете себя настоящими кудесниками-кулинарами.Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481613   (99313) от 11.04.2012
-
-Wise Disk Cleaner v7.21 build 478 Final + Portable [Multi(Rus)]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Disk Cleaner - программа для быстрого и легкого освобождения свободного места на жестком диске. Утилита удаляет ненужные мусорные файлы, которые не используются программами, установленными в вашей системе. Программа может определять более 50 типов мусорных файлов, и вы можете сами добавлять любые типы файлов, которые считаете мусором. После того, как программа просканирует систему на наличие мусорных файлов, можно индивидуально посмотреть каждый файл и подробную информацию о нем, после чего решить, стоит ли его удалять.
-
-Это программа предназначенная для поддержания вашего жесткого диска в чистоте и порядке тем, что она удаляет ненужные и устаревшие файлы. Обычно эти файлы возникают в результате неполного удаления во время деинсталляции программ, или как временные файлы интернета и т.п. Лучше всего время от времени их удалять, поскольку они могут со временем занять довольно большое пространство на вашем жестком диске. Wise Disk Cleaner с его интуитивно понятным и удобным интерфейсом поможет вам легко избавиться (   Читать дальше...   )Название программы: Wise Disk CleanerЯзык интерфейса: Multi(Rus)
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481546   (99315) от 11.04.2012
-
-Т. Воробьева, Т. Гаврилова | Блюда из птицы и мяса [2004] [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99315.jpg" />
-</div>
-
-
-###  Подробнее
-
-В предлагаемой книге подробно и доступно описаны лучшие рецепты приготовления различных блюд из мяса говядины, свинины, баранины и птицы. Здесь вы также найдете полезные советы, которые помогут узнать тонкости кулинарии. С помощью рецептов этой книги вы сумеете приготовить вкусные и полезные блюда и порадовать ими своих гостей.2004Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106FB729C7F81B15D07447B1EB3AD2B7B548FCC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481735   (99317) от 11.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 31
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99317.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers Pack 31 
-Название:  Girls Desktop Wallpapers Pack 31 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 5616х3744
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85701B4C8AA224A95AB421364890449885A1669B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481745   (99320) от 12.04.2012
-
-Simple Man - Galactic Prophecy (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live Planet 09:02
- 02. Pulsar 09:11
- 03. Venus 06:51
- 04. Piece Forest 05:59
- 05. Magic Live 06:17
- 06. Aliens 07:48
- 07. Universe 05:58
- 08. Supernova 07:47
- 09. Ganesha 09:32
- 10. Festival On A Space Station 07:48(   Читать дальше...   )2012Жанр: Psychedelic / ProgressiveПродолжительность: 01:22:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1070F48FAE4F547C08BE9201B2765600AEF5AD18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482066   (99321) от 12.04.2012
-
-[Wallpapers] Best HD Wallpapers Pack (12.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6429FA4D2EF71FB4900762D525D1FAACD259B001
 ```
 
 

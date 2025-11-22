@@ -1,3 +1,187 @@
+###  Публикация: 1711915   (112271) от 01.04.2024
+
+Emilie Simon - Polaris (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip-hop, Electro-pop, Downtempo, Indie Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Soleil (00:03:46)
+02 - Forteresse (00:02:53)
+03 - Secrecy (00:03:41)
+04 - Mon tigre aile (00:04:02)(   Читать дальше...   )Жанр: Trip-hop, Electro-pop, Downtempo, Indie-ElectronicПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7B5BFDD6AF4068E78D8CE4987AAB2C96BB49C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712023   (112272) от 01.04.2024
+
+CudaText 1.211.4.0 Portable + addons [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112272.jpg" />
+</div>
+
+
+###  Подробнее
+
+CudaText — абсолютно бесплатный мультиплатформенный редактор текста, но скорее, предназначен для написания кода. Как и все современные редакторы кода, поддерживает подсветку синтаксиса и готовые блоки кода для быстрой вставки готовых последовательностей. На данный момент программа поддерживает полторы сотни различных языков программирования.
+Дополнительно, возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74EC28A7467BBDC63F89917414590CCB93A36E77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711940   (112273) от 01.04.2024
+
+Unleash The Tapir - Unleash The Tapir (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Miss Take (00:09:15)
+02 - Traffic Jam (00:03:52)
+03 - Still (00:09:34)
+04 - Hope (00:05:52)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4A06A64840A01C7F6A4132BF151E4DDE08756D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711901   (112274) от 01.04.2024
+
+Ничего кроме человека / Nothing But a Man (1964) HDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гордый чернокожий мужчина Дафф и его жена Джози, работающая в школе учителем, сталкиваются с расовой дискриминацией в Америке 1960-х годов.Производство: США / DuArt Film and Video, Nothing But a Man CompanyЖанр: драма, мелодрамаРежиссер: Майкл РемерАктеры: Иван Диксон, Эбби Линкольн, Джулиус Харрис, Глория Фостер, Мартин Прист, Леонард Паркер, Яфет Котто, Стэнли Грин, Хелен Лунк, Хелен АрринделлПеревод: Авторский (Алексей Яковлев)Язык озвучки: русский, английскийСубтитры: английские (full, SDH), русскиеПродолжительность: 01:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C544BF807CCB54E59A4E5A57D93711EE68FE18C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711916   (112275) от 01.04.2024
+
+Lockeheart - All Of Us Divine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dead Hand Blossom (00:05:58)
+02 - Where The Light Fell Behind (00:05:01)
+03 - In Death The Gods Will Sing (00:05:08)
+04 - Our Pelagic Dream (00:05:00)(   Читать дальше...   )Жанр: Gothic-Metal, Industrial-MetalПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7568DDAB6DEF831A4F4818AB5BBCB31A685A8FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711941   (112276) от 01.04.2024
+
+Stoned Turtle - Blackout (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sweet (00:04:02)
+02 - Blackout (00:03:07)
+03 - What Are You Waitin' For (00:04:31)
+04 - Crazy For You (00:04:34)(   Читать дальше...   )Жанр: Alternative Rock, Progressive RockПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E558724A3C113C6D28D4EB28AD00CCFD69967A12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712086   (112277) от 01.04.2024
+
+Flood - Ripped Into Exile (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ripped Into Exile 03:56
+02. Autopsied Atheism 04:35
+03. Burial 05:29
+04. Dreamt 05:19(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48DAC4A5B37533C716F58A14BB99D16EA872A9A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712044   (112278) от 01.04.2024
 
 Candi Carpenter - Demonology (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
@@ -473,184 +657,6 @@ magnet:?xt=urn:btih:E0714F35108EF3BB14570B0EF97A9005F495444D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50211A61724D1F2C7DFD1ECF26C89A804E253C8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712028   (112297) от 01.04.2024
-
-PrivaZer 4.0.84 Free + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112297.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018C7E809EDF646D1EBE29A6BFE8D119631A46D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712027   (112298) от 01.04.2024
-
-Avi Rosenfeld & John E Mendel - Instead Of Worrying (2024) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Could Be Wrong (03:50)
- 02 - I Love You My Baby (03:51)
- 03 - Instead Of Worrying (03:59)
- 04 - Tell Me (04:40)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C9105788BCA01071D79047C35E70CEBA41F14AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711987   (112299) от 01.04.2024
-
-Roger Meno - The Singles Collection (2023) Compilation [FLAC|Lossless|image + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Find The Way (Extended Version) 6:46
-02. Love, Good-Bye (Extended Version) 6:29
-03. Do You Really Go (Extended Version) 6:10
-04. What My Heart Wanna Say (Extended Version) 6:05(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3DB000C395B8A61E07E89C82CF07A94BF707FCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712116   (112300) от 01.04.2024
-
-USB Device Tree Viewer 4.2.0.0 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112300.jpg" />
-</div>
-
-
-###  Подробнее
-
-UsbTreeView - маленькая портативная утилита, реализующая большую, по сравнению со стандартным средством, наглядность представления USB портов, хабов и устройств, посредством древовидного списка и поля информации, с возможностью копирования текста простым выделением. UsbTreeView основан на образце USBView из комплекта драйверов Windows Server 2003, но дополнен: лучшими (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E7BBC6CFFF65B3FA560AA863160FED81F7898D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712095   (112301) от 01.04.2024
-
-А.И. Раскатов | Задачник по электротехнике и электрооборудованию (1964) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга создержит задачи по электротехнике, теоретическим основам электротехники, электрическим машинам, электрическим сетям и электроприводу. В каждом разделе книги даны краткие пояснения и формулы для решения задач. В конце книги помещен справочный материал, к которому приходится прибегать при решении задач.
-Задачник предназначен в качестве учебного пособия для техникумов (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28F5B46F6FD82225B3EE667581DA4A1980F06F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711961   (112302) от 01.04.2024
-
-Topaz Photo AI 2.4.2 (x64) RePack (& Portable) by TryRooM [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8368DA0917750C99D901287DB841927633A10342
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711926   (112303) от 01.04.2024
-
-Anyma - Genesys II (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive-House, Melodic-House, Techno, Trance, Psy-Trance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Avantgarde, Anyma - Eternity (Massano Remix) (6:03)
-02. Anyma - Pictures Of You (Cassian Remix) (4:04)
-03. CamelPhat, Anyma - The Sign (Kevin de Vries Remix) (4:03)
-04. Grimes, Anyma - Welcome To The Opera (Adriatique Remix) (5:14)(   Читать дальше...   )Жанр: Progressive-House, Melodic-House, Techno, Trance, Psy-TranceПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A4EBF015EC1541840FC7B7971A52DF404439F9
 ```
 
 

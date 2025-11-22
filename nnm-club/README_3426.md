@@ -1,3 +1,175 @@
+###  Публикация: 1726452   (108761) от 28.05.2024
+
+Н.И. Гольдфарб | Физика. Сборник задач для 10-11 класса (2021) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие представляет собой сборник задач по всем разделам школьного курса физики, в который включены вопросы и задания различной степени сложности. Даются ответы и решения, раскрываются методы решения типовых задач.Жанр: Учебная литература по физике, сборники задач по физикеЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04E8EEC30B581C924F1676108E895C1D7E7F053
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726340   (108762) от 28.05.2024
+
+Andrew William | ESL Classroom Games: 180 Educational Games and Activities for Teaching ESL/EFL Students (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108762.jpg" />
+</div>
+
+
+###  Подробнее
+
+The book features a wide variety of reading, writing, speaking and listening games and activities which are suitable for teen and adult learners alike. With focus on warm-up, repetition and drilling, team-based, spelling and grammar, speaking and pronunciation, memory and concentration, turn-based and one-on-one games. It's broken down into games for beginner, intermediate (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CreateSpace Independent Publishing PlatformФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5997703CF08B402DED99BA614728EE10A4947FB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726366   (108763) от 28.05.2024
+
+Журнал | Linux Format №313 (2024) [PDF][EN]
+
+>>Журналы
+>>Компьютерные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux Format — первый ежемесячный журнал, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью. Информационное наполнение (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Future Publishing LimitedФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5101F83151A62F77C88531D9C304D429D6228C30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726299   (108764) от 28.05.2024
+
+Фрагмент страха / Fragment of Fear (1970) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший наркоман Тим живет в Лондоне. Ему удалось не только избавиться от пагубной привычки, но и даже написать об этом книгу. Однажды Тим отправляется отдыхать на итальянский курорт вместе со своей тетей Люси. Тетушка рассказывает Тиму, что она организовала благотворительное общество, призванное помогать бывшим заключенным. Но вскоре Люси обнаруживают задушенной.Производство: Великобритания / Columbia PicturesЖанр: ужасы, триллер, драма, криминал, детективРежиссер: Ричард С. СарафьянАктеры: Дэвид Хеммингс, Гейл Ханникат, Уилфрид Хайд-Уайт, Флора Робсон, Адольфо Чели, Роланд Калвер, Дэниел Мэсси, Мона Уошборн, Артур Лоу, Юта ДжойсПеревод: Многоголосый профессиональный (5-й канал СПб)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6397CD9DF024ACAA66625C0E1F9A4512A2BB40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726359   (108765) от 28.05.2024
+
+John Hughes | ETpedia: 1,000 Ideas for English Language Teachers (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108765.jpg" />
+</div>
+
+
+###  Подробнее
+
+ETpedia is an essential resource for those who teach English as a second or foreign language. It provides novice teachers and those who are in the early years of their careers with 1,000 creative tips, techniques, questions, thoughts and ideas on common teaching and classroom issues.
+Each section covers a different aspect of teaching and offers a selection of 10 (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Pavilion PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C036D1F5055520696401D55BC33976D21B59BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726483   (108766) от 28.05.2024
+
+Photo Lab PRO v3.13.10 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Lab PRO - супер-лаборатория фотоприколов у вас в кармане. Встречайте PRO-версию приложения Photo Lab! Неограниченные возможности для создания фотоэффектов, анимированных фотокарикатур, аватарок, виртуальных открыток, заставок на телефон, фотомонтажей и фотоприколов!Тип издания: ProРелиз состоялся: 27.05.2024Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE78AF1834F50DB4C01F680AE70E2DBFDCF49841
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726411   (108767) от 28.05.2024
+
+VA - Hotel & SPA Best Background Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sésion de los flores - Capricho (4:23)
+02. Gries - Spring Village (4:25)
+03. Mark Cello - Atardecer (4:09)
+04. Hohe Minne - Serene Thoughts (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2236E61401F0CFFEBA96C1D84D34AA9A69A0E04E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726426   (108768) от 28.05.2024
 
 Smart AudioBook Player 10.9.0 Mod by Alex.Strannik [Ru/Multi]
@@ -494,192 +666,6 @@ Ilan Kunik - The Casino Club - Positive & Funky Comedy Grooves (2024) [FLAC 24/4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17E842A7059B7C27860A22B89F21D2D7A811AF4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726180   (108787) от 27.05.2024
-
-Pacifico - Success, Luck and Happiness (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autocontrol
-02. Digital Slaves
-03. Horizons
-04. Love Screens(   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DDC04D2A0DF5800C701C05BDD847141E3057E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725956   (108788) от 27.05.2024
-
-Мёртвая Сторона - Потерянные временем (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время [00:05:13]
-02. Пепел и тьма [00:04:07]
-03. Поминальная [00:06:12]
-04. Невод [00:03:24](   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFC5251406499643CB0A435A440D01E3BDD16B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726271   (108789) от 27.05.2024
-
-VA - Metal Massacre 08 (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Thrash>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108789.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Sacred Reich - Ignorance
-A2 - Viking - Hellbound
-A3 - Overlorde - Keeper Of The Flame
-A4 - Fatal Violence - Violence Is Golden(   Читать дальше...   )Жанр: Heavy Metal, ThrashПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36F4B727F418FDC3BC9C4B9D35C444900863152
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725971   (108790) от 27.05.2024
-
-Unnamed Feeling - Наша Последняя Ночь (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Проснись [00:00:49]
-02. Хейла-Боппа [00:03:04]
-03. Болен [00:04:01]
-04. Влюбился [00:05:17](   Читать дальше...   )Жанр: RockПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90495473519E9EA06FD091E00CDA9E69D48C1C87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726199   (108791) от 27.05.2024
-
-PhotoRoom 4.9.7 (b1411) Mod by CMAPTOC [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108791.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 24.05.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BE7BA238E9B605E20B6C461073F5C10A2F4A4A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726211   (108792) от 27.05.2024
-
-Jeffrey Stevenson - Hypsometric (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hit Me Up (6:16)
-02. Despite the Circumstances (6:59)
-03. After Hours (6:54)
-04. Hypsometric (9:15)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28A96D8E5E2EB898029EA14C532896DA3D7AC26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726185   (108793) от 27.05.2024
-
-The Boxx Orchestra - The Horn of Plenty (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock / Female Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daybreak (07:30)
-02. Message at the Bleep (07:18)
-03. Go for the Night (04:44)
-04. Simple Love Songs (05:13)(   Читать дальше...   )Жанр: Progressive Rock / Female VocalПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAFC923CCAE2BDF03E08DA0C0EAE239575F30E44
 ```
 
 

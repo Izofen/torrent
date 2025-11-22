@@ -1,3 +1,57 @@
+###  Публикация: 1794427   (67256) от 29.04.2025
+
+Michael Bublé - Crazy Love (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry Me a River    [0:04:14.56]
+02. All of Me    [0:03:07.64]
+03. Georgia on My Mind    [0:03:08.17]
+04. Crazy Love    [0:03:31.22](   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA379758BA7C64DB79BA58FF0A2584CE1954BA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794586   (67257) от 29.04.2025
+
+Prost - Believe Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lone Survivor (4:33)
+02. Believe Again (4:39)
+03. Comfort Zone (3:54)
+04. Never Let You Go (4:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF94B29FAA76DB9B548E9AAECC51582F5CE7EA0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794587   (67258) от 29.04.2025
 
 Redemption - The Hard Way (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
@@ -610,60 +664,6 @@ magnet:?xt=urn:btih:92CE3060F3B988678896DACEDE1EA3876E543470
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B887FB2EC9B8E30B4948882AC213A12CAEEF323D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794032   (67282) от 28.04.2025
-
-Aeonyzhar - The Profane Era (2025) [MP3|320 Kbps] <Symphonic Death, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Age Of Enlightenment
-02. I Spit In The Face Of Forgiveness
-03. Hymn Of The Golden Age
-04. Divine Hybrid Euphoria(   Читать дальше...   )Жанр: Symphonic Death, Black MetalПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D6425D132FDD67BBB3CE786522585B917F2CAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793956   (67283) от 28.04.2025
-
-A.R.A.T.A.N - Chants Nerviens (2025) [MP3|320 Kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Pont-De-Loup À Saint-Ghislain
-02. Noir Terril
-03. Aux Marches Picardes
-04. Aegir Initié(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00: 41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A3A1C9F5CC37B5150903876803007773534319
 ```
 
 

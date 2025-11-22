@@ -1,3 +1,352 @@
+###  Публикация: 1174717   (137140) от 31.12.2021
+
+Северный Флот - 5 Альбомов, 4 Сингла (2014-2021) [FLAC|Lossless|tracks + .cue|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская рок-группа. Основана музыкантами группы «Король и Шут» в 2013 году после смерти Михаила Горшенёва. Выбором названия для группы послужила одноимённая песня «Короля и Шута» из альбома «Бунт на корабле», написанная Михаилом Горшенёвым. На выбор названия коллектива, помимо одноимённой песни, также повлияло то, что Михаил Горшенёв в шутку ассоциировал свою (   Читать дальше...   )2014 - Все внутри
+2016 - Грехи (TODD) (Single)
+2016 - Мизантропия
+2017 - Live in MoscowЖанр: RockПродолжительность: 04:08:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA798DFD06A62C56F95F5B3E2E6D57BFA224D753
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601463   (137282) от 31.12.2022
+
+Борис Гребенщиков - Песни Бардов (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137282.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Элегия
+2. Примета
+3. Песенка о Солдатских Сапогах
+4. Неистов и Упрям(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25273673E8FC0544B3165E9BFC1F5C8C7C90121D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601487   (137364) от 31.12.2022
+
+ДДТ (DDT) - Стая (2022) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137364.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. СтаяЖанр: RockПродолжительность: 00:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33542102DA1602DE6884CB0CE24336FFA8DA275
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601472   (137366) от 31.12.2022
+
+Борис Гребенщиков - Песни Бардов (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137366.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Элегия
+2. Примета
+3. Песенка о Солдатских Сапогах
+4. Неистов и Упрям(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0F6FC4B9D357D55D384658B8D602328D8C2D82E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210636   (137385) от 31.12.2021
+
+Alex Harvey / The Sensational Alex Harvey Band - 10 albums, 22 CD (1972-2018) [FLAC|Lossless|image + .cue | tracks+.cue] <Hard Rock, Progressive Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137385.jpg" />
+</div>
+
+
+###  Подробнее
+
+SAHB - это общепринятое аббревиатурное сокращение названия группы. Алекс Харви (Alex Harvey) – «старейший панк Британии», как его однажды отрекомендовал еженедельник NME, ветеран театра рок-н-ролльной сатиры, бывший укротитель львов... одна из наиболее оригинальных и не поддающихся классификации фигур на британской музыкальной сцене. Музыка его воистину гипнотическая, (   Читать дальше...   )--------------------------
+
+ALEX HARVEY AND HIS SOUL BAND
+01. Shout (4:45)(   Читать дальше...   )Жанр: Hard Rock, Progressive Rock, Glam Rock |Продолжительность: 18:09:02 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4F4D5F610AC369E3F1C6C9562109220F37D997
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436395   (137615) от 31.12.2020
+
+Tankus The Henge - Luna Park! (2020) [MP3|320 Kbps] <Classic Rock, Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. god, oil, money (03:52)
+ 02. Fayaway (02:57)
+ 03. Glitterlung (03:57)
+ 04. Back to You (04:50)(   Читать дальше...   )Жанр: Classic Rock, Jazz RockПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D5E7D16D573CE9E1AA0187B99F81226B0486534
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436251   (137626) от 31.12.2020
+
+History Of Life - It's Time (2020) [MP3|320 Kbps] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro [00:01:53]
+02 - Между Небом И Землей [00:03:16]
+03 - Ненавижу [00:03:08]
+04 - Разберись В Себе [00:04:01](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68255256B3221D3A2D42A884099ECF449DF0AE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436253   (137633) от 31.12.2020
+
+WastedSky - 18 20 (2020) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Искры [00:01:17]
+02 - На краю [00:03:27]
+03 - Фарфор [00:03:54]
+04 - Карма [00:03:42](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207EF04AA421267E6439A1CA4641B5E4ED263547
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601178   (137691) от 31.12.2022
+
+Бондарь - Вторая попытка стать популярными (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:39]
+02. Skit Кирилл [00:01:17]
+03. Пока меня нет [00:03:37]
+04. Шрамы [00:02:46](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:26:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD11F93E9DDA5687A3DFBD4DDE92F342C991A3FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601464   (137702) от 31.12.2022
+
+Владимир Клявин - Чёрная полоса (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137702.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ночь
+2. Табачный дым
+3. Руки
+4. Где есть ты(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A65DD3BB38C370A77E5776810462BC193872310
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564722   (137713) от 31.12.2022
+
+Devil’s Train - 3 Studio Albums (2012-2022) 3xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкие хард-рокеры DEVIL’S TRAIN, лидером которых является вокалист MYSTIC PROPHECY и STEEL PANTHER RD Liapakis выпустили на ROAR! Rock Of Angels третий студийный альбом “Ashes & Bones”.
+
+Имея на своем счету 10 лет карьеры и два тепло принятых альбома, европейский ответ на BLACK LABEL SOCIETY, THE DEAD DAISIES и BLACK STONE CHERRY представляет нашему вниманию (   Читать дальше...   )2012 - Devil's Train
+2015 - II
+2022 - Ashes & BonesЖанр: Heavy MetalПродолжительность: 02:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB4FC5DD3FEA6D4E8F5AC09ECF279718E51A83F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273279   (137752) от 31.12.2018
+
+Roy Orbison & The Royal Philharmonic Orchestra - Unchained Melodies (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137752.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Unchained Melody
+2. Blue Bayou
+3. She's a Mystery to Me
+4. Heartbreak Radio(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC291E038C46146BD80066618D92F49FE4C63001
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273341   (137765) от 31.12.2018
+
+Minus One - Red Black White (2018) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_137765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Greatest
+02. How Does It Feel
+03. Red Black White
+04. Girl(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E81E8A5F81B0FEEEB3A69DCBAC14EE99FDFF2503
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273003   (137773) от 31.12.2018
 
 Карелия - Планета (2018) [MP3|320 Kbps] <Folk-Rock>
@@ -344,355 +693,6 @@ magnet:?xt=urn:btih:E5E5EA8F4F5D11944584D131D6FF3ADD87315400
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CEB6B0894B4BCA7E2BA48C98243855C151424D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521184   (138065) от 31.12.2021
-
-Rakoth - Superstatic Equilibrium (1998) 2xCD, Reissue, Remastered, 2020, OldWise Records [FLAC|Lossless|image + .cue] <Progressive Metal, Experimental Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138065.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. ... Of Chaos (00:59)
-02. Story Of The Nameless (03:49)
-03. Dying Realm (07:06)(   Читать дальше...   )Жанр: Progressive Metal, Experimental Black MetalПродолжительность: 01:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F05722D9BBA62E229AE8FA4E07F94DBFEE9B75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970639   (138245) от 31.12.2015
-
-Anthrax - For All Kings (2016) Deluxe Edition [MP3|320 кб/с] <Heavy Metal, Speed Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138245.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-1. You Gotta Believe
-2. Monster At The End
-3. For All Kings(   Читать дальше...   )Жанр: Heavy Metal, Speed Metal, Thrash MetalПродолжительность: 01:21:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60DDC18242235E004969163E452DE03C6BF2165
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679321   (138281) от 25.11.2023
-
-Neptunian Maximalism - 2 Albums (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Avantgarde, Doom Metal, Free Jazz, Krautrock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2020 - Eons
-2021 - Solar Drone CeremonyЖанр: Avantgarde, Doom Metal, Free Jazz, KrautrockПродолжительность: 2CD, 03:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6525568B4394F85B169D69B1B048AFA73A0B6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679432   (138304) от 25.11.2023
-
-Health - UNLOVED (2023) EP [FLAC|Lossless|tracks] <Noise Rock, Electronic Rock, Neo-Psychedelia>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - UNLOVED [3:17]
-02 - ASHAMED [3:02]
-03 - CHILDREN OF SORROW [3:21]
-04 - SICKO (feat. Godflesh) [2:22](   Читать дальше...   )Жанр: Noise Rock, Electronic Rock, Neo-PsychedeliaПродолжительность: 00:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CF61B060572D3995058D380EE355C86E6F0CC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679527   (138315) от 25.11.2023
-
-High Spirits - Safe on the Other Side (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Moonlight (03:02)
-02. Til the End of Time (04:11)
-03. Lonely Nights (04:05)
-04. One Day Closer (04:24)(   Читать дальше...   )Жанр: Hard 'n' Heavy MetalПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B8A1749DA4F9C6A8F9F3E768D711B283BCF99E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970514   (138319) от 31.12.2015
-
-Kingdom Come - The Best Of Kingdom Come (2003) 20th Century Masters The Millennium Collection, Compilation [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Out Of Touch (04:21)
-02. What Love Can Be (05:19)
-03. Get It On (04:24)
-04. Pushin Hard (04:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E277D886194C4A93CA7FF63EC433328E36C59F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349334   (138339) от 31.12.2019
-
-Stangala - Boued Tousek Hag Traou Mat All (2011) [FLAC|Lossless|image + .cue] <Doom Metal, Celtic, Psychedelic Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doom Rock Glazik (3:10)
-02. Al Lidou Esoterik An Dolmen Hud (7:36)
-03. Kalon An Noz (3:52)
-04. Sorcerezed (5:44)(   Читать дальше...   )Жанр: Doom Metal, Celtic, Psychedelic Rock, FolkПродолжительность: 01:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A319AA7FFC7F54A8AC5A136C2F2F93815AA408C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349282   (138351) от 31.12.2019
-
-Stangala - Klañv (Klanv) (2016) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Stoner Metal, Celtic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bigoudened an Diaoul : Orinoù (7:51)
-02. Hent loar (4:24)
-03. Lutuned an noz (4:03)
-04. Klañv (4:15)(   Читать дальше...   )Производство: Finisterian Dead End – FDE010Жанр: Doom Metal, Stoner Metal, Celtic RockПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6869A30CF37FE928F741EB0D4BC4B61FACD0D3DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679472   (138409) от 25.11.2023
-
-Peter Hammill - In A Foreign Town / Out Of Water (1988-1990) Remaster, 2023, Esoteric [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD 01 - In A Foreign Town 2023
-CD 02 - Out Of Water 2023Жанр: Progressive-Rock, Heavy-BluseПродолжительность: 2 CD, 01:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFEA7AC89E16D3B9972A962200343E0622200F1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679323   (138478) от 25.11.2023
-
-Emil Sigfridsson - Back To Yesterday (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're Gonna Rock Tonight (4:34)
-02. My Life (4:11)
-03. Be Gentle (4:44)
-04. Can I Run Away (3:06)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C359C80F8B5DCBFF996DD8D141869AF1C2A986
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679246   (138545) от 25.11.2023
-
-Nail Within - Sound Of Demise (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Death Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Bleeding Society (feat. Tom Angelripper) [3:39]
-02 - Eyes Of Evil [2:06]
-03 - Sound Of Demise [4:06]
-04 - Regression... And The Price We Pay [3:47](   Читать дальше...   )Жанр: Metal, Death Metal, Melodic Death MetalПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A58D3003B5CE5BA576876924341D00E24BEF5B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195966   (138588) от 31.12.2017
-
-Чёрный Кузнец - Сверхъестественное (2017) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138588.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Exorcizamus (увертюра)
-2. Сверхновая
-3. Блюз на перекрестке (feat. Ри Виноградова)
-4. Поколение зла(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E145D3E459F04A2A1977C5811878C554776EC77A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970540   (138677) от 31.12.2015
-
-Chris Rea - The Road To Hell (1989) Geffen Records [FLAC|Lossless|image + .cue] <Blues Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_138677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road To Hell (Part I)
-02. The Road To Hell (Part II)
-03. You Must Be Evil
-04. Texas(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AB6BDBFA7589C5D4ECE4093A7826A5813BEBBF
 ```
 
 

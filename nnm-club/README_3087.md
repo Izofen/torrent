@@ -1,3 +1,211 @@
+###  Публикация: 475662   (98175) от 31.03.2012
+
+Ektomorf - The Acoustic (2012) [FLAC|Lossless]<Acoustic/Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Know Them (4:39)
+02. I'm In Hate (3:46)
+03. Be Free (3:26)
+04. Redemption (3:37)
+05. Simple Man (5:01)
+06. To Smoulder (3:17)
+07. Folsom Prison Blues (3:10)
+08. Again (4:07)
+09. Through Your Eyes (3:22)
+10. Fate (2:07)(   Читать дальше...   )Жанр: Acoustic/Groove MetalПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475401   (98177) от 31.03.2012
+
+Юджин Пеппероу | Попытка к бегству [1991] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юджин Пеппероу (1991Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297F68FADD9A7937D9A901D562781E1279D8DCFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476146   (98178) от 31.03.2012
+
+VA - Energy Super Dance Vol.6 (2012) [MP3|320 кб/с]<Electro-House, Trance, Dance, Club, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond - Sun & Moon ( A-Peace Remix ) (6:07)
+02. Adele - Set Fire To The Rain (House Hunters Remix) (5:59)
+03. Afrojack & Shermanology - Can't Stop Me (MADEin82 Remix) (6:33)
+04. Avicii - Levels (Massive DJ's Bootleg Remix 2012) (6:03)
+05. Azealia Banks feat. Lazy Jay - 212 (Tommie Sunshine & Disco Fries Edit) (5:52)
+06. Beat Service - Fortuna (5:24)
+07. Carl Kennedy feat. Cheyenne - Once Upon A Time (Original Mix) (7:30)
+08. Childish Gambino - Heartbeat (Proper Villains Remix) (4:15)
+09. Cliffhanger - Dont Look Behind You (Original Mix) (3:23)
+ 10. Clockwork & Loreen - The Nox Euphoria (Mart's Mashup)2012Жанр: Electro-House, Trance, Dance, Club, DubstepПродолжительность: 04:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B760A4EFB5AB00D8BD24FFE829A2560B83FF0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475693   (98180) от 31.03.2012
+
+Eivissa Salinas - Dear Father (2012) [MP3|320 кб/с]<Chillout, Lounge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emotions Time (Radio Edit) (3:50)
+02. Between Two Rocks (6:55)
+03. Life is Dancing (3:41)
+04. Raining Day (3:49)
+05. Spring Miles Flower (5:16)
+06. All These Years (5:03)
+07. Past to Present (6:24)
+08. Midnight Jazzy Moon (3:36)
+09. Emotions Time (Cartage Mix) (3:38)
+10. Dear Father (3:56)(   Читать дальше...   )2012Жанр: Chillout, LoungeПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5EE4D1E74E942EFCCBEAE4D3C381BF45B09B4D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475965   (98182) от 31.03.2012
+
+[Wallpapers] Nature HD Wallpapers Pack 8
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98182.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature HD Wallpapers Pack 8 
+Название:  Nature HD Wallpapers Pack 8 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2974х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA43E34BF5FA4D76805F2A00435041EBAA7758F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475397   (98183) от 31.03.2012
+
+Юджин Пеппероу | Пока жива любовь [1991] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юджин Пеппероу (1991Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:832BA098D56B57380D811CA12CF56CC1BE5BDB1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473019   (98184) от 31.03.2012
+
+Before Their Eyes - Redemption (2012) [MP3|320 кб/с]<Post-Hardcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98184.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Lies
+3. Dream (feat. Breathe Carolina)
+4. Find
+5. Everything
+6. Redemption
+7. Revenge
+8. Revival
+9. Surrender
+10. Backstabber(   Читать дальше...   )2012Жанр: Post-HardcoreПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4306838ABECF0985F62477629CD28220D9E13BEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474111   (98185) от 31.03.2012
 
 VA - Trance Cookbook Vol.22 (2012) [MP3|320 кб/с]<Uplifting Trance,Vocal Trance,Trance>
@@ -525,214 +733,6 @@ I Diggidy - Made in Russia (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DD817B38511E8F1A583C76C6854AB18EA6C90CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476387   (98222) от 31.03.2012
-
-VA - Songs Of Protest (1987) [MP3|320 кб/с]<Psychedelic Pop/Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Have All the Flowers Gone? - Kingston Trio
-02. Eve of Destruction - Barry McGuire
-03. With God on Our Side - Manfred Mann
-04. Universal Soldier  - Donovan
-05. Laugh at Me - Sonny
-06. Let Me Be - Turtles
-07. It's Good News Week - Hedgehoppers Anonymous
-08. I Ain't Marching Anymore  - Phil Ochs
-09. The "Fish" Cheer/I-Feel-Like-I'm-Fixin'-To-Die Rag - Country Joe & The Fish
-10. People Got to Be Free - Rascals(   Читать дальше...   )Жанр: Psychedelic Rock/PopПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FA0C3E9AD2DAC0B9E7871A8F26A5BA8BDA3CD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476258   (98224) от 31.03.2012
-
-VA - Party Hits (2012) [MP3|320 кб/с]<Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Titanium (feat sia) - Sia
- 02. Again and again (radio edit) feat akon, pitbull, - Basto
- 03. The one that got away - Perry Katy
- 04. Hardcore vibes (radio edit) - Global Deejays
- 05. Sexy and I know it - Lmfao
- 06. Tango tango - Magic System
- 07. Les mots - Keen V
- 08. Juste un instant - Pokora M
- 09. I know (2012 radio edit) - Irma
- 10. My name is stain - Shaka Ponk(   Читать дальше...   )2012Жанр: DanceПродолжительность: 01:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DEA5E2110D1AD576EBEFCBB6152F2814022EEC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476138   (98226) от 31.03.2012
-
-Анатолий Онегов  | Еловые дрова и мороженые маслята [1985] [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга состоит из коротких рассказов, объединенных в пять самостоятельных частей: «Еловые дрова», «Снегириное царство», «Дрозды-разбойники», «Мороженые маслята», «Старая береза», - и двух повестей: «Черепок» и «Мирный договор». Основная мысль, которой пронизаны все рассказы и повести, - природу нужно изучать, относиться к «братьям нашим меньшим» с добром, тогда и они отплатят человеку тем же.1985Жанр: Детская литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BCAB6D2CD34522AA82B155581F59EDE5E402D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476197   (98227) от 31.03.2012
-
-VA - Сборник лучших REMIXов - Mix рандеву 2CD (2012) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98227.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dj Sequenza - C U 2nite (Nooc Remix Radio Edit) (3:34)
-2. David - Не Верю (Dj Iksiy Remix) (3:33)
-3. Лолита Gold Feat. Юля Grand - Этим Летом (3:06)
-4. Dj Nejtrino And Nikita Malinin - Hands Up (Radio Edit) (3:34)
-5. Ольга Лозина - Раненая Птица (Dj Magnit Remix) (3:34)
-6. Все Включено - Кабрио-Лето (Ed Albah Radio Mix) (3:33)
-7. Пачуля - Привет (Fidel Wicked Radio Edit) (3:33)
-8. Сhris Parker Feat. Катя Старикова - Не Уходи (Radio Edit) (4:00)
-9. Mike Lembo - Can't Come Down (Smash Mode Radio Mix) (3:59)
-10. Mainstream One - Секс И Виски, Кокс Карибский (House Massive Dj Sedate Radio Rmx) (3:58)2012Жанр: Pop,DanceПродолжительность: 06:17:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:981DC1BD50036B8A53FF3DF840CC728C75696D78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476226   (98229) от 31.03.2012
-
-Людмила Гурченко. Как я стала богиней (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она фантазировала и экспериментировала, шокировала и восхищала. Провинциальная девчонка стала самой яркой и самой загадочной звездой.Жанр: ДокументальныйРежиссер: Константин МурашевПеревод: оригинальныйПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475954   (98230) от 31.03.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 18
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98230.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers Pack 18 
-Название:  Girls Desktop Wallpapers Pack 18 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 8576х5696
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4C5BC66FEE86201E48E1969FEF9E1EA7192066
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476202   (98233) от 31.03.2012
-
-Joan Osborne - Bring It On Home (Deluxe Version) (2012) [m4a|256 кб/с]<Blues, Soul, Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don t Need no Doctor
-02. Bring it on Home
-03. Roll Like A Big Wheel
-04. Game of Love
-05. Broken Wing
-06. Shoorah! Shoorah!
-07. I Want to Be Loved
-08. Same Love that Made Me Laugh
-09. Shake Your Hips
-10. I m Qualified(   Читать дальше...   )Жанр: Blues, Soul, RockПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E3E0B1F4EB20C4A95CCAF2AEC8DB58F7EF2A68
 ```
 
 

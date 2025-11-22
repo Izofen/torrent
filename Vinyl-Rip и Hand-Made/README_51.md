@@ -236,6 +236,60 @@ magnet:?xt=urn:btih:FD5EF0CEEB204F592051B102CB6D3AD0D2122B11
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572601   (187065) от 20.09.2023
+
+Myrath - Дискография (8 albums) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Oriental Progressive Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_187065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Myrath (араб. ميراث‎, наследие) — ориентал-метал-группа, основанная в 2001 году в Тунисе.2005 - Double Face
+2007 - Hope
+2010 - Desert Call
+2011 - Tales of the SandsЖанр: Oriental Progressive Metal, Power MetalПродолжительность: 07:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB5B44803276518C7572F62433471C016577E89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546406   (187108) от 20.09.2023
+
+Heathen - Studio Albums (5 releases) (1987 - 2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Speed/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_187108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heathen — группа из США, играющая в стиле спид/трэш-метал. Группа была основана в 1984 году гитаристом Ли Элтусом и ударником Карлом Сэкко.1987 - Breaking the Silence
+1991 - Victims of Deception
+2010 - The Evolution Of Chaos
+2020 - Empire Of The BlindЖанр: Technical Speed/Thrash MetalПродолжительность: 04:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F67AB7F0FAA9CAD2F25CBEEE20A8E1EA2D17AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591175   (187128) от 18.11.2022
 
 Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Metal>
@@ -424,6 +478,33 @@ magnet:?xt=urn:btih:3859703AFDF4F32DD867C90A54641393996B9248
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583852   (188193) от 16.09.2023
+
+Stone Sour (Corey Taylor, Slipknot) - Studio Albums (10 releases) (2002 - 2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Heavy Metal ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_188193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stone Sour — американская метал-группа, образованная в 1992 году в Де-Мойне, штат Айова. Её основатели — Кори Тейлор, ставший известным как вокалист группы Slipknot, а также барабанщик Джоел Экман. Просуществовав до 1997 года, коллектив прекратил свою деятельность, но в 2000 году, после успеха дебютного альбома Slipknot, Тейлор с Экманом решили вернуться к своему (   Читать дальше...   )2002 - Stone Sour
+2006 - Come What(ever) May
+2010 - Audio Secrecy
+2012 - House Of Gold And Bones - Part 1Жанр: Hard Rock, Heavy MetalПродолжительность: 09:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E4519727C61B26E164259B1C28DFA4215BA805
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662007   (188255) от 16.09.2023
 
 Mark Boals (Shining Black; The Codex) - Studio Albums (6 releases) (1998-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
@@ -530,6 +611,33 @@ magnet:?xt=urn:btih:B9F289415C25FB83EC3A588668ADE9BA9750965E
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543805   (188589) от 14.11.2022
+
+Red Hot Chili Peppers - Дискография (16 releases) (1983 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_188589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Hot Chili Peppers (RHCP) — американская рок-группа, образованная в 1983 году в Калифорнии вокалистом Энтони Кидисом, басистом Майклом Бэлзари (больше известным как Фли), гитаристом Хиллелом Словаком и барабанщиком Джеком Айронсом.1984 - The Red Hot Chili Peppers
+1985 - Freaky Styley
+1987 - The Uplift Mofo Party Plan
+1989 - Mother's MilkЖанр: Alternative Rock, Funk RockПродолжительность: 21:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A11D77E3D0177B2967C16310A58FC22C6C064B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590517   (188658) от 14.11.2022
 
 Suzi Quatro - Uncovered (2022) [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
@@ -579,114 +687,6 @@ A1 Allegro Ma Non Troppo(   Читать дальше...   )Жанр: Classical,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:807D506B06458F8CABD9B7E1C4F8DBE4D4B76BE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590282   (189034) от 13.11.2022
-
-Алексей Рыбников - «Юнона» И «Авось» (1982) [FLAC 2.0|192/24|side-tracks|Vinyl-Rip] <Opera, Art Rock, Experimental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сторона 1 • «Юнона» И «Авось» • Опера
-02. Сторона 2 • «Юнона» И «Авось» • Опера (Продолжение 1)
-03. Сторона 3 • «Юнона» И «Авось» • Опера (Продолжение 2)
-04. Сторона 4 • «Юнона» И «Авось» • Опера (Окончание)(   Читать дальше...   )Жанр: Opera, Art Rock, ExperimentalПродолжительность: 01:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41E63F282DB24B5F59DB0ADDF88ADFCF16F8C0DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590260   (189035) от 13.11.2022
-
-Suzi Quatro - Suzi Quatro (1973) [DSD 128|tracks|Vinyl-Rip] <Glam, Hard Rock, Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 48 Crash (3:57)
- 02. Glycerine Queen (3:52)
- 03. Shine My Machine (3:54)
- 04. Official Suburbian Superman (3:10)(   Читать дальше...   )Жанр: Glam, Hard Rock, Rock & RollПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7463B9EC8E8C6AC4915BB7AA46B8BE1E2BBCDE2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660750   (189373) от 13.09.2023
-
-Johann Strauss - Vienna Promenade Orchestra - The Strauss Selection (1973) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Orchestra>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189373.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Vienna Blood
-A2 Radetzky March
-A3 Tales From The Vienna Woods
-B1 The Blue Danube(   Читать дальше...   )Жанр: Classical, OrchestraПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D858E792FB950D84665DA18F030402FED88E0E01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660657   (189404) от 13.09.2023
-
-Roger Whittaker - Butterfly (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189404.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Settle Down
-A2 After The Laughter (Came Tears)
-A3 Butterfly
-A4 Acre Of Wheat(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:26:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FBB13E834ED2BDBEBF9B3C19D4183F1176DFC80
 ```
 
 

@@ -1,3 +1,192 @@
+###  Публикация: 1757344   (103456) от 26.10.2024
+
+Entering Polaris - Myths In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Quarters Vast And Furious 02:39
+02. Heresy 09:14
+03. Building Rome In One Day 08:32
+04. Reign In Hell 05:02(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 01:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:766F0E1314DD938FF0EE602B124CE1DC9426CE35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757269   (103457) от 26.10.2024
+
+Matt Panayides Trio - With Eyes Closed (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simone (4:49)
+02. Straight Up and Down (4:00)
+03. I Fall in Love too Easily (7:06)
+04. Hindsight (5:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F2BF034A4866C9A775008C97FCB1E8477620F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757273   (103458) от 26.10.2024
+
+Melanie Scholtz - Seven (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bokani Dyer - As Is / This Is Me (interlude) (0:40)
+02. Bokani Dyer - New Skin (3:03)
+03. Bokani Dyer - Remedy (3:15)
+04. The Paul Carlon Octet - Music is the Man of My Dreams (3:59)(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DDBAB3FF48F621592702985D4F7904F208CAB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757263   (103459) от 26.10.2024
+
+Macade - Dialoghi (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ulisse (6:11)
+02. Lontano (6:02)
+03. Lunar (6:01)
+04. Umami (6:03)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5FC67106736715D82061DC9C6171C6E44821823
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757260   (103460) от 26.10.2024
+
+Lars Jansson & Erik Söderlind - What The Moment Brings (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What The Moment Brings (5:52)
+02. Anyone Home (5:11)
+03. Until We Meet (7:27)
+04. Gift From Grace (6:17)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BF99F6616EDB5C79749A28AFD57687272F9BA54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757282   (103461) от 26.10.2024
+
+Monkin' Around - 4 in 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave O’Higgins - Well You Needn't (3:12)
+02. Sean Fyfe - Two Timer (4:19)
+03. Sean Fyfe - Evidence (6:12)
+04. Dave O’Higgins - Pannonica (4:53)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8A549F0153165B1E02017D1B1A970B5AA87EAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757268   (103462) от 26.10.2024
+
+Matt Mitchell - Zealous Angles (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. sponger (4:10)
+02. apace (3:05)
+03. jostler (3:08)
+04. angled languor (6:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C55B654B91DDF9A92F0C901FED9DD82781FF0962
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757255   (103463) от 26.10.2024
 
 Kris Davis Trio - Run the Gauntlet (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
@@ -497,192 +686,6 @@ Lankester Merrin - Dark Mother's Child (2024) [FLAC|Lossless|WEB-DL|tracks] <Mel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E28C1F1981023035760A033A1BC893C0472651F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756954   (103482) от 24.10.2024
-
-Casandra's Crossing - Garden Of Earthly Delights (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger (5:01)
-02. Impatient (4:54)
-03. Closer to Heaven (5:21)
-04. Ring Me Around (4:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530F3B4FAF77F36603D8E82E5B3BDCE4832A2D38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756886   (103483) от 24.10.2024
-
-VA - Jazz For Halloween (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Philly Joe Jones Sextet - Blues For Dracula (8:15)
-02. Louis Armstrong - The Skeleton In The Closet (Single Version) (3:11)
-03. Vince Guaraldi - The Great Pumpkin Waltz (Reprise) (2:40)
-04. Ornette Coleman - The Disguise (2:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAD6B5E7EC67FDEDF0ED7FF09ADA358C117ED31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757014   (103484) от 24.10.2024
-
-Mary Coughlan - Repeat Rewind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Repeat Rewind (4:22)
-02. Lumberjack (3:39)
-03. What If I Do (3:45)
-04. Once Upon A Fairytale (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532CD0CD59025DF49F62B3B963B6AB09DC628124
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756989   (103485) от 24.10.2024
-
-Todd Partridge - Desert Fox Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Depression (4:55)
-02. Gotta Do (2:19)
-03. Gentleman Blues (2:32)
-04. Interstellar Planetary (3:11)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC125A31B479BA02F4652AAD22162945A2AA2D51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756952   (103486) от 24.10.2024
-
-Nitrogods - Valley Of The Gods (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Left Lane To Memphis (3:02)
-02. Shinbone Kicker (3:16)
-03. Valley Of The Gods (3:54)
-04. Last Beer Blues (4:52)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB824A0BBDD6BB1617858B406673772276AC3EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756951   (103487) от 24.10.2024
-
-Франсуаза Саган | Четыре стороны сердца (2021) [MP3, Алла Човжик]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Саган. Коллекция.
-Франсуаза Саган (1935–2004) – французская писательница.
-В романе «Синяки на душе» (1972), как и во многих романах писательницы, речь идет о любви, хрупкой, нерешительной, мимолетной. Верная себе Саган заводит своих персонажей в лабиринт запутанных отношений: вокруг Себастьяна и Элеоноры кружатся странные люди, пытаясь проникнуть в тайны (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Алла БорисоваИздательство: Азбука-АттикусПродолжительность: 03:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B570B3D8302E85C9B0BADBE8C21FA785DA8E0FCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756937   (103488) от 24.10.2024
-
-Франсуаза Саган | Немного солнца в холодной воде (2020) [MP3, Алла Човжик]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Саган. Коллекция.
-Франсуазу Саган (1935–2004) называли Мадемуазель Шанель от литературы. Начиная с самого первого романа «Здравствуй, грусть!» (1954), наделавшего немало шума, её литературная карьера складывалась блестяще, она с удивительной легкостью создавала книгу за книгой, их переводили на различные языки, и они разлетались по свету миллионами экземпляров. (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Наталия НемчиноваИздательство: Азбука-АттикусПродолжительность: 04:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5783AC824EFEA0ECC32B984202B527210C61EF6
 ```
 
 

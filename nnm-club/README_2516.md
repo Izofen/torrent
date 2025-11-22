@@ -1,3 +1,57 @@
+###  Публикация: 1801761   (66164) от 12.06.2025
+
+Театр Тьмы - Старый Кукловод (2025) [FLAC|Lossless|WEB-DL|tracks] <Horror Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пьяный убийца [00:03:16]
+02. Незваные гости [00:04:35]
+03. На краю [00:05:16]
+04. Старый Кукловод [00:03:31](   Читать дальше...   )Жанр: Horror PunkПродолжительность: 00:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D087903D2B879CAC56AA53BC3F7630707806E6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801609   (66165) от 12.06.2025
+
+Олег Семёнов, Соня Белькевич - Чёрные розы (2025) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чёрные розы
+02. Увы, мадам
+03. Глаза бесстыжие
+04. Ты любовь моя(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B1F819ED0006C3A59B8B4A77CF07FA0645BC3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801770   (66166) от 12.06.2025
 
 Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordings Ltd [MP3|320 Kbps] <Britpop, Alternative Rock, Indie Rock>
@@ -627,57 +681,6 @@ VA - National Pop Dance Music Vol.108 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9C6A5F5368E42A786A25F4110608B678A33C172
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801689   (66190) от 12.06.2025
-
-V.A. - Cafe del Mar Ibiza Chillout Mix V (DJ Mix) (2025) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Hilton, Natalia Clavier - Amor Astral (Mixed)
-02. Stoned Autopilot, Martin Buttrich - June (Mixed)
-03. A Vision of Panorama, Cafe Del Mar - WLM (Mixed)
-04. Dj Python - Club Sentimiental, Vol. 3 (Mixed)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4969F5BF1BC51A83BD6DAFA377CD506FA36CF08E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801741   (66191) от 12.06.2025
-
-Display Tester v5.35.5 Mod by Balatan [En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проверьте свой экран и выясните, есть ли у него неприятности. С помощью этого инструмента тестирования вы можете проверить LCD/OLED-экран вашего устройства. Он предназначен для полноэкранного тестирования в устройствах ICS/Honeycomb путем скрытия программных клавиш.Тип издания: ProРелиз состоялся: 11.06.2025Разработчик: BraintrappПоддерживаемая ОС: Android 6.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100C223F93CE8E7F997EAF9B1332C4F84A6651C8
 ```
 
 

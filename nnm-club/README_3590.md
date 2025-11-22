@@ -1,3 +1,192 @@
+###  Публикация: 1708710   (113025) от 21.03.2024
+
+Neon Rider - Destination Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destination unknown (0:51)
+02. Neon rider (5:04)
+03. Feel the magic (5:22)
+04. Unleash your fire (4:32)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B005292263ADDF6489D47FB132BFEEC322B7CCDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708727   (113026) от 21.03.2024
+
+T Bear - The Way Of The World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way Of The World (4:17)
+02. Sign On The Dotted Line (3:36)
+03. Before The Fall (5:02)
+04. Jewel (4:46)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E0B631D25234DFB924CEBCBDEFA67A31284830D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708682   (113027) от 21.03.2024
+
+Gary Clark Jr. - JPEG Raw (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Soul, R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maktub (4:13)
+02. JPEG RAW (4:26)
+03. Don't Start (feat. Valerie June) (3:04)
+04. This Is Who We Are (feat. Naala) (5:32)(   Читать дальше...   )Жанр: Blues, Soul, R&BПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F125B89A3DCA89CFFFF3EFDBCE2B9F501B16039
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708615   (113028) от 21.03.2024
+
+Trust X - Перевёрнутые Сны (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Очнись ото сна 04:45
+02. Верни свою жизнь 04:37
+03. Перевёрнутые сны 07:01
+04. Мы ещё вернёмся 06:19(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6778DDEBCE4BE5049F2F590101F9CD368FE96A19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708656   (113029) от 21.03.2024
+
+Hammer King - König und Kaiser (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hailed By The Hammer (4:58)
+02. The Devil Will I Do (4:15)
+03. König und Kaiser (feat. The Tribune) (4:02)
+04. Future King (4:41)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B24800DD94E4E5E10066A00F0E1C02360A16DBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708584   (113030) от 21.03.2024
+
+Jimmy Synthetic - Heat Seeker (2024) [FLAC|Lossless|WEB-DL|tracks] <synthwave, newretrowave, retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air Supremacy [00:03:21]
+02. F14 Tomcat [00:04:31]
+03. Heat Seeker (feat. Jay Diggs) [00:05:08]
+04. Peak Performance [00:03:10](   Читать дальше...   )Жанр: synthwave, newretrowave, retrowaveПродолжительность: 00:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552BD8EF710458BB9684CDD8CFCEAA258927E150
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708572   (113031) от 21.03.2024
+
+Digimortal - Белое знамя (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Новый мир настанет [00:01:50]
+02. Пророк [00:03:40]
+03. Миражи [00:03:58]
+04. Новый человек [00:03:58](   Читать дальше...   )Жанр: Modern Metal, Industrial MetalПродолжительность: 01:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7318C999868ED24FCD614128E3F4E86A94181EE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708704   (113032) от 21.03.2024
 
 Neon Rider - Destination Unknown (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -490,188 +679,6 @@ The Art Farmer-Benny Golson Jazztet - Back To The City (1986) 1995, Original Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C8CD8557A420B6673B1704D0603AD9FDC1D4FAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708288   (113051) от 20.03.2024
-
-The Art Farmer-Benny Golson Jazztet - Real Time (1988) Contemporary Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whisper Not [11:30]
-02. Sad to Say [6:11]
-03. Are You Real [8:29]
-04. Autumn Leaves [14:04](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485B738F98255529604E254314DDE23219F09C93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708313   (113052) от 20.03.2024
-
-Atrophy - Asylum (2024) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовые американские трэш-металлисты ATROPHY выпустили долгожданный третий альбом "Asylum" 15 марта на лейбле Massacre. Это первая полноформатная работа группы за 34 года.
-В текущий состав ATROCITY входит лишь один оригинальный участник – вокалист Брайан Циммерман (Brian Zimmerman).
-Как гласит пресс-релиз лейбла, "Asylum" – это очередной шаг (   Читать дальше...   )1. Punishment For All
-2. High Anxiety
-3. Seeds Of Sorrow
-4. Distortion(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F479CD4F5847770A9D7609ACDE4A3585002A10E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708239   (113053) от 20.03.2024
-
-Kryuhm - Only in My Mind (2022) [FLAC|Lossless|image + .cue] <Heavy, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To My World (05:21)
-02. The Evolution (06:52)
-03. My Life (05:20)
-04. Danze Macabre Tra I Fuochi (05:22)(   Читать дальше...   )Жанр: Heavy, Doom MetalПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA82F611C124A9E48CCB2581AC7B9E6155E9A3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708122   (113054) от 20.03.2024
-
-The Crows - Ready When You Are (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Fall Down (3:53)
-02. I Should've Known (2:51)
-03. Scorcher (3:30)
-04. Forever (4:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C08D8D4FDC185D0884FA32DF4472E9B2928B33C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708270   (113055) от 20.03.2024
-
-TechSmith Snagit 2024.2.2 for Mac [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113055.jpg" />
-</div>
-
-
-###  Подробнее
-
-TechSmith Snagit облегчает захват изображений с экрана благодаря возможности использования специальных профилей захвата, ориентированных на определенные цели. В продукт включены профили захвата, привязанные к соответствующим комбинациям клавиш. Профили обеспечивают возможность захвата как всего экрана в целом, так и отдельных его частей – текста из окна текстового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2024Разработчик: © 1995 - 2024 TechSmith CorporationПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA958FE4A807C5D8E1C47807BF3348539C2485A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708420   (113056) от 20.03.2024
-
-Газета | Народный совет №11 (5 марта 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D747A0FADD9D890BD50CC28586229704AED0FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708278   (113057) от 20.03.2024
-
-Easy New File 5.8 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Easy New File - это расширение для поиска, которое добавляет некоторые функции в меню правой кнопки мыши в Finder.Тип издания: macOS SoftwareРелиз состоялся: 18.03.2024Разработчик: © 2023 Easy New FileПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C8148C840944184E490891495F36523494F121
 ```
 
 

@@ -1,683 +1,664 @@
-###  Публикация: 1664085   (186273) от 24.09.2023
+###  Публикация: 1664424   (185442) от 26.09.2023
 
-MotoGP. Этап 13. Гран-при Индии. Гонка (24.09.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+Cliff Richard - Wired For Sound (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185442.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Wired For Sound
+A2 Once In A While
+A3 Better Than I Know Myself
+A4 Oh No, Don't Let Go(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5FA0771DEE15908CA0EE4D13BCEC5D787A9288F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426581   (185443) от 26.11.2020
+
+Headcat 13 - Headcat 13 (2020) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Go Crazy (02:58)
+02. Wiggin' And Jiggin' (04:04)
+03. Somebody's Gonna Get Their Head Kicked In Tonight (03:05)
+04. That's It That's All (04:59)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E6380FAB8BF1625D684F39F00F5CDE3C0BCD8D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591878   (185444) от 20.11.2022
+
+Формула 1. Сезон 2022. Этап 22. Гран-при Абу-Даби. Квалификация (19.11.2022) WEB-DL [H.264/1080p] [50fps] F1TV
 
 >>Спорт и активный отдых
->>Авто, Мото
+>>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186273.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185444.jpg" />
 </div>
 
 
 ###  Подробнее
 
-24 сентября 2023, воскресенье. 13:00 МСК. Этап 13 Большая Нойда. Гран-при Индии. Гонка (21 круг)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:22:52
+Этап 22. Арена: Автодром Яс Марина (Абу-Даби, ОАЭ)
+Квалификация. 19 ноября 2022, суббота.Телекомпания: F1 TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), Английский, Немецкий, Французский, Испанский, Голландский, Португальский.Субтитры: отсутствуютПродолжительность: 01:17:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DEE624735A83F763EC21F7F22CE5F7DE143F59E8
+magnet:?xt=urn:btih:5311414133E5BB4C82A3A0E7A1ACD1E6CBD6E3BA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664044   (186274) от 24.09.2023
+###  Публикация: 1591828   (185447) от 20.11.2022
 
-Первая передача на НТВ. Автомобильная передача (24.09.2023) WEBRip [H.264/720p]
+Два самолета - Подруга подкинула проблем (2000) [FLAC|Lossless|WEB-DL|tracks] <Acoustic Rock, Reggae, Ska>
 
->>Документалистика и Телепередачи
->>За рулем
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186274.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В Санкт-Петербурге продолжается разбирательство по делу о резонансном происшествии с участием микроавтобуса.
-Трюк на «Ниве» на верхнем этаже недостроя.
-Особый навык вождения: покалеченная в ДТП девушка научилась водить машину без ноги.Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:03
+01. Небесное пиво [00:04:41]
+02. Жизнь запарка [00:02:55]
+03. Александр Македонский [00:03:39]
+04. Мамочка в крыжовнике [00:03:21](   Читать дальше...   )Жанр: Acoustic Rock, Reggae, SkaПродолжительность: 00:46:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02BEF4556F968E77CEB98D81DF47B8DF7CB82BF0
+magnet:?xt=urn:btih:4657DF8534E651593AEDCE2DDD205E6B086328BC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664030   (186275) от 24.09.2023
+###  Публикация: 1664478   (185448) от 26.09.2023
 
-Сибирская Благозвонница | Жития русских святых. В 2 томах (2011) [PDF, FB2, EPUB, MOBI, TXT]
+Autograf - Affirmations (2023) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <House, Progressive House, Melodic House & Techno, Dance, Electronic>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186275.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185448.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вниманию благочестивого читателя предлагается двухтомное издание Житий русских святых, которое может служить дополнением к многотомному собранию Житий святых, изложенных святителем Димитрием Ростовским.
+Жанр: House, Progressive House, Melodic House & Techno, Dance, ElectronicПродолжительность: 2 CD, 01:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4673D521FABA45DDB62C24BBF066AF715BAD6A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426898   (185449) от 26.11.2020
+
+Wondershare AllMyMusic 3.0.2 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите слушать любимые песни, радио программы и аудио из видео в любое время и без подключения к интернету? Запишите все это легко с профессиональным Mac Audio Recorder.
+Wondershare AllMyMusic для Mac позволяет записывать программы онлайн музыку и радио с качеством 1:1 в один клик. AllMyMusic для Mac соответствует всем законам об авторском праве и что является 100% (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.11.2020Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский , Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6D78753C31CF6B7DF64CCD71FBE62B460A92FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592013   (185452) от 20.11.2022
+
+4K YouTube to MP3 Pro 4.7.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185452.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРазработчик: Open Media OOO.Поддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E89269D0AEA670D3B79FE05BB0AED54E5FA77F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664566   (185453) от 26.09.2023
+
+Skype 8.105.0.208 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype предназначен для личного и делового общения в любое время, в любых обстоятельствах и на любых устройствах. Уникальные возможности голосовых и видеозвонков, а также текстовых сообщений помогают общаться и работать вместе. Он подходит для совершения звонков один на один и в группе. Вы можете проводить собрания и устраивать встречи с коллегами, делиться впечатлениями (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3DD2048F25B733F33A0E656E10CF6F40A087A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426823   (185454) от 26.11.2020
+
+Футбол. Лига Наций УЕФА 2020-2021. 6-й тур. Обзор матчей. 2-й День (18.11.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лига наций УЕФА 2020-2021 (2020-2021 UEFA Nations League) — 2-й розыгрыш турнира среди сборных Европы, проводится под руководством УЕФА. В турнире действуют принципы повышения и понижения в классе. Розыгрыш лиги наций 2020-2021 связан с европейским отборочным циклом к чемпионату мира 2022, давая дополнительную возможность выхода в финальную стадию ряду национальных (   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D050C2DAB7B2B5224ACD77E106BCB4642C71ADE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591937   (185455) от 20.11.2022
+
+Moonlight Haze - De Rerum Natura (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To the Moon and Back 03:39
+02. Ad Astra 03:37
+03. Odi et Amo 04:37
+04. The Butterfly Effect 03:31(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684F1514D23CB75493C3A6C5D9639C7CA80452A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427016   (185458) от 26.11.2020
+
+Color Folder Master 1.0.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сохранение ваших файлов в порядке и по категориям идеально подходит для повышения эффективности и помогает поддерживать порядок. Другой способ помочь визуально найти определенные папки - сделать их цветными, отличными от цвета стандартной папки. Стандартная папка в Finder синего цвета, ColorFolder может помочь быстро изменить внешний вид папки по сравнению с другими. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2020Разработчик: ChengHao WuПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FDAFBAD1E506D3683442499B98A98632B1AF16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664547   (185459) от 26.09.2023
+
+Гюлли (1927) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симпатичная молодая азербайджанка Гюлли и грузинский парень Митро очень влюблены друг в друга. Но из-за традиций и религиозных законов (Гюлли мусульманка, а Митро - христианин) она не может выйти за него замуж. Молодые люди сбегают...Производство: СССР, Госкинпром ГрузииЖанр: драма, мелодрама, немое киноРежиссер: Лев Пуш, Николос ШенгелаяАктеры: Нато Вачнадзе, М. Вардиашвили, Цецилия Цуцунава, Александр Имедашвили, Кохта Каралашвили, Александр Такайшвили, Дж. Мелиава, Дмитрий КипианиСубтитры: грузинские, русские (интертитры)Продолжительность: 01:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B64CC8881CBCDA4705C1E5DD99E226ABFE7E8C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591191   (185460) от 20.11.2022
+
+Basteiro-Bertoli - Boh (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Songwriter, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grey
+02. Cofing
+03. Ladies in Black (feat. Ian Anderson)
+04. Mirror(   Читать дальше...   )Жанр: Folk Rock, Songwriter, RockПродолжительность: 00:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BD952D1E860EA31B3DD1C400217C2FE65E33DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426991   (185462) от 26.11.2020
+
+Things 3 v3.13.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
 
-Русских святых Церковь называет небесными сродниками нашими. Внимательно всматриваясь в их подвиги, которыми они освятили нашу землю, будем стараться подражать их (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2020Разработчик: Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6163FC6B28FAB246528101104E59619623938E40
+magnet:?xt=urn:btih:442BCA24981FE6E275B1754077A8902A70223E6D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664098   (186276) от 24.09.2023
+###  Публикация: 1664479   (185464) от 26.09.2023
 
-Nitrogenium - Игра Теней (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Она — это тьма [00:03:27]
-02. Во льдах [00:00:54]
-03. Холодно [00:03:12]
-04. Не знаю [00:02:39](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C9ED585D25184BBCF32F000297B4C19C75B4EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663995   (186277) от 24.09.2023
-
-Joel Hoekstra's 13 - Crash Of Life (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everybody Knows Everything (4:57)
-02. Crash Of Life (4:28)
-03. Damaged Goods (4:17)
-04. Torn Into Lies (5:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C8821E6716164E64C3F95E9CC1FB4FB4C617D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663936   (186278) от 24.09.2023
-
-Чингиз Абдуллаев | Дронго ( Книга102). Забава королей (2023) [MP3, Светик]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186278.jpg" />
-</div>
-
-
-###  Подробнее
-
-атель, пригласил своих друзей, в числе которых и трое русских бизнесменов с подругами. Волею судеб там оказался и знаменитый эксперт по борьбе с преступностью Дронго. Компания собралась на «забаву королей» – так издавна называли охоту на львов. Но сафари обернулось трагедией: один из русских бизнесменов во время облавы получил пулю в грудь. Кто стрелял? Был ли это (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 07:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23243C3090BE43D7C4932BED39C4B92A85922411
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663970   (186279) от 24.09.2023
-
-Frozen Tears - Brazen Whisper (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186279.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Brazen Whisper (4:43)
-2. You (4:10)
-3. Hold On Tight (4:29)
-4. Love Can Be Real (4:53)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91EFC767E28702A4FB808C93A92BBF13C5E59B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664028   (186280) от 24.09.2023
-
-Flat Worms - Witness Marks (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sigalert [00:02:29]
-02. SSRT [00:03:23]
-03. Time Warp in Exile [00:02:21]
-04. Suburban Swans [00:03:21](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15855EB694202DABDB57DC62D6534B2852639F62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664038   (186281) от 24.09.2023
-
-I Spy - While The War Began (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unforgotten [00:03:15]
-02. In Sight of the Sun [00:02:27]
-03. Edge of the World [00:04:22]
-04. Scars [00:03:55](   Читать дальше...   )Жанр: Progressive Rock, Neo-Prog, Symphonic ProgПродолжительность: 01:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A84E0E039FA3AC6A69F7F5EA33454CD946FE8A12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663976   (186282) от 24.09.2023
-
-Emotional Fire - Will You Be There (2023) EP [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186282.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Will You Be There (4:13)
-2. Breaking Me Up (4:07)
-3. Your Time Is Gonna Come (4:44)
-4. Emotional Fire (4:07)Жанр: Melodic Rock, AORПродолжительность: 00:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3EE018E8EB9C627EC22C2F323CFBB26770F30B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663990   (186283) от 24.09.2023
-
-Big Mouthers - New Now (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186283.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Brothers Of Rock And Roll (4:00)
-2. New Now (4:36)
-3. My One And Only (3:42)
-4. License For Love (3:45)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CACCCF19800D6BEA6B154ED431E9EE1EFD4D62F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663966   (186284) от 24.09.2023
-
-Sarayasign - Throne Of Gold (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186284.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Book Of Wisdom (4:43)
-2. When Worlds Collide (4:23)
-3. Distant Memories (6:14)
-4. If Only For A Moment (4:51)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A3C3087F722B28F4372EF70EC38A64F7090E04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663984   (186285) от 24.09.2023
-
-Departure - Departure (1998) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faster (4:16)
-02. Searchin' (3:05)
-03. The Way You Show Your Love (4:09)
-04. Tonight's The Night (3:22)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 01:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA67B15856C6AEBCE77DF43473423F9F03EF5D0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664106   (186286) от 24.09.2023
-
-6ES - Поворот в никуда (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ил [00:08:06]
-02. Прометей [00:06:00]
-03. На проводе [00:02:59]
-04. Утерян [00:06:45](   Читать дальше...   )Жанр: Sludge Metal / Stoner / Doom MetalПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B34FA5368F4F75C30294FB85C5F853B8AA68C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663939   (186287) от 24.09.2023
-
-West Alley - A Night To Remember (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What A Night To Remember (3:30)
-02. Good Times (4:17)
-03. Fortune And Fame (4:19)
-04. Miracles Can Happen (4:27)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F10DB4D984293A0AED4A7B1EB72FB5A40026FDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663979   (186288) от 24.09.2023
-
-Phil Martin's Drive - Days Like These (2021) EP [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186288.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ordinary (4:09)
-2. Inside View (4:21)
-3. Not Tthe Real Thing (4:00)
-4. Fuel & Fire (3:54)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A4B155634552B52405D1E4E59D7AB3C816B5328
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664105   (186289) от 24.09.2023
-
-Aneurisma - Carodatavermibus (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nocturnal Illusion [00:09:23]
-02. Aneurisma [00:09:20]
-03. Two Thousand Years of Battle [00:08:52]
-04. Circulo de Sangre [00:05:54](   Читать дальше...   )Жанр: Melodic Death, Doom MetalПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F3E5C2085A955B1ECC029E5646512651830E30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664011   (186290) от 24.09.2023
-
-Yawning Man - Pot Head (2016) Reissue, Remastered, 2023, Ripple Music [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manolete [00:06:46]
-02. Digital Smoke Signals [00:07:09]
-03. Encounters With An Angry God [00:05:01]
-04. Samba Di Primavera [00:05:03]Жанр: Stoner Rock, Psychedelic RockПродолжительность: 00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0693422BCABA7D543B016CD76FA8ABA3835AE25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664017   (186291) от 24.09.2023
-
-The Moth - Frost (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me, Myself & Enemy [00:02:49]
-02. Birmingham [00:03:36]
-03. Battlefield [00:02:52]
-04. Bruised [00:02:43](   Читать дальше...   )Жанр: Sludge Metal, Doom MetalПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3751C1A33EC6484CCBE1F96D33403EB68B320946
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664041   (186292) от 24.09.2023
-
-Chaver - Of Gloom (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore, Metalcore, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Throne [00:00:35]
-02. Of Filth [00:02:13]
-03. Turn To Skeletons [00:03:24]
-04. Wanderer [00:05:26](   Читать дальше...   )Жанр: Hardcore, Metalcore, Melodic Death MetalПродолжительность: 00:29:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C11604603A8B61B23CEE6DF7AB69440C2957A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664007   (186293) от 24.09.2023
-
-Aeons Of Ashes - The Wasteland Chronicles (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascendancy [00:04:36]
-02. A Dormant Peril (Live) [00:04:33]
-03. Chapter 3: In the Hallway [00:00:40]
-04. Time Is a Lie [00:03:52](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16ED75D3D8B1CE61454C619877C26D71210F2F1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664073   (186294) от 24.09.2023
-
-Rebaelliun - Under The Sign Of Rebellion (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:56)
-02. All Hail The Regicide (4:01)
-03. The Gods Manace (4:04)
-04. Fear The Infidel (3:30)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963EA4CFFB2374D8E32F72279271CF45CF0D1613
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663948   (186296) от 24.09.2023
-
-Roy Eldridge & Coleman Hawkins - Just You, Just Me (1959) 1990, Stash Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+Akiko Grace - New York Style (2003) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Experimental>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186296.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blue Lou [9:49]
-02. Basin Street Blues [7:18]
-03. Just You, Just Me [7:16]
-04. Rifftide [7:32](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:14:56
+01. Jump (6:35)
+02. Chromazone (5:10)
+03. Greensleeves (6:36)
+04. Smile (5:15)(   Читать дальше...   )Жанр: Smooth Jazz, ExperimentalПродолжительность: 01:04:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:566BE6F51C26325AE787C3EE56EE95DD0CF36691
+magnet:?xt=urn:btih:65C9B0C2544A059EF684701C7982369EB0811825
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662802   (186299) от 23.09.2023
+###  Публикация: 1426818   (185466) от 26.11.2020
 
-Звездные Войны / Star Wars (1977-2019) BDRemux [H.264/1080p] [Коллекция]
+Футбол. Лига Наций УЕФА 2020-2021. Лига B. Группа 3. 6-й тур. Сербия — Россия (2020) WEB-DL [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лига Наций УЕФА 2020-2021.
+18 ноября 2020, среда. 22:45 МСК
+Лига B. Группа 3. 6-й тур
+Сербия — Россия(   Читать дальше...   )Телекомпания: Матч! ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F191BD47017984AEA4536F0D5468EF5A1788BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591998   (185467) от 20.11.2022
+
+PullTube 1.8.4.14 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРазработчик: MyMixAppsПоддерживаемая ОС: macOS Black 10.12 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C560D8721D2D5EE3060DEDCCEB0E52F26B881923
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664546   (185469) от 26.09.2023
+
+Лорел и Харди. Свобода / Liberty (1929) WEBRip [H.264/720p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое сбежавших заключенных переодеваются в машине во время побега, но по ошибке обмениваются штанами. Остальная часть фильма включает в себя их попытки обменяться штанами в переулках, в кебах и, наконец, высоко над улицей на перекладинах строительной площадки.Производство: США, Hal Roach StudiosЖанр: короткометражный, комедия, немое киноРежиссер: Лео МакКериАктеры: Стэн Лорел, Оливер Харди, Том Кеннеди, Сэм Луфкин, Джеймс Финлейсон, Джек Хилл, Гарри Бернард, Джин Харлоу, Эд БранденбургПеревод: немой с интертитрами (bankolya)Субтитры: английские (интертитры), русскиеПродолжительность: 00:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC450AC5DF9C4FDE9BCB68858141BF64B2568FF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591848   (185472) от 20.11.2022
+
+Antimatter - A Profusion Of Thought (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmosheric Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Contact [00:05:25]
+02. Paranoid Carbon [00:05:17]
+03. Heathen [00:05:58]
+04. Templates [00:05:16](   Читать дальше...   )Жанр: Atmosheric Progressive RockПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C86B78D5EA19D3EE211E9537BED67136D27B5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664523   (185473) от 26.09.2023
+
+Чингиз Абдуллаев | Дронго (Книга 54). Трибунал для Валенсии (2023) [MP3, Олег Шитов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_185473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежегодное посещение Испании стало для детектива Дронго своеобразной традицией. Здесь живет его давняя знакомая Ингрид, и Дронго считает своим долгом хотя бы изредка навещать ее. В этом году детектив остановился в одном из лучших отелей Валенсии, но насладиться тишиной и спокойствием ему не удалось. В отеле произошло убийство. Дронго в паре с местным следователем (   Читать дальше...   )Жанр: ДетективИздательство: ЛитРес: чтецПродолжительность: 06:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B371647BC9CC900F4FD98032F2F820B4296C27C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426962   (185474) от 26.11.2020
+
+Горные лыжи. Кубок мира 2020-2021. 3-й Этап. Леви (Финляндия). Женщины. Слалом (2020) IPTVRip [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубка мира по горнолыжному спорту 2020-2021 года.
+22 ноября 2020 года
+3-й Этап. Леви (Финляндия).
+Женщины. Слалом 1-я и 2-я попыткиТелекомпания: Eurosport HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:00:22 — 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E32D2E1AE448A0AFCFB185135A649612A4F9E0DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664450   (185477) от 26.09.2023
+
+Thorium - Empires In The Sun (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams Of Empire (A Pastorale)
+02. Exquisite
+03. Powder And Arms II
+04. Where Do We Go(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD98F51CC8B33884EAF1C1B710742EE4E0B2CED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426833   (185478) от 26.11.2020
+
+Shygirl - ALIAS (2020) [AAC|~312 Kbps] <Electronic, Grime, Experimental>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TWELVE (2:32)
+02. SLIME (2:39)
+03. FREAK (2:47)
+04. TASTY (2:24)(   Читать дальше...   )Жанр: Electronic, Grime, ExperimentalПродолжительность: 00:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC42C887050A03F79BD64AED348613768136C6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591900   (185479) от 20.11.2022
+
+Формула 1. Сезон 2022. Этап 22. Гран-при Абу-Даби. Квалификация (19.11.2022) WEB-DL [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185479.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 ноября 2022, суббота. 17:00 МСК. Этап 22, ОАЭ. Гран-при Абу-Даби. КвалификацияТелекомпания: F1TV HDЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова), ОригиналСубтитры: ОтсутствуютПродолжительность: 01:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6BEF733597FDCED8BD632601E56B4772612C75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591943   (185481) от 20.11.2022
+
+Wind Rose - Wintersaga (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of Iron And Gold
+02. Wintersaga
+03. Drunken Dwarves
+04. Diggy Diggy Hole(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9969909D0DEB4F96B85224A07AFCA04AD79C6089
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426989   (185482) от 26.11.2020
+
+Downie 4 v4.1.10 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_185482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм завершает невероятную историю семьи Скайуокеров, длящуюся уже более сорока лет, и обещает дать ответы на все загадки из предыдущих серий. Зрителя ожидают старые и новые герои, уникальные миры, увлекательные путешествия на край Галактики и грандиозный финал фантастической саги.Производство: США, Lucasfilm Ltd.Жанр: Фантастика, боевик, фэнтези, приключенияРежиссер: Джей Джей АбрамсАктеры: Дэйзи Ридли, Адам Драйвер, Кэрри Фишер, Марк Хэмилл, Джон Бойега, Оскар Айзек, Энтони Дэниелс, Наоми Аки, Донал Глисон, Ричард Э. ГрантПеревод: Дублированный (Blu-ray CEE)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:21:53
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 26.11.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2EE00DB6C6426E3EA173C78AC977FDB8ED936BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663691   (186303) от 23.09.2023
-
-Никто тебя не спасёт / No One Will Save You (2023) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8, 10-bit] [DVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тихоня Бринн Адамс в любой компании чувствует себя «белой вороной». Молодая и талантливая скромница не находит себе места в обществе и решает закрыться в четырех стенах. Она поселяется в доме родителей. Одиночество ее не тяготит. Она проводит время в раздумьях и мечтаниях, радуясь, что шум и суета остались позади. Знакомое место навевает ей покой, которого так не (   Читать дальше...   )Производство: США, 20th Century Studios, Star Thrower EntertainmentЖанр: ужасы, фантастика, триллерРежиссер: Брайан ДаффилдАктеры: Кейтлин Дивер, Ginger Cressman, Зэк Дуэйм, Джеральдин Сингер, Роуз Бьянка Гру, Dari Lynn Griffin, Elizabeth Kaluev, Evangeline Rose, Девин Сэндидж, Лорен Л. МюррэйПеревод: Двуголосый любительский (Yuka chan & datynet)Язык озвучки: русский, английскийСубтитры: русские, английские (Full, SDH), испанскиеПродолжительность: 01:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A4022F4C073034EB4D56DCB1DB0DA9DB4E91EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663403   (186305) от 23.09.2023
-
-Жанна Дюбарри / Jeanne du Barry (2023) WEBRip [Локализованный видеоряд]
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_186305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанна Вобернье, женщина из низшего сословия, выбивается из нищеты при помощи женских чар. Ее покровитель, граф Дюбарри, разбогатевший благодаря любовным интригам Жанны, желает представить ее королю и организует свидание через влиятельного герцога де Ришелье. Встреча выходит далеко за рамки его ожиданий — Жанна влюбляет в себя Людовика XV с первого взгляда своей непосредственностью. (   Читать дальше...   )Производство: Франция / Why Not Productions, France 2 Cinéma, La Petite ReineЖанр: Драма, биография, историяРежиссер: МайвеннАктеры: Майвенн, Джонни Депп, Бенжамен Лаверн, Мельвиль Пупо, Робен Ренуччи, Пьер Ришар, Марианн Басле, Паскаль Греггори, Каролин Шаньоллю, Индия ХэйрПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: РусскийСубтитры: Русские (отдельно)Продолжительность: 01:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C3AE7D2CA3865D0EACE25BED46F614193BBB471
+magnet:?xt=urn:btih:78B1C7DC0DFF744AA030CFA27B70C18D0EC2CEAC
 ```
 
 

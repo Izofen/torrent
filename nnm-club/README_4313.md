@@ -1,3 +1,223 @@
+###  Публикация: 595435   (132756) от 28.12.2012
+
+Николай Прокудин | Остров Амазонок [2006] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый из нас, устав от монотонной жизни, порой мечтает о романтических путешествиях и увлекательных приключениях. А если фантазии и грезы вдруг превращаются в реальность?!
+
+Эта книга – о нашем соотечественнике, который отправился в обычную служебную командировку, а его занесло за тридевять земель, в тридесятое царство, в доисторическое, родоплеменное государство. Кем он только не побывал! И вершителем истории, и монархом на таинственном острове, и спасателем кругосветной экспедиции...
+
+Но зачем же мы будем пересказывать, если Вы сами можете прочитать?Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E196363409E65B2FDE2D408390551DE5DD56F8F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681459   (132757) от 03.12.2023
+
+Vitalines - Wheels Within Wheels (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judgement Day Is Here (4:47)
+02. Love Not Fantasy (4:23)
+03. Hello World - We Need To Talk (3:23)
+04. Cards From Another Game (4:15)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5BCB312A1BE6DF06E9D5A38869CBE475E19DEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681496   (132759) от 03.12.2023
+
+Ewiniar - Another World (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Rock, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shattered Illusion [00:03:29]
+02. Your Name [00:03:34]
+03. Cyanide [00:03:52]
+04. Sister Moon [00:04:14](   Читать дальше...   )Жанр: Gothic Metal, Rock, Female VocalsПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A25450314467E9AF82F0F72087DCF4A7E47A73AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595247   (132760) от 28.12.2012
+
+New year wallpapers 2013 (26.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:051DEF00C069A12E4AB7EC1BC551BF6F36903320
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681475   (132761) от 03.12.2023
+
+Way2far - Red Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirage- Lost in the Desert [00:04:54]
+02. Red Star [00:04:52]
+03. Devil's Flame [00:05:23]
+04. You Can't Hurt Me [00:04:31](   Читать дальше...   )Жанр: Melodic Metal, Female VocalsПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10ECB7AA15A1C1DF2CE7A70554BA1B3B3B029DB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593991   (132762) от 28.12.2012
+
+Diplo & Friends - Dada Life Guest Mix (23.12.2012) [MP3|320 кб/с]<House / Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dada Life - Happy Violence (Vocal Mix)
+02.TJR - Ode To Oi 
+03 .Qulinez - Bamf 
+04.Dada Life - Rolling Stones T-Shirt 
+05.Sebjak - Follow Me (Gregori Klosman Remix)
+06.Mick Kastenholt & Andrew Dee - One Two Fuck You 
+07.Jochen Miller - Cheer Up
+08.R3hab & ZROQ - Skydrop
+09.Dada Life - Feed The Dada
+10.Basto! - Stormchaser(   Читать дальше...   )Жанр: House / Electro HouseПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1237169CD6FC6FB190446ACCC45163CE4AEE6258
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681512   (132763) от 03.12.2023
+
+PlasmaTrout - Fire When Ready (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faded [00:03:19]
+02. Your Prize [00:04:20]
+03. Diverge [00:04:38]
+04. Fire When Ready [00:03:50](   Читать дальше...   )Жанр: Hard Rock, Garage RockПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A453C41BF249DFB0FED213260D509C0C9CFCAE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681654   (132765) от 03.12.2023
+
+Night In Gales - Ashes & Ends (2014) Compilation, Remastered, 2014, Divebomb Records [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deathaddiction
+02. The Woundwalker
+03. Ashes & Ends
+04. Get Killed Or Die Trying(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8D4F6E6AECFE10AFBD86FC13B0454B52C7C089
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681482   (132767) от 03.12.2023
 
 Thundergrave - For the True Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
@@ -460,208 +680,6 @@ VMware vSphere ESXi 8.0U2 [amd64] 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:028DAB0D08A1F4E0EC9C6FAF84E6B63FE4744E66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595251   (132791) от 28.12.2012
-
-Creative Wallpapers (26.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADA492C4EEDF8CC5889316F9E006569A89C4C1FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680661   (132792) от 02.12.2023
-
-Госпожа (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы выплатить коллекторам долги матери, назанимавшей огромную сумму, сексуально и морально закрепощенная соцработница Маруся вынуждена стать доминатрикс в специфическом борделе. Это неожиданно помогает ей начать господствовать не только в постели, но и в жизни.Производство: Россия | «Star Media»Жанр: Драма, комедияРежиссер: Юлия ТрофимоваАктеры: Никита Ефремов, Евгения Громова, Дмитрий Лысенков, Павел Ворожцов, Ольга Тумайкина, Сабина Ахмедова, Мария Голубкина, Алексей Розин, Елена Николаева, Таисья КалининаСубтитры: РусскиеПродолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74893CFC615757C1FD1965FC027CC54240F0E3B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680948   (132793) от 02.12.2023
-
-Нужен АнтиЗапрет в 2024? Голосуй!
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор АнтиЗапрета проводит опрос по поводу нужности сервиса:ValdikSS:
-Ребята, как-то напряжно мне этим  уже одиннадцатый год заниматься. Из двух десятков друзей и знакомых едва ли кто-то может постоянно уделять время разработке и поддержанию работы сервиса, а почти все, для кого он создавался изначально, больше им не пользуются — 80+% моего окружения разъехались.С (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622730   (132795) от 02.12.2023
-
-Resident Evil 4 Remake Deluxe Edition (2023) [PS4] [EUR] 5.05 [HEN] [License / 1.10 / DLC] [Ru/Multi]
-
->>След.
->>PS4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resident Evil 4 - это ремейк оригинальной Resident Evil 4, выпущенной в 2005 году. Обновлённая к 2023 году, Resident Evil 4 сохраняет суть оригинала, используя фирменный RE Engine от Capcom, чтобы обеспечить модернизированный игровой процесс, переосмысленную сюжетную линию и яркую детализированную графику. Resident Evil 4 присоединяется к Леону С. Кеннеди через шесть (   Читать дальше...   )Тип издания: LicenseРазработчик: Consumer Games Development Division 1Жанр: Survival horror, TPSЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C8ECBEB8FC7B930A408EF59ED05F4CCA6CC820
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595574   (132796) от 28.12.2012
-
-VA - Hotel Lounge IV by Bar de Paris (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avalounge - La Caina (Balearic Mix)
-02. Jaimee - Cherish the Day (Ultra Lounge Rmx)
-03. Sensual Seduction - Diamonds & Pearls (Re-Jazzed Mix)
-04. Nu Groove Theory - Here Comes the Sun (El Trombon Edit)
-05. Design Of Life - Victoria's Secret (feat. Kanya) (Ambrosia Mix)
-06. ZouaveLiv - Wonderful Life (Juan Padilla After Hour Remix)
-07. Dalai Lama Tribute) - Bhangralution - The Voice of Buddha (Eyes Of Truth, Pt2
-08. The Chillsetters - From Here to Eternity (Can Avenue Remix)
-09. Rhythms Del Mundo - Brazilian Dream (Carlos & Cubalos Dub)
-10. Beats & Pieces - Miracle (feat. Fab) (Signfield Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 02:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D95940268D695726E9A4FF462166C8B227021E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595249   (132797) от 28.12.2012
-
-Interior Wallpapers (26.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0A653609900962E6AFB015EC482F12614C1B2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 684886   (132798) от 02.12.2023
-
-Если наступит завтра / If Tomorrow Comes (1986) DVDRip [H.264] (серии 1-3 из 3)
-
->>След.
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Героиня одноименного бестселлера популярного американского писателя Сиднея Шелдона скромная служащая банка Трэйси Уитни стоит на пороге счастья и успеха. Она обручена с любимым человеком, который, к тому же, баснословно богат и принадлежит к высшим кругам общества. И вот, из-за страшных и нелепых обстоятельств, все идет прахом: Трэйси оказывается в тюрьме, «подставленная» (   Читать дальше...   )Жанр: Драма, Криминал, ДетективРежиссер: Джерри ЛондонАктеры: Мэдолин Смит-Осборн (Tracy Whitney), Том Беренджер (Jeff Stevens), Дэвид Кит (Daniel Cooper), Лиам Нисон (Insp. Andr Trignant), Джек Уэстон (Uncle Willie), Ричард Кайли (Gunther Hartog), Джозеф Кортезе (Joe Romano), Джордж ДиЧенцо (Anthony Orsatti), Сьюзен Хесс (Louise Hollander), Джеффри Джонс (Budge Hollander), Джон Лофлин (Charles Stanhope), Сьюзен Тиррел (Bertha)Перевод: Многоголосый закадровый, профессиональныйЯзык субтитров: Финский, Норвежский, Шведский, Французский, Русский, ИспанскийПродолжительность: 02:12:13 + 01:28:54 + 01:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:396DB0C3B8400048957620916E858E8ADAAAEF77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655839   (132800) от 02.12.2023
-
-Подводный капкан / The Dive (2023) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_132800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сестры-дайверы Дрю и Мэй совершают традиционное совместное погружение в новом месте, в отдаленном полудиком уголке, и даже не представляют, с чем им придется столкнуться. Камнепад заточает Мэй в смертельную подводную ловушку, и времени нет: кислород на исходе, паника нарастает… Дрю может рассчитывать только на себя и вынуждена принимать роковые решения, чтобы попытаться (   Читать дальше...   )Производство: Германия / Falkun Films, Augenschein Filmproduktion, Falkun FilmsЖанр: триллерРежиссер: Максимилиан ЭрленвайнАктеры: Луиза Краузе, Софи ЛоуПеревод: Дублированный (Кириллица)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D208344ABA5E6FAA9CE7F73D6F85942A7135E1
 ```
 
 

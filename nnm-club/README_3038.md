@@ -1,3 +1,215 @@
+###  Публикация: 461528   (95245) от 03.03.2012
+
+Miles Davis - Aura (1989) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. White
+03. Yellow
+04. Orange
+05. Red
+06. Green
+07. Blue
+08. Electric Red
+09. Indigo
+10. Violet1989Жанр: JazzПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461453   (95254) от 03.03.2012
+
+Crane - Refuge (2011) [FLAC|Lossless]<Hard Rock/Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Able To Be Yourself - 2:59
+02. Goodbye - 4:29
+03. Fantasies - 4:07
+04. Wake Up - 3:53
+05. Paradise - 3:26
+06. King Of Trash - 2:53
+07. If You Open Up Your Eyes - 3:42
+08. Soul II Soul - 4:51
+09. Riddle - 2:52
+10. Capital Fascism - 3:18(   Читать дальше...   )Жанр: Hard Rock/Classic RockПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461696   (95257) от 03.03.2012
+
+Antonio Carlos Jobim - Miucha e Tom Jobim (1979) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95257.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Triste Alegria (Miucha)
+2. Turma do Funil (Mirabeau-Oliveira-Castro)
+3. No Cego (Toquinho-Cacaso)
+4. Falando de Amor (Jobim)
+5. Samba do Carioca (Lyra-Moraes)
+6. Madrugada (Candinho-Pinto)
+7. Sublime Tortura (Bororo)
+8. Aula de Matematica (Jobim-Pinto)
+9. Dinheiro em Penca1979Жанр: JazzПродолжительность: 00:32:25
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461416   (95265) от 03.03.2012
+
+Прожекторперисхилтон. Сезон 4. Выпуск 19(119) (24.02.2012) DVBRip
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95265.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Прожектор Пэрис Хилтон» — проект Первого канала, ведущими которого стали Гарик Мартиросян, Иван Ургант, Саша Цекало и Сергей Светлаков. Это программа, где нет ничего обязательного. Ведущие делают практически все, что хотят. Обсуждают темы, которые интересны зрителям, проводят «политинформацию» для населения. На столе в студии разложено много газет — ведь где еще, как не в свежих газетах, черпать актуальные новости, которые произошли на прошедшей неделе.Жанр: Телепередача, Новости, КомедияПродюсер: Александр ЦекалоПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E160BF7B2DF663DC418BE6FC109DC4D6DFD44AB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461887   (95277) от 03.03.2012
+
+М.Коломиец, И.Мощанский | Танки Ленд-лиза [2000] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга содержит большое количество фотографий бронетанковой техники поставлявшейся СССР по ленд-лизу из США Англии и других стран, помимо этого содержатся данные о том сколько и когда было поставлено, какие достоинства и недостатки были у поставляемых машин, их описания и т.п.. Книга адресована всем кто интересуется историей Второй мировой войны.В книге использованы (   Читать дальше...   )Жанр: Военная историяФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF41AD75F56890B81D9D247F55BF07B4D206CC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461682   (95281) от 03.03.2012
+
+Старшие Арканы - Корабль привидений (2012) [MP3|320 кб/с]<progressive metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Корабль привидений
+02-Дом желтых стен
+03-Ра
+04-Вечный гонщик
+05-Ночь печали
+06-Путь домой
+07-Иерофант
+08-Косумель
+09-Бракосочетание Рая и Ада
+10-Путь домой (chill out version)(   Читать дальше...   )2012Жанр: progressive metalПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52FC1E705FA2C5C815648612C54A40BD57733C4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461979   (95309) от 03.03.2012
+
+Yngwie Malmsteen - Marching Out (1984) /1994, Polydor/ [FLAC|Lossless]<Heavy/Power-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude
+02. I'll See the Light, Tonight
+03. Don't Let It End
+04. Disciples of Hell
+05. I Am a Viking
+06. Overture 1383
+07. Anguish and Fear
+08. On the Run Again
+09. Soldier Without Faith
+10. Caught in the Middle(   Читать дальше...   )Жанр: Heavy/Power-metalПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 460982   (95311) от 03.03.2012
 
 VA - Chacruna (Compiled by DJ Gino) (2008) [APE|Lossless]<Psychedelic / Progressive, Full On>
@@ -486,215 +698,6 @@ NG: Суперсооружения древности / Ancient Megastructures (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C287AC32BCF1F4D44CEC2DD5FF42029FEFE463B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459536   (95409) от 04.03.2012
-
-DJ Darrel - Happy Filthy Holidays (2011) [MP3|192 кб/с]<Drum&Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95409.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Throttler - Dark steel
- 2. DJ Hidden - You're not real
- 3. DJ Hidden - Dying star
- 4. Seid - The Machine
- 5. Switch Technique - The edge of chaos
- 6. Eye-D & DJ Hidden - Rain
- 7. Zeal & Litta - Screams of Another (Current Value remix)
- 8. Nanotek - Venus
- 9. Current Value - Warship
- 10. Limewax - Aria(   Читать дальше...   )2011Жанр: Drum&BassПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8595AAA523113BD4B3B79F05DD81FECB12CCC070
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459346   (95410) от 04.03.2012
-
-Charlie Straight - Someone With a Slow Heartbeat (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How do you like my earrings (03:14)
-02. Changing trains (04:11)
-03. Dear Jack & Stacey (03:24)
-04. Tiger in your heart (04:59)
-05. Coco (03:41)
-06. Too many knives (03:14)
-07. Something new (05:42)
-08. Someone with a slow heartbeat (05:07)
-09. Stuck in the mud (04:12)
-10. Institutions of the World (05:31)(   Читать дальше...   )2012Жанр: RockПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0F1E3019904A80CCA2908A4A6847D1730528D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462344   (95416) от 04.03.2012
-
-Schallusion - Morphologic Tales (2012) [MP3|320 кб/с]<Goa Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaman 17:10
- 02. The Aborigine 11:05
- 03. Transcendance 07:54
- 04. Harmonic Tales 10:49
- 05. Crossover 08:59
- 06. Collaborator 11:03
- 07. Future Stomp 08:592012Жанр: Goa TranceПродолжительность: 01:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB20C2817CC8F55BC050A0B30441C1DEDBC3D1CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461984   (95430) от 04.03.2012
-
-[EN] Скет / Sket (2011) [H.264] DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда на молодую женщину безжалостно нападает печально известная бригада во главе с жестоким Треем, ее маленькая 16-летняя сестра Кайла хочет мести и не остановится ни перед чем, даже если придется присоединяться к конкурирующей женской бригаде...Жанр: КриминалРежиссер: Нирпал ХогалАктеры: Эшли Уолтерс, Лили Лавлесс, Айми Келли, Эмма Хартли МиллерПеревод: ОтсутствуетПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02003CD8B160191511D2F30F22FD062F6162B290
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462374   (95435) от 04.03.2012
-
-Журнал | ХлебСоль №3 [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кулинарный журнал с Юлией Высоцкой.
-Мы знаем, что наши читательницы не стоят сутками у плиты. Поэтому не пропагандируем дорогие гастрономические редкости. Большинство рецептов журнала создано из тех ингредиентов, которые всегда под рукой и их запас легко пополнить в любом супермаркете. Мы думаем о таких же, как мы сами, молодых женщинах, которые активно работают, (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383AE7B7E4C0823F66513E6125A6A3C331647806
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462421   (95443) от 04.03.2012
-
-John McLaughlin with The One Truth Band - Electric Dreams (1979) [FLAC|Lossless]<Jazz fusion, jazz, world fusion>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95443.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Guardian Angels (0:52)
-2. Miles Davis (4:54)
-3. Electric Dreams, Electric Sighs (6:27)
-4. Desire and the Comforter (7:35)
-5. Love and Understanding (6:39)
-6. Singing Earth (0:38)
-7. Dark Prince (5:17)
-8. Unknown Dissident (6:18)1979Жанр: Jazz fusion, jazz, world fusionПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462305   (95448) от 04.03.2012
-
-Maysa - Motions of Love (2011) [APE|Lossless]<Smooth Jazz, Soul, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Wit Me (4:36)
-02. Come Dance with Me (3:34)
-03. Day N Night (5:00)
-04. Flower Girl (feat. Dwele) (4:01)
-05. Have Sweet Dreams (4:27)
-06. Motions of Love (4:02)
-07. You Won't Find Your Way (4:09)
-08. When It's Over (4:47)
-09. Love Sweet Love (LSL) (3:59)
-10. Hold On (5:27)(   Читать дальше...   )2011Жанр: Smooth Jazz, Soul, R&BПродолжительность: 00:59:26
-
-## Скачать торент
-```bash
-нет
 ```
 
 

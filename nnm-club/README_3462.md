@@ -1,3 +1,188 @@
+###  Публикация: 1722512   (109697) от 11.05.2024
+
+Виктор Голявкин | Обыкновенные дела (2018) [MP3, Алла Човжик]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская аудиокнига.
+Виктор Владимирович Голявкин (1929–2001) – русский советский детский писатель-юморист, художник, короткими весёлыми рассказами которого зачитывались не только дети, но и взрослые.
+Студия «АРДИС» представляет повесть известного российского писателя Виктора Голявкина «Обыкновенные дела», рассказывающую об обыкновенном, нет! – необыкновенном (   Читать дальше...   )Жанр: Русская литература для детей, повестьИздательство: Студия «АРДИС»Продолжительность: 04:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1231422CE6A9F8DC003455D4452BCE8A791AAC4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722464   (109698) от 11.05.2024
+
+Арбат - Голубоглазая (2006) [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109698.jpg" />
+</div>
+
+
+###  Подробнее
+
+10. Голубоглазая
+ 02. Арбат
+ 03. Мосты
+ 04. Олигархи(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2826C200A7D3123D9CFD41CBA30DDD3BFEDEC44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722501   (109699) от 11.05.2024
+
+Драма эпохи рыцарства / Et Drama fra Riddertiden (1907) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совсем небольшой ролик. Во времена мушкетеров было сплошное благородство и рыцарство, всякие там "мерси-пардон мадам, вызываю Вас на дуэль!" Ну, и все такое. Но ведь и любовь и страсть тогда тоже были. А как говорится, в любовной войне правил нет. И если какой-то заезжий кавалер со шпагой у тебя невесту отбивает, какое уж тут рыцарство...Производство: Дания, Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Вигго ЛарсенАктеры: Вигго Ларсен, Густав Лунд, Clara NebelongЯзык озвучки: немойСубтитры: отсутствуютПродолжительность: 00:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B269C604909E3EB6E6F39688CBE70EDFA93B474C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722396   (109700) от 11.05.2024
+
+David "Fathead" Newman, Ellis Marsalis, Cornell Dupree - Return To The Wide Open Spaces (1990) Amazing Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [1:27]
+02. Buster's Tune [5:40]
+03. Hard Times [8:34]
+04. 13th Floor [7:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5BF720CE12F416158E4DF596DE1C207E3F3ED8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722397   (109701) от 11.05.2024
+
+Gigi Gryce - The Rat Race Blues (1960) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rat Race Blues [6:37]
+02. Strange Feelin' [7:48]
+03. Boxer's Blues [7:02]
+04. Blues in Bloom [7:47](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E1C01254EE3F398BE8411EBA9F3070B454D065
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722393   (109702) от 11.05.2024
+
+Richard Marx - Rush Street (1992) Unofficial Release [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109702.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Take This Heart
+A2 Keep Coming Back
+A3 Big Boy Now
+A4 Calling You(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B8781127FD652CFA383F36639CBF0CA6FB1AEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722426   (109703) от 11.05.2024
+
+VA - Deep House Summer Charts 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CJ Stone, Voodoo, Serano & Rocco - Overload 2024 (02:52)
+02. Nora & Chris - Baby Cherie (feat Jorik Burema) (02:14)
+03. Dj Soulstar - Think Too Much (02:55)
+04. Wallace - Memories (02:51)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C23C46F18DB732271DBBB99F397600216A2AAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722453   (109704) от 11.05.2024
 
 VA - Deep House Essentials (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -492,189 +677,6 @@ Fange - Perdition (2024) [FLAC|Lossless|WEB-DL|tracks] <industrial, sludge, doom
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A22C374A681E126409C06C7F8EE6277E09B9CF0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722161   (109723) от 10.05.2024
-
-Crownshift - Crownshift (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stellar Halo (5:18)
-02. Rule The Show (4:33)
-03. A World Beyond Reach (4:09)
-04. If You Dare (4:50)(   Читать дальше...   )Жанр: Melodic Death Metal, Power MetalПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1F48978FD3B27BBC4599A7266F8A48CCC8374D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722089   (109724) от 10.05.2024
-
-Тревожный звонок / On the Line (2023) WEB-DLRip [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рабочий день телефонистки Агнес идет не по плану, когда она случайно перехватывает звонок и узнает о похищении женщины. В панике Агнес сообщает полиции о происшествии, но не может отпустить ситуацию — тогда девушка начинает собственное расследование.Производство: ВеликобританияЖанр: триллер, драма, детективРежиссер: Оливер ПирнАктеры: Виктория Люси, Ройс Пирресон, Харриет Уолтер, Джоанн Роджерс, Томас Блисс, Салли Гик, Ричард Хип, Крис Доннелли, Шинах Гован, Мелисса ТомПеревод: Дублированный (Akimbo Production) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:15:28Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722087   (109725) от 10.05.2024
-
-Тревожный звонок / On the Line (2023) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рабочий день телефонистки Агнес идет не по плану, когда она случайно перехватывает звонок и узнает о похищении женщины. В панике Агнес сообщает полиции о происшествии, но не может отпустить ситуацию — тогда девушка начинает собственное расследование.Производство: ВеликобританияЖанр: триллер, драма, детективРежиссер: Оливер ПирнАктеры: Виктория Люси, Ройс Пирресон, Харриет Уолтер, Джоанн Роджерс, Томас Блисс, Салли Гик, Ричард Хип, Крис Доннелли, Шинах Гован, Мелисса ТомПеревод: Дублированный (Akimbo Production) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:15:28Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722283   (109726) от 10.05.2024
-
-Demersal - Demersal (2024) [FLAC|Lossless|WEB-DL|tracks] <Emotional Hardcore, Screamo>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flakkende Som Tusinde Lys [00:01:17]
-02. Bedrager [00:02:02]
-03. Lys I Natten [00:01:53]
-04. Something [00:04:37](   Читать дальше...   )Жанр: Emotional Hardcore, ScreamoПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B05DF5BC9E42E10AB35C94760A37FA1AD98A250
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722139   (109727) от 10.05.2024
-
-VA - Junk Boat Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Day - Brain Stew (3:13)
-02. All Time Low - Sleepwalking (3:07)
-03. Paramore - Running Out of Time (3:12)
-04. MIKE SHINODA - In My Head (2:52)(   Читать дальше...   )Жанр: RockПродолжительность: 01:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4EFAE6092AD68C70FF3D4A3DF41C67239877F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722045   (109728) от 10.05.2024
-
-Mick Clarke - Winter Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Sun [00:03:02]
-02. Just Dropped In [00:04:13]
-03. I Like It Like That [00:02:20]
-04. River's Invitation [00:03:49](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8ABADC3ADD46D1BC90D2724727790379AF12C58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722218   (109729) от 10.05.2024
-
-Эдi - Сомачувствия (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сома [00:04:00]
-02. Ядра золотые [00:03:29]
-03. Деньги [00:03:12]
-04. Откровенные тайны [00:03:24](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B49AE5E60A77083E49F98B4D5FAD21D05AAF099
 ```
 
 

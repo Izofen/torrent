@@ -455,6 +455,60 @@ magnet:?xt=urn:btih:90B7B260C7059EB151A9928AB07E66996FCC4CE2
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572601   (187065) от 20.09.2023
+
+Myrath - Дискография (8 albums) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Oriental Progressive Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_187065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Myrath (араб. ميراث‎, наследие) — ориентал-метал-группа, основанная в 2001 году в Тунисе.2005 - Double Face
+2007 - Hope
+2010 - Desert Call
+2011 - Tales of the SandsЖанр: Oriental Progressive Metal, Power MetalПродолжительность: 07:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB5B44803276518C7572F62433471C016577E89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546406   (187108) от 20.09.2023
+
+Heathen - Studio Albums (5 releases) (1987 - 2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Speed/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_187108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Heathen — группа из США, играющая в стиле спид/трэш-метал. Группа была основана в 1984 году гитаристом Ли Элтусом и ударником Карлом Сэкко.1987 - Breaking the Silence
+1991 - Victims of Deception
+2010 - The Evolution Of Chaos
+2020 - Empire Of The BlindЖанр: Technical Speed/Thrash MetalПродолжительность: 04:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F67AB7F0FAA9CAD2F25CBEEE20A8E1EA2D17AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591175   (187128) от 18.11.2022
 
 Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Metal>
@@ -639,60 +693,6 @@ The National - Laugh Track (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48BCA0E5193A9AD9D3B7F99C4FA4769BD18598A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662671   (187437) от 19.09.2023
-
-The Who - Who’s Next : Life House (Super Deluxe) (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187437.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01
-01. Baba O'Riley (Remastered 2022) [5:04]
-02. Bargain (Remastered 2022) [5:35]
-03. Love Ain't For Keeping (Remastered 2022) [2:12](   Читать дальше...   )Жанр: RockПродолжительность: 09:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD2346C677D75BCB07502ED54E6B6F2DE708A23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662814   (187452) от 19.09.2023
-
-VA - Favourite Operatic Duets - Duets From Composers Operas Rossini, Verdi, Puccini, Berlioz and Bizet (1976) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Opera, Romantic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187452.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Serbami Ognor (Semiramide, Act I)
-A2 Se M'Ami Ancor ... Al Nostri Monti Ritorneremo (Il Trovatore, Act IV)
-A3 Un Di Felice (La Traviata, Act I)
-A4 Ascoltai Le Porte Dell'Asil S'Apron Gia, Dio, Che Nell'Alma Infondere (Don Carlo, Act II)(   Читать дальше...   )Жанр: Classical, Opera, RomanticПродолжительность: 01:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870A41064ADDD114E0F45E11BFF88C53539B6227
 ```
 
 

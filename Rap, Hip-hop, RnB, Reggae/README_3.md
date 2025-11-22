@@ -490,6 +490,39 @@ magnet:?xt=urn:btih:93F4CB9AA89146D4A284E0266200889B7584E28C
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592815   (135528) от 22.12.2012
+
+Bruno Mars - Unorthodox Jukebox (2012) Deluxe Edition [FLAC|Lossless]<Pop, R&B, Rock, Soul, Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young Girls                 [03:48]
+02. Locked Out Of Heaven        [03:53]
+03. Gorilla                     [04:04]
+04. Treasure                    [02:58]
+05. Moonshine                   [03:48]
+06. When I Was Your Man         [03:33]
+07. Natalie                     [03:45]
+08. Show Me                     [03:27]
+09. Money Make Her Smile        [03:23]
+10. If I Knew                   [02:13](   Читать дальше...   )Жанр: Pop, R&B, Rock, Soul, ReggaeПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272941   (138939) от 30.12.2018
 
 HammAli & Navai - JANAVI (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -674,33 +707,6 @@ OBLADAET - PLAYERS CLUB 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1E86A9B04EFE81C87593F483F923013C86E10B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194855   (153184) от 26.12.2017
-
-Полиграф ШарикOFF - Какао белого цвета (2017) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_153184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гелик Вани (3:10)
-02. Какао белого цвета (4:04)
-03. Только секс (3:30)
-04. Мурашит (2:39)(   Читать дальше...   )Жанр: Hip-Hop, PopПродолжительность: 00:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E95B3C619043739C5A5EEDFB48A3472BBD24395
 ```
 
 

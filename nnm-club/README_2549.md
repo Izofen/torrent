@@ -1,3 +1,57 @@
+###  Публикация: 1795755   (67022) от 06.05.2025
+
+Леонид Андреев | Иностранец (1996) [MP3, Сергей Бехтерев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека. Малая проза.
+Леонид Николаевич Андреев (1871–1919) – русский писатель, прозаик и драматург, один из самых знаменитых писателей России начала 20 века.
+Рассказ Л.Н. Андреева «Иностранец», написанный осенью 1901 года, и сегодня, более чем через 120 лет после написания, звучит очень остро…
+(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CF46A9D1C17E928E592AEFDC35353857B7E398B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795805   (67023) от 06.05.2025
+
+Hyena - About Rock and Roll (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightriders
+02. About Rock and Roll
+03. The Eternal Zero
+04. Hail the Fire(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2921AD6FE8F77013F1771E165B42D50EB1E211BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795795   (67024) от 06.05.2025
 
 Безумие Манхэттена / Manhattan Madness (1916) WEBRip
@@ -636,60 +690,6 @@ Desolator - Spirit of Speed (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85DD6E5798F85BE300894AAE3D8B2C80FAEA86F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795552   (67048) от 05.05.2025
-
-Augury - Concealed (2004) Released, 2022, The Artisan Era [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67048.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Beatus (04:05)
-A2. ...Ever Know Peace Again (03:35)
-A3. Cosmic Migration (05:56)
-A4. Nocebo (05:22)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19E8C4B783D9087F942D866A93BBF0DF7C8B740
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795573   (67049) от 05.05.2025
-
-Augury - Illusive Golden Age (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67049.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Illusive Golden Age (05:50)
-A2. The Living Vault (06:10)
-B1. Carrion Tide (05:04)
-B2. Mater dolorosa (06:54)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D630BFAD5104F13A26E08EC4358F0DCEB58F6AD5
 ```
 
 

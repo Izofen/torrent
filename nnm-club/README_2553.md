@@ -1,3 +1,51 @@
+###  Публикация: 1794757   (67126) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Cute Watercolor Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с разнообразными изображениями.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9339B72A9B8F9EA0D7AC8479C218A298A69F116F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794788   (67127) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica -  Vintage Teacup Stacks Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с винтажными стопками чайных чашек.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E022CEA67C077B07CB5760156D3C1FDA13F2F16A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794775   (67128) от 03.05.2025
 
 Растровый клипарт - inpixell.studio - Creative Fabrica - Bath Time Animals Clipart [PNG]
@@ -581,57 +629,6 @@ magnet:?xt=urn:btih:504DFFFD6F01BEC519629BA62FD2F954598F4966
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C5FF6CB5BF8078A3B68DB3E04D85894279E2F15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794805   (67152) от 03.05.2025
-
-Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Dusty Roses Flowers Watercolor [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт с розами.Формат: PNGРазрешение файлов: 4000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520D55DAD1A65D1D7B648617C5F590F7470A5E7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795182   (67153) от 03.05.2025
-
-VA - Alternative Route (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rochus Rocky Hobi - Where I Belong (3:43)
-02.  Simon Zawila - Further & Further (2:46)
-03.  Clarissa Höbel - Take My Hand (2:59)
-04.  Thomas Kehl It's Me - It's so Nice (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA1CD59EFA7530BD89F367190ADA83DEDF92246
 ```
 
 

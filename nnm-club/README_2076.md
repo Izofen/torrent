@@ -1,3 +1,51 @@
+###  Публикация: 1727732   (54341) от 04.06.2024
+
+Грязные войны / Dirty Wars (2013) BDRemux [H.264/1080p] [VO]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наряду с официальными военными кампаниями, США постоянно ведет другие, грязные войны, о которых мало кто знает, и в которых участвуют нигде не зарегистрированные солдаты. Автор фильма Джереми Скахилла проводит собственное расследование проведения секретных операций армии США в Афганистане, Йемене, Сомали и в других странах. Свои комментарии дают люди, которые имеют (   Читать дальше...   )Производство: США, Big Noise Films, Civic BakeryЖанр: документальный, криминал, детектив, военный, историяРежиссер: Рик РоулиУчастники: Нассер Аль Аулаки, Салеха Аль Аулаки, Мукбал Аль Каземи, Абдул Рахман Барман, Сале Бин Фарид, Эндрю Эксум, Абдул Гафур, Филип Джиральди, Мэттью Хо, Патрик ЛэнгПеревод: Одноголосый профессиональный (Селена Интернешнл)Язык озвучки: русский, английскийСубтитры: немецкие, английские (PGS)Продолжительность: 01:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD4EE74F2FDBA6160AD36FCAE9B17EAE119EC6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727793   (54342) от 04.06.2024
+
+Журнал | PhotoCASA №1 (76) (апрель-май 2024) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54342.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoCASA - красочный иллюстрированный журнал о фотографии как для профессионалов, так и для любителей. В каждом номере журнала - новинки фото и видео-техники, интервью с известными фотографами и знакомство с их работами, а также уроки по обработке фотографий, советы по съёмке и ещё много другой полезной информации.Жанр: Фотография, хоббиИздательство: PhotoCASAФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A7FEDEEEAC49BCA4B8BC437EA119EC20CFCDFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727697   (54343) от 04.06.2024
 
 Леонид Фёдоров (ex. АукцЫон) - Мир (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -608,57 +656,6 @@ Duck Detective: The Secret Salami (2024) [En] (1.0.11) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6A551CBE90AABA73EFFC06EBAD8F2DB60C69259
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727883   (54367) от 04.06.2024
-
-Rob Houston (editor) | How Food Works (2017) [PDF] [EN]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54367.jpg" />
-</div>
-
-
-###  Подробнее
-
-An easy-to-understand visual guide to the facts of food and nutrition. Through a highly visual approach that uses bold infographics, explore the good, the bad, the confusing, and the trending world of food. Covering a wide variety of topics, from dieting to gluten intolerance, debunks common food myths, explains nutrition, covers the food groups, and looks into organic (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DBA8246128E63E1F294BD21D9B6F93CBDF4029A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727889   (54368) от 04.06.2024
-
-Osvaldo Martin | Bayesian Analysis with Python (2016) [PDF] [EN]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_54368.jpg" />
-</div>
-
-
-###  Подробнее
-
-The purpose of this book is to teach the main concepts of Bayesian data analysis.
-What you will learn
-Understand the essentials Bayesian concepts from a practical point of view
-Learn how to build probabilistic models using the Python library PyMC3(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Packt PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AFE8D2B786D2FCBD539A749BB9A247A347240AB
 ```
 
 

@@ -1,3 +1,189 @@
+###  Публикация: 1730136   (107955) от 14.06.2024
+
+Marcela de Campos - Dimmed Lights (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spoonful (5:14)
+02. Blues With a Feeling (4:59)
+03. Nobody Knows You When You're Down and Out (4:51)
+04. Dimmed Lights (3:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB36EC5C754A1EEC7686CCAFAAF54893CAE8FB8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730141   (107956) от 14.06.2024
+
+The Andy MacFarlane Two Man Orchestr - My Old Suitcase (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Did (3:04)
+02. Vicky Straightaway (3:49)
+03. Over the Hill (3:22)
+04. Still Drunk, Still Crazy, Still Blue (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090D98EC37AAF56430E9482DDFEFE46759BE4E03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730075   (107957) от 14.06.2024
+
+Xeneris - Eternal Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barbarossa
+02. Before The River Of Fire
+03. Eternal Rising
+04. Pandora's Box(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0CC004950CFB0E3F9709412B5A2B6BA0FAAE34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730133   (107958) от 14.06.2024
+
+Jesse Dayton - The Hard Way Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hard Way (3:38)
+02. Night Brain (3:24)
+03. Talkin' Company Man Blues (4:10)
+04. Baby's Long Gone (3:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11C9CC9DE5382208952C93E4566456B9E66B00C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729979   (107959) от 14.06.2024
+
+VA - Константин Ступин. Трибьют, Часть 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107959.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. White Punk - Лёд и ветер (Константин Ступин cover)
+2. Nemirov - Корсары (Константин Ступин cover)
+3. Banev! - Дождь (Константин Ступин cover)
+4. Гранитный цех - Тварь (Константин Ступин cover)(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D9752149737D91B8D5374A5F2843C324A13B110
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730198   (107960) от 14.06.2024
+
+МузЛофт-подкаст / МузLoft. Мартиросян, Сорокин, Аверин, Матуа (2024) WEBRip [H.264/1440p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такого ещё у нас не было! Сразу четыре артиста, да ещё и каких! Резиденты камеди клаб, змей Горыныч из Маски, да и вообще талантливые, музыкальные ребята с которыми было кайфово. Надеюсь, эта невероятная атмосфера передастся вам при просмотре.Производство: Россия | Y-GenerationУчастники: Мартиросян, Сорокин, Аверин, МатуаПродолжительность: 01:32:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BA6CCA0C2DA261379CB9C8FA53725813C91A8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730140   (107961) от 14.06.2024
+
+Paul McCartney & Wings - One Hand Clapping Sessions [Live Studio Sessions 1974 / Remastered 2024] (2024) MPL Communications [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - One Hand Clapping (00:02:15)
+02 - Jet (00:04:00)
+03 - Soily (00:03:56)
+04 - C Moon-Little Woman Love (00:03:20)(   Читать дальше...   )Жанр: RockПродолжительность: 01:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:315FE7F76D5C8E83502E45BD8DC1ACC0B6AA2DEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729966   (107962) от 14.06.2024
 
 Neon Swingers - Electro Swing Party (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
@@ -484,195 +670,6 @@ Jimmie Lunceford - Margie (1946, 1947) 1989, Savoy Jazz [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:441771B80E539A5ED91AB1E8CB4FBAF211796074
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729890   (107981) от 13.06.2024
-
-Umbra Vitae - Light Of Death (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metalcore, Death Metal, Chaotic Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Leave Of Absence (00:04:24)
-02 - Belief Is Obsolete (00:02:16)
-03 - Clear Cutter (00:01:25)
-04 - Anti-Spirit Machine (00:03:40)(   Читать дальше...   )Жанр: Metalcore, Death Metal, Chaotic HardcoreПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5581CB717C270543625D2249F753B757A983091
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729782   (107982) от 13.06.2024
-
-Hour of Penance - Sedition (2012) [FLAC|Lossless|image + .cue] <Technical, Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transubstantiatio
-02. Enlightened Submission
-03. Decimate the Ancestry of the Only God
-04. Fall of the Servants(   Читать дальше...   )Жанр: Technical, Brutal Death MetalПродолжительность: 00:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2ED68414967773053488FCF6F78C9195F00BE6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729754   (107983) от 13.06.2024
-
-Hour of Penance - Paradogma (2010) [FLAC|Lossless|image + .cue] <Technical, Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradogma
-02. Thousands of Christs
-03. The Woeful Eucharisty
-04. Malevolence of the Righteous(   Читать дальше...   )Жанр: Technical, Brutal Death MetalПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934BF875B24F337A1C1D52B20683D267086AF1B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729749   (107984) от 13.06.2024
-
-Grand Slam - Wheel Of Fortune (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Goes My Heart
-02. Starcrossed Lovers
-03. Come Together (In Harlem)
-04. Trail Of Tears(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF60F55DDD2E75E706B586BC86FC01DC12B8D92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729924   (107985) от 13.06.2024
-
-Wildstreet - IV (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heroes (3:10)
-02. Sick to Death (4:27)
-03. Won't Be Apart (3:58)
-04. Come Down (4:04)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9338A2ACA68C52BB9B53ED6EA8CB2F5F0E5A6E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729737   (107986) от 13.06.2024
-
-Blitz - Kicking Up A Storm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break Neck (3:12)
-02. Shell Shock (3:15)
-03. C.O.G (3:04)
-04. Keep Moving On (3:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA5DB3763A11C73193CB6D7AA7663BA275B4AB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729935   (107987) от 13.06.2024
-
-Самуил Маршак | На улице Бассейной (1996) [MP3, Олег Басилашвили и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самуил Яковлевич Маршак (1887–1964) советский поэт, драматург, переводчик, литературный критик.
-Самые любимые стихи Самуила Яковлевича Маршака в исполнении знаменитых актеров Олега Басилашвили Николая Литвинова, Зои Бокаревой и др.
-
- Самуил Маршак на NoNaMe ClubЖанр: Русская литература для детей, классика, стихи, сказкаИздательство: Inner Circle RecordsПродолжительность: 00:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE713456B163352F9C4E5179CFFD4A4E9D0024FC
 ```
 
 

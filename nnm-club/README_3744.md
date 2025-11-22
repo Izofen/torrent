@@ -1,3 +1,192 @@
+###  Публикация: 1700587   (117029) от 17.02.2024
+
+Soft Cell - Memorabilia - A Man Could Get Lost E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memorabilia (Single Version / Remastered 2023) [00:04:49]
+02. A Man Could Get Lost (7" Single Version / Remastered 2023) [00:03:17]
+03. Persuasion (2023 Edit / Remastered 2023) [00:03:35]
+04. Memorabilia (Extended Version) [00:07:46](   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E0DAE620079A2DB3151E3562E54223612DAACD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700338   (117030) от 17.02.2024
+
+Leah - The Glory and the Fallen (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Celtic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Archangel [00:04:11]
+02. No More Fear [00:05:11]
+03. Unshakable [00:05:06]
+04. Speak to Me [00:04:43](   Читать дальше...   )Жанр: Symphonic Metal, Celtic Metal, Female VocalПродолжительность: 01:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C057B07A15A48E2DB3C9FCB97B0E84698F942A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700545   (117031) от 17.02.2024
+
+Crazy Lixx - Two Shots At Glory (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Shots At Glory
+02. Fire It Up '23
+03. Invincible
+04. Lights Out! '23(   Читать дальше...   )Жанр: Hard, Glam RockПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2050B8C5CDD95CB55110EBC9BC1707B189F4CE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700600   (117032) от 17.02.2024
+
+VA - After Hours Vibes (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Distance & IGI - Wanderer (04:45)
+02. Sharapov - Bring Me Back (Mant Deep Remix) (05:00)
+03. Sharapov & Sean David - Don't Cry (Toly Braun Remix) (03:21)
+04. Andrey Keyton, Sharapov & TINAYA - I Want Your Soul (05:58)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:480CE1688BFDB061A430BC1279D807326A53BA87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700577   (117033) от 17.02.2024
+
+Galahad - The Long Goodbye (2023) [FLAC|Lossless|WEB-DL|tracks] <Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Behind the Veil of a Smile (06:20)
+02. Everything's Changed (07:40)
+03. Shadow in the Corner (05:28)
+04. The Righteous and the Damned (08:37)(   Читать дальше...   )Жанр: Neo-ProgПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F710ACD41676B33A3D31AE8D223B874A0EBEBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700313   (117034) от 17.02.2024
+
+The Requiem - A Cure To Poison The World (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Punk Rock, Mall Emo, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is How The World Ends
+02. An Elegy Written On Porcelain Arms
+03. Less Than Zero
+04. I’ll Be Late For My Funeral(   Читать дальше...   )Жанр: Alt. Rock, Punk Rock, Mall Emo, Post-HardcoreПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF24625174F1A43E6DA4B8C0D53CDFAA65433161
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700513   (117035) от 17.02.2024
+
+VA - Green Hill: 30 Years Of Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chris McDonald Orchestra - Take The "A" Train (3:37)
+02. Jaimee Paul - At Last (5:08)
+03. Pat Coil - Isn't This A Lovely Day? (3:14)
+04. Dara Tucker - Scars (5:33)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2949FC8AEB22C90B82FDB8842DF084960FD77ECF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700645   (117036) от 17.02.2024
 
 Life by Night - Life by Night (1985) [FLAC|Lossless|WEB-DL|tracks] <AOR, New Wave>
@@ -490,180 +679,6 @@ VA - Ultimate Chillout Ambient Lounge I (2024) [FLAC|Lossless|WEB-DL|tracks] <Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B66CE98EBB47F16CC2AFD0D48F41E9C2777011D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700324   (117055) от 17.02.2024
-
-Markus Schulz - Global DJ Broadcast Deeper Shades (2024-02-15) [MP3|320 Kbps] <Progressive House, Trance, Melodic House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyma - Sonder
-02. Nathan Katz - For You
-03. GMJ & Matter - Soular
-04. Jares - Sam's Voyage Part III (Kamilo Sanclemente Remix)(   Читать дальше...   )Жанр: Progressive House, Trance, Melodic HouseПродолжительность: 02:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE97FFC24AADE2545D42054C94408A32AAA7FB6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700651   (117056) от 17.02.2024
-
-Луи Буссенар | Под Южным Крестом (2011) [MP3, Михаил Росляков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Луи Анри Буссенар (1847–1910) – французский  писатель, автор захватывающих книг о путешествиях и войнах, приключенческих романов и неутомимый путешественник, любимый писатель не одного юного поколения.
-Имя Луи Анри Буссенара в России было известно давно, в 1911 году напечатали собрание его сочинений в 40 томах. Куда только ни вела нас неуемная фантазия этого француза! (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, романИздательство: МедиаКнигаПродолжительность: 19:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE800CA045D84A7D3B0A7B8E3A6C255F4EF6C3B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700621   (117057) от 17.02.2024
-
-Андрей Ткачев, Вадим Оришин | Сын палача (Книга 1) (2023) [MP3, Алексей Воскобойников]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы, популярные в жанре боевой фантастики, представляют слушателям новую невероятную историю!
-
-Вернуться домой после войны и попасть в тюрьму – не самое лучшее развитие событий, но ничего не поделаешь и придется выкручиваться и из таких условий. Если ты маг редкого аспекта – хаоса, кроме того, не имеешь источника, то нелегко разобраться, что происходит вокруг (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: Аудиокнига (АСТ)Продолжительность: 10:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E402246741CED42A26C7534A0F1E482B45853E53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700504   (117058) от 17.02.2024
-
-Команда / The Outfit (1973) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гангстер Маклин, выйдя из тюрьмы, узнает, что не так давно его брат был убит киллером. Оказывается, банк, который они пытались ограбить, принадлежит мафии, а она подобных вещей не прощает...Производство: США / Aurora Enterprises, Metro-Goldwyn-Mayer (MGM)Жанр: триллер, драма, криминалРежиссер: Джон ФлиннАктеры: Роберт Дювалл, Карен Блэк, Джо Дон Бейкер, Роберт Райан, Тимоти Кэри, Ричард Джэкел, Шири Норт, Феличе Орланди, Мари Уиндсор, Джейн ГрирПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9660E68BAA8AEB72A06575ACBA7AA444D36C80E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700505   (117059) от 17.02.2024
-
-Ventusky: Прогноз погоды v31.0 Mod by Alex.Strannik [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение сочетает в себе классический прогноз погоды для определенного местоположения с картой, которая демонстрирует изменение погоды на более обширной территории. Это позволяет увидеть, откуда идут осадки или дует ветер. Уникальность приложения заключается в большом количестве отображаемых данных. Просматривая погоду, вы сразу узнаете прогноз осадков, скорости (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 10.02.2024Разработчик: InMeteoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B72B28665C1024C12E569CD053E984419FFB8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700518   (117060) от 17.02.2024
-
-Д.Д. Галанин и др. | Физический эксперимент в школе (1934 - 1954) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фундаментальный труд по методике практического изучения физики. Эксперименты и оборудование описаны максимально подробно.Жанр: ФизикаИздательство: УчпедгизФормат: PDF, DJVUКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B710A8FA5D664510B7E80B50A637C52E04DCC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700473   (117061) от 17.02.2024
-
-XYplorer 25.50.0300 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_117061.jpg" />
-</div>
-
-
-###  Подробнее
-
-XYplorer – удобный многовкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9727B489C5054268BEE9DF8BC02F4F8CA7C8B1EE
 ```
 
 

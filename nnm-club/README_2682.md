@@ -1,3 +1,57 @@
+###  Публикация: 1780228   (70480) от 17.02.2025
+
+R.J. Archer & The Painful Memories - The Cost of Loving Crisis (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Get It Together (2:39)
+02.  Barbara (4:01)
+03.  A Heart in Winter (3:33)
+04.  Out of Line (2:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12B5D819231878E35BDB2935023981705DA4CC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780176   (70481) от 17.02.2025
+
+Leo Benmass - Origins (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Origins (5:14)
+02.  Let Me love you baby (3:38)
+03.  Voodoo Child (13:18)
+04.  Riders on the storm (4:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923395256A189CD35830C79E58E427A321AF1789
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780181   (70482) от 17.02.2025
 
 The Creaking Floorboards - They're Waiting out of Sight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -638,58 +692,6 @@ Avatarium - Between You, God, The Devil And The Dead (2025) [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B67EE0F672B8D689C7EB383A3873A1F383A17AA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780204   (70506) от 17.02.2025
-
-El Leyton & los Cerrucos - Aires de Lornillo (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Macacos (5:03)
-02.  Micro Pa'l Parque Inglés (6:50)
-03.  Lornillo Blues (7:15)
-04.  Chuleta`s Swing (4:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57B795EC333959A16BAC28D6BD9F11992C89BC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780292   (70507) от 17.02.2025
-
-Джейн Остин | Сэндитон (2022) [MP3, Дарья Павлова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейн (Остен) Остин (1775–1817) – знаменитая английская писательница классической литературы, романистка, прославившаяся остроумным и проницательным изображением провинциального общества.
-Несправедливо забытые, незавершенные произведения, опубликованные уже после смерти. Несмотря на незаконченность, «Сэндитон» был успешно экранизирован. Последний, написанный за несколько (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Ирина ГуроваИздательство: Аудиокнига (АСТ)Продолжительность: 02:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0598ABE58729DB80D7732C7B0A376414E84A1A3
 ```
 
 

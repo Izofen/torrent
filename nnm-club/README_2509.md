@@ -1,3 +1,57 @@
+###  Публикация: 1802795   (65982) от 19.06.2025
+
+Around The World in 80 Days - Euphoria (2014) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Rock, Ambient, Space-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Last War [5:40]
+02 - Shock [3:15]
+03 - Gravity [5:40]
+04 - Racing The Light [3:35](   Читать дальше...   )Жанр: Post-Rock, Ambient, Space-RockПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483A4250A786C69787934AC01BC166BA2F6CB072
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802658   (65983) от 19.06.2025
+
+Avenged Sevenfold - Live At The GRAMMY Museum® (2017) Live [MP3|320 Kbps] <Rock, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Opening (Live At The GRAMMY Museum®) [1:14]
+02 - Introduction To As Tears Go By (Live At The GRAMMY Museum®) [0:13]
+03 - As Tears Go By (Live At The GRAMMY Museum®) [3:17]
+04 - Introduction To Hail To The King (Live At The GRAMMY Museum®) [0:30](   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A67DDD6C2E807D5B0F35EF7021675483FE8519AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802832   (65984) от 19.06.2025
 
 VA - Cutterpillow: Tribute Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -606,60 +660,6 @@ magnet:?xt=urn:btih:07CF67A4A4BCD5FD9391F34B456D20A38DCE1947
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802547   (66008) от 18.06.2025
-
-Darkness - Conclusion & Revival (2025) Remaster [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conclusion and Revival (Remastered) [00:02:56]
-02. Soldiers (Remastered) [00:04:29]
-03. The Omniscient (Remastered) [00:03:52]
-04. Under Control (Remastered) [00:04:26](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11620FD46B870DC363453B87C80871FD56B56292
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802543   (66009) от 18.06.2025
-
-Сергей Тимошенко - Опер (2025) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Опер [00:05:24]
-02 - Ни шагу назад [00:02:48]
-03 - Бросок в рай [00:03:32]
-04 - Ледяной рассвет [00:03:48](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3550438EF2BCED635CF29EE03EEBBBAA284A5A79
 ```
 
 

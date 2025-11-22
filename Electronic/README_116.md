@@ -1,3 +1,30 @@
+###  Публикация: 1593111   (181675) от 25.11.2022
+
+Jean Michel Jarre - The Concerts In China (1982) 2CD, 40th Aniversary – Remastered Edition, 2022 [FLAC|Lossless|WEB-DL|tracks] <Electronic>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orient Express (Live - Remastered 2022) [00:04:21]
+02. Chants Magnetiques, Pt. 1 / Magnetic Fields Part 1 (Live - Remastered 2022) [00:00:27]
+03. Chants Magnetiques, Pt. 3 / Magnetic Fields Part 3 (Live - Remastered 2022) [00:03:45]
+04. Chants Magnetiques, Pt. 4 / Magnetic Fields Part 4 (Live - Remastered 2022) [00:06:45](   Читать дальше...   )Жанр: ElectronicПродолжительность: 2 CD, 01:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA9A7671A5CD1A2B14861003F07FEDA451CA2493
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593096   (181713) от 25.11.2022
 
 VA - Beautiful Vocal Trance - Chapter 10 (2022) [MP3|320 Kbps] <Uplifting Trance>
@@ -182,6 +209,33 @@ Gunship - Unicorn (2023) [MP3|320 Kbps] <Synthwave, Darksynth, New Wave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB8F377161D9EEBE1F29C3EEB274DF709B00D9CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427759   (182259) от 29.11.2020
+
+Blutengel - Black Symphonies (An Orchestral Journey) (2014) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Darkwave, Synth Gothic>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_182259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legend / Nachtbringer (Symphonic Version) [5:49]
+ 02. Krieger (Symphonic Version) [4:04]
+ 03. Soultaker (Symphonic Version) [6:08]
+ 04. Uber den Horizont (Symphonic Version) [4:17](   Читать дальше...   )Жанр: Darkwave, Synth GothicПродолжительность: 01:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5FE484E4326B6C20D4D630501850EEC57C6BF1
 ```
 
 
@@ -634,60 +688,6 @@ VA - Compilation of the Year (2020) [FLAC|Lossless|WEB-DL|tracks] <Pure Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7085EEACD9715F922CF93E2C9E1948182411AC6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427348   (183290) от 28.11.2020
-
-VA - Deep Sleep Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Estación Del Mar - A La Sombra De Un Roble (4:24)
-02. Finland & Aaskoven - Beauty and the Abyss (5:39)
-03. La Estación Del Mar - Descalzo Sobre La Hierba (4:32)
-04. Peter Pearson - Always in My Dream - Original Mix (5:40)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E99B87C245C22A52D17864E852E9B3D4E14942
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427551   (183360) от 28.11.2020
-
-VA - House Clubhits 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ninetoes - Bonita - Original Mix (7:03)
-02. JANA - Somebody - Original Mix (5:54)
-03. Giorgio Gee - Mad Donna (2:04)
-04. Mathy - Dolla - Original Mix (5:48)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D4EFD9CB7917B66309338E84B4BEA73772C271
 ```
 
 

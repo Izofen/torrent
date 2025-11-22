@@ -1,3 +1,57 @@
+###  Публикация: 1749057   (43775) от 12.09.2024
+
+Stryper - When We Were Kings (2024) [FLAC|Lossless|WEB-DL|tracks] <Glam Metal, Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End of Days (4:20)
+02. Unforgivable (4:01)
+03. When We Were Kings (4:01)
+04. Betrayed by Love (4:32)(   Читать дальше...   )Жанр: Glam Metal, Heavy Metal, Hard RockПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6881F2A5504856BF88BE5733036D0D462933A36E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748942   (43776) от 12.09.2024
+
+Clint Morgan - Codger (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bone Dry
+02. Money Mule
+03. I Blame You
+04. Old Man(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F1916CA936919C0A59F9B8632BD4BF5ECA92F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749032   (43777) от 12.09.2024
 
 Oceans Of Slumber - Where Gods Fear To Speak (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
@@ -606,54 +660,6 @@ magnet:?xt=urn:btih:5D8875EBA62B3327C8BC1030730D216DAEC813E1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9199E5A03B37E39AA0EBC1005C2538EDAC674655
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749020   (43801) от 12.09.2024
-
-Grocery Simulator (2024) [En] (1.0) Scene Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grocery Store Simulator ставит вас на место управляющего продуктовым магазином. Откажитесь от модных костюмов и портфелей, разумная обувь - вот новый ход власти. Этот симулятор от первого лица от FEKK Games позволит вам управлять собственным магазином. Вы контролируете все: от складирования товаров на полках до установления цен. Хотите играть в одиночку или объединиться (   Читать дальше...   )Тип издания: SceneРазработчик: FEKK GamesЖанр: Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8007DE89EF375F18D3A8F136DDD08FF3A36F9CAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748941   (43802) от 12.09.2024
-
-Nickelodeon All-Star Brawl 2 (2023) [Multi] (1.12.0/dlc) Scene Rune
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_43802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nickelodeon All-Star Brawl 2 - продолжение оригинальной аркады 2021 года, которое объединяет набор персонажей из любимых шоу, создавая кроссовер-файтинг, ориентированный как на поклонников классической анимации телеканала, так и на любителей жанра файтинга. Реализовано 32 бойца, каждый из которых обладает собственным набором уникальных приемов и способностей. Можно (   Читать дальше...   )Тип издания: SceneРазработчик: Fair Play LabsЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C14939CCB3116C588E2692B7EFD9DEC5716462
 ```
 
 

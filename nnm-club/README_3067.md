@@ -1,3 +1,195 @@
+###  Публикация: 470712   (97262) от 20.03.2012
+
+[Wallpapers] Best HD Wallpapers (20.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3468C7FACB8EACA0056A6D73D4CF71BCA75ECB2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470164   (97263) от 20.03.2012
+
+VA - Beat Generation 2 (2009) [MP3|320 кб/с]<Psy-Prog>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97263.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Zyce & Flegma - Afterglow (8:41)
+2. Cabal - The sacred Spirit (7:38)
+3. Aquafeel - GloryLand (6:43)
+4. Aqualize - Land of 2 Suns (7:51)
+5. Audioload - Way Out (7:42)
+6. Andromeda - Sensation (Aquafeel RMX) (6:32)
+7. Time in Motion - Colour (8:07)
+8. Progenitor - Typical Human Behaviour (8:18)
+9. Ocean and Display - Kastefa Beach (7:59)2009Жанр: Psy-ProgПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9B21410AF39BDF56CB8560775B8668ADF3977E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470988   (97264) от 20.03.2012
+
+[Wallpapers] Nature Pictures №32
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97264.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №32
+Название: Nature Pictures №32
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0077C968A33B7AE4A2E810A904FB016B8536A96F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470987   (97265) от 20.03.2012
+
+[Wallpapers] HD Pictures №1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97265.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Pictures №1
+Название: HD Pictures №1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF2635889029D43BDA055BDE56B9212C770B003
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471008   (97266) от 20.03.2012
+
+[Wallpapers] HD Wallpapers Pack 3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97266.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers Pack 3
+Название: HD Wallpapers Pack 3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD48F16BBB94DAC2E89DD8457524139FD7AB7034
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471029   (97267) от 20.03.2012
+
+[Wallpapers] Mixed Wallpapers (21.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFB9A9D24D3E633A82675033F1B2F866D3E7D8A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471007   (97268) от 20.03.2012
+
+[Wallpapers] HD Pictures №2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97268.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Pictures №2
+Название: HD Pictures №2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15FAAA55AF321846C0EE531B642260BDCB61F25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469652   (97272) от 20.03.2012
 
 Patе de Fuа - Boquita Pintada (2011) [MP3|320 кб/с]<Ethnic Jazz, Easy Listening, Swing, Latin>
@@ -514,195 +706,6 @@ VA - Мощная Dance Атака. Зарубежный (2012) [MP3|256 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDB2F29EFCA8898D7B91FE85C1185AFE525C9A33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467622   (97298) от 20.03.2012
-
-VA - Лучшая 100ка - Взорви танцпол 2 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Винтаж - Деревья (Kapler Radio Mix)
- 02. Вельвеt - Нанолюбовь
- 03. Макс Барских - Глаза-убийцы (Kozyr Remix)
- 04. Бьянка & St1m - Ключи
- 05. БандЭрос - Не под этим солнцем
- 06. Аня Шаркунова - Я Знаю Ее В Лицо
- 07. Алиса ей - Baby Не Плачет
- 08. Shaplin & Siatria - Я Река
- 09. Reflex & Ирина Нельсон - Селяви
- 10. Юрий Шатунов - От Белых Роз(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE86E61E711995F160CA5DB63568A5BE73CA844E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470191   (97299) от 20.03.2012
-
-Nike Beats - Instrumental vol.4 (2012) [MP3|320 кб/с]<Instrumental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mongrel
-02. Mexico
-03. 1001 night
-04. Chasm
-05. I shall love
-06. Fragments of a diary
-07. Lullaby of the fairy
-08. Cypress hil
-09. Fists2012Жанр: InstrumentalПродолжительность: 00:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44F9CB5B01C267322E217847F3AF14D0C0519C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470622   (97302) от 20.03.2012
-
-[Wallpapers] Cars HD Wallpapers (19.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835CA12CD4B0CD63DBB32E126916A6C1848B1011
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470711   (97303) от 20.03.2012
-
-[Wallpapers] Gilrs Wallpaper Collection (20.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB4D8CB0C8DB0CF2818AE189FA5632399C4AE4CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470434   (97304) от 20.03.2012
-
-Настоящие Афeристы Выпуск 5 (2012) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наши эксперты рассказывают, как избежать самых невероятных видов мошенничества. Ответственного за доставку обманом заставляют расстаться с развозным товаром.Жанр: ТелепередачаПродолжительность: 00:22:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD78C51EC669ADCBB965ED9646A7617AA3BB1231
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470618   (97305) от 20.03.2012
-
-[Wallpapers] Abstract HD Wallpapers (19.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:318A1AF41A7EE14D37D72FB3F920CDDE7A552344
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471069   (97306) от 20.03.2012
-
-[Wallpapers] Best Wallpapers Pack 9
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97306.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Best Wallpapers Pack 9
-Название: Best Wallpapers Pack 9
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9673A6B8635DBEAC7AA19AEFFD6EA8DD554B709B
 ```
 
 

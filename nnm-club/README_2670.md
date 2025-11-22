@@ -1,3 +1,55 @@
+###  Публикация: 1781619   (70168) от 24.02.2025
+
+Ulcerate - Cutting The Throat Of God (2024) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70168.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. To Flow Through Ashen Hearts 7:07
+2. The Dawn Is Hollow 7:32
+3. Further Opening The Wounds 7:57
+4. Transfiguration In And Out Of Worlds 8:33(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B40709FBB7B4652BCBAD616A06B71A39D86981
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781675   (70169) от 24.02.2025
+
+НХЛ 2024-2025. Эдмонтон Ойлерз - Вашингтон Кэпиталз (23.02.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70169.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 февраля 2025, воскресенье. 21:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Брайан Почмара (Детройт, США); Главный судья: Франсис Шаррон (Оттава, Канада); Линейный: Жонатан Дешам (Труа-Ривьер, Канада); Линейный: Трент Кнорр (Пауэлл Ривер, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C021568EB06340BBF8DF1B186CE01A2130446B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781629   (70170) от 24.02.2025
 
 Joanie Sommers & Laurindo Almeida - Softly, The Brazilian Sound (1964) 2013, Warner [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Brazilian Jazz, Bossa Nova>
@@ -601,60 +653,6 @@ magnet:?xt=urn:btih:B94CCB3C923D20F0944588D5A2639BBCBCA711FC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F5291C4DBD474AE83EDCBF7339E36543F1D7351
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781468   (70194) от 23.02.2025
-
-Robert Hurst - One For Namesake (1994) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incognegro [5:40]
-02. Chilin' at the Sloat [8:55]
-03. Jill of All Trades [5:31]
-04. Thad's Blue Plaid [7:32](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8656744A3F532F7EC62EC7F11C542D5A86AD0FF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781461   (70195) от 23.02.2025
-
-Kenny Garrett - Pursuance: The Music Of John Coltrane (1996) Warner [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown [3:43]
-02. Equinox [7:39]
-03. Liberia [7:33]
-04. Dear Lord [5:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F7FC66B5F06059931CA6468773F9D3931E3087
 ```
 
 

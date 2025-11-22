@@ -1,3 +1,54 @@
+###  Публикация: 1798833   (66554) от 24.05.2025
+
+Jennifer Lopez - J to tha L‐O! The (Remixes) (2002) CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jennifer Lopez feat. Fat Joe / Love Don’t Cost a Thing (RJ Schoolyard mix)    [0:04:18.55]
+02. Jennifer Lopez feat. Ja Rule & Caddillac Tah / Ain’t It Funny (Murder remix)    [0:03:49.60]
+03. I’m Gonna Be Alright (Track Masters remix)    [0:03:20.15]
+04. Jennifer Lopez feat. Ja Rule / I’m Real (Murder remix)    [0:04:18.50](   Читать дальше...   )Жанр: Electronic, Hip Hop, House, DowntempoПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0851EEF9DB9E769C19762ED441995FD4267AC42F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797178   (66555) от 24.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Clipart Christmas [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный рождественский клипарт.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD1720F3717ED865DCA6DEAB6E8DD21375D4AF1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798900   (66556) от 24.05.2025
 
 Главная дорога (24.05.2025) WEBRip [H.264/720p]
@@ -612,57 +663,6 @@ magnet:?xt=urn:btih:E5952B188AFA024327AE34F8076B1653889BD699
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69BD56EC01248206A59D3CFBD3F00AF87F5F254B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797712   (66580) от 24.05.2025
-
-Фоны - Design Stocks - Iridescent Abstract Backgrounds [JPG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абстрактные фоны в радужных тонах.Формат: JPG, PNGРазрешение файлов: 6000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098ED198565803D46EEA382D5B1E5E55BFDFC872
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798709   (66581) от 24.05.2025
-
-VA - Amsterdam Classic Trance Festival (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleks Neptune - The Wolfs (06:53)
-02. Cryalta Generation - Airflow (07:39)
-03. Aleksey Litunov - The Time Has Gone (05:40)
-04. Andrey Gaydukov - Gentle Embraces (06:50)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1231B5DA30DCE302F54920857EA4FA966C45DB8C
 ```
 
 

@@ -1,3 +1,182 @@
+###  Публикация: 1720238   (110425) от 02.05.2024
+
+Smash Into Pieces - Ghost Code (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Modern Metal, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Trigger [2:56]
+02 - Afterglow [3:39]
+03 - Heroes Are Calling [3:02]
+04 - Flow [3:49](   Читать дальше...   )Жанр: Alternative Metal, Modern Metal, MetalПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11413D54FD65D08B20AB5F95F20A906C963E7A5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720289   (110426) от 02.05.2024
+
+VA - Lounge Sexiest Ladies, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sarah Menescal,Bellestar - Thank You (2:34)
+02. Ronan,Karen Souza - Never Gonna Give You Up (Ronan Remix) (2:15)
+03. Style Project - Don't Look Back In Anger (Nikko Mad Remix) (3:17)
+04. Jazzystics - Forever Young (Remix) (2:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04E914E5BBD91AD47D16B82FB54A2C5A87F047AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720243   (110427) от 02.05.2024
+
+Потрошитель. Наследие / Bloodline Killer (2024) WEB-DLRip [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько лет назад Мойра пережила настоящий ад: ее кузен устроил резню и убил почти всех ее родственников и других невинных людей. Психа так и не удалось поймать, и каждую осень убийца напоминает о себе. В городе его даже прозвали маньяком по кличке Череп. Когда листья начинают желтеть, город погружается в страх и панику. И только детектив Сайферс может вернуть (   Читать дальше...   )Производство: США / BondIt, Future Proof Films, Gaudioso Twins FilmsЖанр: ужасы, триллерРежиссер: Анте НоваковичАктеры: Шоуни Смит, Тэрин Мэннинг, Дрю Морлейн, Тайриз Гибсон, Брюс Дерн, Джеймс Гаудиозо, Монтанна Гиллис, Крешимир Новакович, Сол Рендино, Адам ШиппиПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:45:55Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720250   (110428) от 02.05.2024
+
+Severed Angel - Skyward (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic-Melodic Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From The Inside (3:18)
+02. Live Your Imagination (3:44)
+03. A Perfect Disaster (5:42)
+04. Skyward (4:10)(   Читать дальше...   )Жанр: Symphonic-Melodic Heavy MetalПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D66A94E3ADF537E26F8CA420F416C22154BA4445
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719910   (110429) от 02.05.2024
+
+Sash! Feat. Sir Danny Cool & C'Hantal - The Ultimate Seduction (Olly James remix) (2023) [FLAC|Lossless|tracks] <Hard Trance, Tech Trance, Future Rave>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sash! Feat. Sir Danny Cool & C'Hantal – The Ultimate Seduction (Olly James remix) (2:49)Жанр: Hard Trance, Tech Trance, Future RaveПродолжительность: 00:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68DA0DAF94DB7923DA0A68BDC0B355866E86580
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720277   (110430) от 02.05.2024
+
+Telegram Desktop 5.0.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
+Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
+С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E80B6B0E67C8751E206EC7332C1555DF260F184
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720265   (110431) от 02.05.2024
+
+Sandboxie 5.68.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78518B8404AC171AEB67C276367D95CC40ECEF75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720259   (110432) от 02.05.2024
 
 Sumatra PDF 3.6.16059 Prerelease + Portable [Multi/Ru]
@@ -468,193 +647,6 @@ Invalid Yellow - Hendecagon (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B8E15F4A6A90EA9784ABD8C1AD17F2F15CDE104
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719972   (110451) от 01.05.2024
-
-Amiensus - Reclamation (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blink of the Moment (5:28)
-02. Reverie (5:28)
-03. Senses Amplified (7:04)
-04. Sun and Moon (8:38)(   Читать дальше...   )Жанр: Progressive Black MetalПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F60C43600A1EF8829BAACF707693FA711C49CC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719822   (110452) от 01.05.2024
-
-Azaab - Summoning the Cataclysm (2022) [FLAC|Lossless|image + .cue] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pandemonium Twilight
-02. Carbon Plague
-03. A Hollow Pact
-04. Preachers Of Hate(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00: 38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B908286F4AE705FABE56FDBD493ECAD86145BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719834   (110453) от 01.05.2024
-
-Emitt Rhodes - The Emitt Rhodes Recordings 1969-1973 (2009) 2CD [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mother Earth (2:30)
-02. Pardon Me (2:46)
-03. Textile Factory (3:05)
-04. Someone Died (2:04)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 02:16:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78728AB803DBEA869A8CDA54D41DEC6F52CE9C46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719825   (110454) от 01.05.2024
-
-U.D.O. - Steelfactory (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110454.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Tongue Reaper
-A2 Make The Move
-A3 Keeper Of My Soul
-A4 In The Heat Of The Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:177683999F4E23A3BBA4A2F864FB76812DEAF171
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720038   (110455) от 01.05.2024
-
-Thalia - The River Of Books (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The River Of Books
-02 - Vision Empire
-03 - AtmoSign
-04 - Body & Soul(   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D55259E27134564A9843C7A11C45346672B7AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719461   (110456) от 01.05.2024
-
-The Acid Machine - Mushrooms (2024) [MP3|320 Kbps] <doommetal, stoner>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Sky Opened [00:05:42]
-02 - Acid Machine [00:05:23]
-03 - Mushrooms [00:05:36]
-04 - Wild Sap [00:03:49](   Читать дальше...   )Жанр: doommetal, stonerПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4587387D2585D9EC445E7AEFAF03E1F71BB494B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719889   (110457) от 01.05.2024
-
-Niels van Gogh - Rave All Night (2023) [FLAC|Lossless|tracks] <EDM, Future House, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niels van Gogh – Rave All Night (2:34)
-02. Niels van Gogh – Rave All Night (extended mix) (4:03)Жанр: EDM, Future House, Club HouseПродолжительность: 00:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2CC455758498A88E776D05076A6F9FC97226D9E
 ```
 
 

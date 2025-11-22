@@ -1,3 +1,189 @@
+###  Публикация: 1764273   (102728) от 06.12.2024
+
+Мишени / Targets (1968) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102728.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом фильме две сюжетные линии, которые развиваются параллельно и независимо. Но это только на время... Известный всем актёр, который решил закончить сценическую карьеру, и молодой человек, весьма уравновешенный и благополучный, на первый взгляд. Что же между ними общего? И какова будет причина их встречи в финале?... Фильм снят по мотивам дела Чарльза Уитмена, (   Читать дальше...   )Производство: США / Saticoy ProductionsЖанр: драма, криминал, триллерРежиссер: Питер БогдановичАктеры: Тим О`Келли, Борис Карлофф, Артур Петерсон, Монте Лэндис, Нэнси Хсю, Питер Богданович, Даниэль Адес, Джеймс Браун, Стэффорд Морган, Мэри ДжексонПеревод: профессиональный многоголосый, профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366FF133160E1FAD59BA1C9908FD5AD483A40F5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764312   (102729) от 06.12.2024
+
+Феникс - Мы не доживем до рая (2014) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Отрекись
+02 - Мы не доживем до рая
+03 - Тишина
+04 - На арене(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD13B84B01E7A469CE2AB8B7F9E066E679BBDB5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764259   (102730) от 06.12.2024
+
+VA - Anjunadeep The Yearbook 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CRi - Dark In This Room (Original Mix) (04:12)
+02. Qrion - Miyanosawa (Extended Mix) (05:42)
+03. Steven Weston & Ormella - Give Me Something (Extended Mix) (06:11)
+04. Romain Garcia - Digital Diva (Extended Mix) (06:15)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279D2E7980A59C4C4CB7EC2EB97BE9DBE91EE11F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764265   (102731) от 06.12.2024
+
+VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristiano Cento & Panico - Smooth Criminal (Panico Extended Remix) (05:24)
+02. Francesco Castelli, Paolo Lofrè & Alicia Wilkson - Bang Bang (Radio Edit) (04:03)
+03. Shock Mama - Let's Party (Euro Mix) (05:23)
+04. Fabio Pazzaglia, RaFF T & Gabriel - Summer Jam (Radio Edit) (03:13)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 03:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:094EB9626B85C6BAE54DE8CED399F7C6A79B6CB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763942   (102732) от 06.12.2024
+
+Maleficium Arungquilta - Искусство драм (2010) [FLAC|Lossless|image + .cue] <Dark Metal, Gothic Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Акт разврата
+02. Ангелы в слезах
+03. Пропасть
+04. Искусство драм(   Читать дальше...   )Жанр: Dark Metal, Gothic Metal, Symphonic MetalПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:515984102BD0B03004FB817BB0A91137EE0F697B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764195   (102733) от 06.12.2024
+
+Voodoo Angel - Midnight Rouge (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We're Still Alive
+02. When Life Passes You By
+03. Broken
+04. It's Gonna Hurt(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23D2ED180EA22BDD31E2215BEF8931F00CF73A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764325   (102734) от 06.12.2024
+
+Торба-на-Круче - Части света (2014) [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прометей
+02. Река
+03. Космос впереди
+04. Драконы(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D63B329997C912FC649BC89D7819923EB78276DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764366   (102735) от 06.12.2024
 
 Ты супер! (2024) WEBRip [H.264/720p] (сезон 8, выпуск 1-9 из 9)
@@ -503,195 +689,6 @@ Athena XIX - Everflow Pt 1: Frames of Humanity (2024) [FLAC 24/44.1|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DDF309E5FC518597403BA22195DCCEA8424B2F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764063   (102754) от 05.12.2024
-
-Mac Arnold & Plate Full O' Blues - On a Mission (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues All over You (2:45)
-02. Dance the Blues Away (2:31)
-03. I Am the Blues (3:38)
-04. Love Story (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287C33BDAD2538EE93DFBF899EA453294D6D0940
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764072   (102755) от 05.12.2024
-
-Soultide - Waves of the Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul in the City (4:01)
-02. Moonlight in My Eyes (2:58)
-03. Twilight Groove (2:02)
-04. Midnight Reverie (2:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972C4E00295FE7FE7EE25C5395916DE8D7E10626
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764062   (102756) от 05.12.2024
-
-Innes Sibun - The Preacher (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incantation (4:38)
-02. The Preacher (5:44)
-03. I Found Your Letter (6:43)
-04. Time Is Tight (4:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ADF260A7BD9DC270F3B4396F517D3DFBA04ECEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764054   (102757) от 05.12.2024
-
-Chocolate George - House of Make Believe (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't No Sign (3:22)
-02. Detroit Crank (3:14)
-03. Bloomer Pudding (3:20)
-04. House of Make Believe (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF32B08FADBB669939382A6E9FE3D3D50788152
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764066   (102758) от 05.12.2024
-
-Olivier Mas - One Man Swamp Boogie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Fun (2:59)
-02. Six Strings Down (3:14)
-03. I'm a Man (3:17)
-04. Hey, Hey (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD0A66A48EC7B806B2D4D3AC543BB0DC7BCF3D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764064   (102759) от 05.12.2024
-
-Mikey Junior - Traveling North (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Enough to Know (3:57)
-02. Taboo Love (4:45)
-03. You Hurt Me (3:35)
-04. Crazy over You (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12BF8EC7981603EDB786F053E7D7EF704E36E6BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764068   (102760) от 05.12.2024
-
-Peter MacInnis - Late Night Blues Vibe (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_102760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Remember How to Dance? (3:31)
-02. Something to Sell (3:31)
-03. HollyHood Tay - Focusing on Me (2:32)
-04. Gotta Slow It Down (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A770F92C69FAE46257A38C3F685960F95E3CB9
 ```
 
 

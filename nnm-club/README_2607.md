@@ -1,3 +1,57 @@
+###  Публикация: 1786659   (68530) от 30.03.2025
+
+Александр Курган - 2 Albums (2022, 2025) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жизнь [00:03:40]
+02. Отец [00:03:35]
+03. Фаталист [00:02:54]
+04. Пашка [00:03:16](   Читать дальше...   )Жанр: ChansonПродолжительность: 2 CD, 02:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E1D4FB4B10C9B2AD963A658AF39D9CAA94BA11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788468   (68531) от 30.03.2025
+
+Janiva Magness - Back For Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masterpiece
+02. Back for Me
+03. The Same Love That Made Me Laugh
+04. November(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68DA77A796B9FC4894523AB49F40292EEE32BCF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788560   (68532) от 30.03.2025
 
 W.E.T - Apex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -620,60 +674,6 @@ VA - Flashback Anthology Vol. 2 (2022) [OGG Vorbis|480 Kbps] <Electronic, Italo-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF1B2993389FAF9E1B8F6AAD8017033B31719BDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788359   (68556) от 30.03.2025
-
-The Dark Tenor - 2 Albums (2014, 2025) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Neo-Classical Crossover Pop, Ballad, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive [00:03:43]
-02. Bitter Sweet Kiss [00:03:51]
-03. Bumblebee [00:03:18]
-04. Shout [00:05:04](   Читать дальше...   )Жанр: Neo-Classical Crossover Pop, Ballad, VocalПродолжительность: 2 CD, 02:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F94303AE8A8FA80E265F790E53AE16FC8004538
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788438   (68557) от 30.03.2025
-
-VA - Ultimate Sunset Chillout Best Selections (2025) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Converted Specifications - Planetarium [04:16]
-02. Ackeret - Sakura Dreams [04:30]
-03. Pikomos - Insatiable Passion [04:24]
-04. Kalokagathia Union - Timeless Encounters [04:20](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1817DCE0694A704217AC597FC9DEE6378B821835
 ```
 
 

@@ -1,3 +1,186 @@
+###  Публикация: 1715348   (111647) от 11.04.2024
+
+Wondershare PDFelement 10.3.7.2718 + OCR Plugin (x64) Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare PDFelement - программа для общего редактирования документов формата PDF, инструмент из серии все-в-одном. В функции редактирования входит поддержка изменения текста и шрифта. Реализована поддержка технологии OCR (оптическое распознавание символов), есть режим конвертирования документа в различные форматы, имеется поддержка добавления своих картинок в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3380F1A31B6BA37644625DC0B8562A4357DC9BF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715288   (111648) от 11.04.2024
+
+Ascold Flow | Божественность вызывает привыкание (Книга 3). Абсолют 3 (2024) [MP3, Юрий Мироненко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первые испытания пройдены, и юный Бог с Земли показал себя во всей красе. Впереди новые испытания и новые приключения! А ещё Лид очень хочет дать новому миру познать вкус пива. Вот только ингредиенты для его создания столь редки и легендарны, что сперва самому надобно стать достойным и сильным последнего из обжитых регионов - Фронтира. И заодно собрать команду, что (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8E356E296562597880D56563A0CA5E57AF7B28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714882   (111649) от 10.04.2024
+
+Charlie Parr - Little Sun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Portland Avenue (4:30)
+02. Little Sun (3:57)
+03. Bear Head Lake (7:21)
+04. Boombox (3:56)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0679E731A6FC89667785C4CCA6E03A84506B5C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714886   (111650) от 10.04.2024
+
+Hubert Dorigatti - The Nashville Sessions (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Low Down (4:21)
+02. Whiskey Drinkin Woman (3:48)
+03. You Are My Root (4:18)
+04. Freedom (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE5D955537529AE5B988E8879EA2D9BE45AD1B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714757   (111651) от 10.04.2024
+
+Jo Stafford - Jo + Jazz (1960) 2004, Corinthian [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Squeeze Me [3:00]
+02. For You [2:57]
+03. Midnight Sun [4:40]
+04. You'd Be So Nice to Come Home To [3:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9250396C17D2D7587FDFF206DF82C4485F3D5301
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714676   (111652) от 10.04.2024
+
+The Dirty Nil - Free Rein To Passions (2023) Deluxe, 2024, Dine Alone Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Celebration (00:03:31)
+02 - Nicer Guy (00:02:44)
+03 - Undefeated (00:02:50)
+04 - Atomize Me (00:03:01)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AFDCCF7112BBA5475AC0F931F6CA2783A5882C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714686   (111653) от 10.04.2024
+
+The Mind Sweepers - All This Too Shall Pass (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Sun and the Moon (00:05:18)
+02 - Listen (00:03:42)
+03 - So It Goes (00:03:57)
+04 - Downtime Is High (00:04:32)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646FD47601FDF0A656563F2DE97E934B7F69ACDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714745   (111654) от 10.04.2024
 
 Harold Alexander - Are You Ready? (1971) 2018, Solid Records [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul-Jazz>
@@ -478,191 +661,6 @@ Blaze Bayley - Circle Of Stone (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B36582EB44B2C5A2234A4166BD1770EAE70468C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714768   (111673) от 10.04.2024
-
-Keely Smith - Little Girl Blue, Little Girl New (1963) 2017, Real Gone Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Girl Blue [3:57]
-02. Here's That Rainy Day [3:20]
-03. Gone with the Wind [3:13]
-04. Willow Weep for Me [3:51](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22004DBC7FFCAEB9F62F14BD5FFDFC3DB9CA6A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714880   (111674) от 10.04.2024
-
-Blue Lavinia - Don't Take It (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Take It (4:59)
-02. My Baby Tells Me Nothing (5:02)
-03. Pebble Song (3:43)
-04. Spanish Dreams (4:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B53A31B343EC25A9712CA35E024861407E1E6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714897   (111675) от 10.04.2024
-
-Rick Vito - Cadillac Man (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Crazy Baby (4:21)
-02. It's Two A.M. (4:33)
-03. Cadillac Man (3:27)
-04. Little Sheba (4:18)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6328236CE82BA4D239E029C0EF71BE3D85520ADB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714678   (111676) от 10.04.2024
-
-The Fiery Lights - 1982 (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Too Damn Clever for Your Own Damn Good (00:04:31)
-02 - Tongues (00:04:49)
-03 - David (00:04:00)
-04 - Just Speak (00:04:18)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF87125B59A9389D677BDD2C1E56BBB6606EDF35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714701   (111677) от 10.04.2024
-
-Telegram Desktop 4.16.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
-Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
-С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44118C8FC595A18BF71097942EF35B4BC21C9E9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714922   (111678) от 10.04.2024
-
-Trax - Watch Out! + Dancing In The Street (1977-1978) Compilation, Reissue, Remastered, 2015, Polydor [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый альбом "Watch Out!" был записан в марте 1977 года и выпущен два месяца спустя. Несмотря на то, что альбому не удалось попасть в чарты продаж, он стал большим диско-хитом в США, где провел 13 недель в диско-чартах Billboard, достигнув 12-й строчки в октябре того же года благодаря своей пробивной, необузданной энергетике. В 1978 году Белотт & Форси (   Читать дальше...   )Watch Out! (1977):
-01. Watch Out For The Boogie Man!
-02. Breathless
-03. Any Way You Want It(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B14AA850A15B0716B52576D1D807783162DDC326
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714650   (111679) от 10.04.2024
-
-Журнал | Золотые рецепты наших читателей №7 (353) (апрель 2024) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A1237DE7CE460B26DECCCCC1DBF133A0A236DB0
 ```
 
 

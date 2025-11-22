@@ -1,3 +1,190 @@
+###  Публикация: 477196   (98413) от 02.04.2012
+
+Fading Waves - The Sense Of Space (2011) [MP3|320 кб/с]<Progressive Sludge / Post-Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Air
+ 02 - Flashes
+ 03 - Destroying The TimeЖанр: Progressive Sludge / Post-MetalПродолжительность: 00:38.35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B71B2CCE744E71EDF770C0A030161143DE7F30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477272   (98414) от 02.04.2012
+
+[Wallpapers] Full HD Wallpapers Pack 3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98414.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Full HD Wallpapers Pack 3 
+Название:  Full HD Wallpapers Pack 3 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E943DDFF4201EA5D28AA91B075A826B7C800BB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477170   (98415) от 02.04.2012
+
+[Wallpapers] Sexy Girls Pack (02.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BBB5CF4A19C01B36A6E9042F4B1722B9C6B0254
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477187   (98416) от 02.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (03.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27969ED671D644E9520AF700FDC82CC24396EB42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476692   (98417) от 02.04.2012
+
+VA - Русский Шторм 56 (2012) [MP3|320 kbps]<Pop | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aslan feat. Misty - Знаю, Знаю (Romanian Mix)
+02. Aslan И Эльдар Далгатов - Опа Опа
+03. A-Via & Extasy Project - Мама-Любовь
+04. Dj Clubactive (In & Out) - Разбитые Слова (Original Mix)
+05. Dj Nil & Sexy Liya - На Краю У Рая (Extended Mix)
+06. Dj Xm & Ирина Кулькова - Почему (Original Mix)
+07. Dj Сателлит & Marlena - Ok (Tonada Club Mix)
+08. Dj Сателлит & Marlena - Иней (Tonada Radio Mix)
+09. Elia - Последние Слова (Radio Edit)
+10. Elvira Ragazza - Возьми Меня Весна(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 02:26:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5DFC15824853E276EF698ADCA3D99D3AF5A953C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477266   (98418) от 02.04.2012
+
+[Wallpapers] Avto Desktop Wallpapers Pack
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98418.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Desktop Wallpapers Pack 
+Название:  Avto Desktop Wallpapers Pack 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х1024 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7717DC23BFF8F148CBF4E62D21B5CA831998AA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477169   (98420) от 02.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (02.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81D937B43233E9F9BE1B181F6098682FB9ECED3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477352   (98424) от 02.04.2012
 
 [Wallpapers] Girls Desktop Wallpapers Pack 24
@@ -539,201 +726,6 @@ Dana Gillespie & Joachim Palden - Big Boy (1992) [FLAC|Lossless]<Blues>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476820   (98451) от 02.04.2012
-
-Wise Registry Cleaner 7.12 build 448 Final + Portable [Multi(Rus)]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название программы: Wise Registry CleanerЯзык интерфейса: 
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476213   (98452) от 02.04.2012
-
-The Soul Snatchers - Scratch My Itch (2012) [MP3|320 кб/с]<Soul, Funk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98452.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Do You Wanna Get Down
-2. Who I Am
-3. Now That You've Got It
-4. Good To Me
-5. Scratch My Itch
-6. The Right Track
-7. Show Me Love
-8. Finish What You Started
-9. Judge of Love
-10. The Lick(   Читать дальше...   )Жанр: Soul, FunkПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48EECB21F0AB629FD96874ED3F11B6FD526DCED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476941   (98453) от 02.04.2012
-
-VA - Союз Хитовый Часть 2 (2012) [MP3|256-320 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98453.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 ВИА Гра - Алло, мам!
-002 Валерий Меладзе - Потерян И Не Найден
-003 Елка - Около тебя
-004 Алина Гросу - Взрослая
-005 Время и Стекло - Гармошка
-006 Дмитрий Колдун - Ничего
-007 Анна Седокова - Такси
-008 Юрий Шатунов - Отпусти меня
-009 Любэ, Корни и In2nation - Просто любовь
-010 Елена Ваенга и Александр Малинин - Две души(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7690A806B9F7298E2331651FBB6AC22894DA04F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477256   (98454) от 02.04.2012
-
-Каникулы в Мексике - 2. Выпуск №21 (2012.04.02) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98454.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3317DD4BD67F14083CC86082D6E942CE61C697A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476804   (98455) от 02.04.2012
-
-Wise Disk Cleaner v7.16 build 473 Final + Portable [Multi(Rus)]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название программы: Wise Disk CleanerЯзык интерфейса: Multi(Rus)
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477324   (98456) от 02.04.2012
-
-Газета | Советчица. Приусадебное хозяйство [Украина] №3 (март 2012) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98456.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Приусадебное хозяйство» от "Советчицы" - толковый помощник по дому, саду, огороду, которому известны все тонкости выращивания, обрезки, поливки, ландшафтного дизайна.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F298371862E0D9532471D9D4E2CC94EB173B832
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476962   (98457) от 02.04.2012
-
-VA - MAXI. Новое на MTV (2012) [MP3|256-320 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris feat. Ne-Yo - Let's Go (Radio Edit)
-02. DJ Clubactive (In & Out) - Разбитые Слова (Original Mix)
-03. Kato feat. Snoop Dogg & Brandon Beal - Never Let you Go
-04. Wave Projects feat. Myra - Higer (Radio Edit)
-05. Moonbeam feat. Fisher - I Love Your Face (Radio Mix)
-06. Body & Soul ft. Kenno - Your Love (Radio Edit)
-07. DJ Sandro Escobar feat. Katrin Queen - My Love (Radio Mix)
-08. Алеся Муха - Зачем
-09. Мальвина - Этой Весной (Dance Version)
-10. Dr. Kucho vs. Funky Brothers - La Tarde Se Ha Puesto Triste (Dj Diabolik & Dj Mili Booty Mix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98D354E83DDF096CA56B545BD5EA8FDECEF49A90
 ```
 
 

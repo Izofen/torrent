@@ -1,3 +1,184 @@
+###  Публикация: 1754898   (103690) от 12.10.2024
+
+Def Leppard - Live At The Leadmill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Action (Live) (4:04)
+02. Fire It Up (Live) (3:50)
+03. Let It Go (Live) (6:08)
+04. Too Late for Love (Live) (5:23)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E94FF76677F8DD98D5D73D5483615ECDD3F4F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754871   (103691) от 12.10.2024
+
+Pet Shop Boys - Alternative (1995) 1st Holland Press [APE|Lossless|image + .cue] <SynthPop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Must Be Obvious (4:25)
+02. We All Feel Better In The Dark (4:01)
+03. Bet She's Not Your Girlfriend (4:28)
+04. Losing My Mind (4:34)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 02:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFCC5211D59B686B4B9A4F4C5E63653159AF1650
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754866   (103692) от 12.10.2024
+
+Первый взвод / Западный фронт (1932) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103692.jpg" />
+</div>
+
+
+###  Подробнее
+
+О перерастании первой мировой войны в войну Гражданскую.
+1914 год. Начало империалистической войны. На фронт отправляется первый взвод, сформированный в одном из белорусских городов. Солдаты еще не понимают социального смысла происходящих событий. Только некоторые из них, в том числе Макар Бобрик и Шапиро, резко осуждают войну. Демократические взгляды проявляет также (   Читать дальше...   )Производство: СССР / БелгоскиноЖанр: драма, военныйРежиссер: Владимир Корш-Саблин, Борис Бродянский, Давид ГутманАктеры: Федор Никитин, Михаил Царев, Галина Кравченко, Борис Бабочкин, Давид Гутман, Зинаида Рикоми, Леонид Кмит, Олег Жаков, Михаил Ростовцев, Яков МалютинПродолжительность: 01:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEA7B84B6E9DB66BC380ADFF3AE6DD5DE672002
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754804   (103693) от 12.10.2024
+
+Rock Identifier - Stone ID v2.3.41 Mod by youarefinished [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просто сделайте или загрузите фото камня, и Rock Identifier расскажет все за считанные секунды. Исследуйте свое геологическое окружение, узнавайте о различных породах и знакомьтесь с миром природы с помощью Rock Identifier!Тип издания: PremiumРелиз состоялся: 13.10.2024Разработчик: Next Vision LimitedПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0464A4A534EB99C7EF23A0ACC1230EDC6B3530
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754874   (103694) от 12.10.2024
+
+Pet Shop Boys - Release (2002) 1st Holland Press [APE|Lossless|image + .cue] <SynthPop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Home And Dry (4:21)
+02. I Get Along (5:50)
+03. Birthday Boy (6:27)
+04. London (3:47)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC8BEE1E0F3C61EBBC47F40877A703B67D02D72D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754833   (103695) от 12.10.2024
+
+Olivia Newton-John - Olivia Newton-John's Greatest Hits (1982) Deluxe Edition, Remastered, 2022, Primary Wave Music [FLAC|Lossless|WEB-DL|tracks] <Dance pop, Synth pop, Ballad, Folk, Americana>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If Not For You (Remastered 2022) [00:02:53]
+02. Banks Of The Ohio (Remastered 2022) [00:03:18]
+03. Love Song (Remastered 2022) [00:03:46]
+04. Take Me Home Country Roads (Remastered 2022) [00:03:22](   Читать дальше...   )Жанр: Dance pop, Synth pop, Ballad, Folk, AmericanaПродолжительность: 01:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEDB00A499E1B0D958B6EFC143F4DD2F7F7BCD25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754794   (103696) от 12.10.2024
+
+Большая ночь / Big Night (1996) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Примо ("первый") и Секондо ("второй") — братья, эмигрировавшие из Италии, чтобы открыть в США итальянский ресторан. Примо — вспыльчивый и талантливый повар, не желающий тратить свой талант на заурядные блюда, которые ожидают клиенты. Секондо старается поддерживать ресторан на плаву, хотя у них не так уж много посетителей, включая художника, который (   Читать дальше...   )Производство: США / Rysher Entertainment, A Timpano ProductionЖанр: драма, мелодрамаРежиссер: Кэмпбелл Скотт, Стэнли ТуччиАктеры: Стэнли Туччи, Тони Шэлоуб, Марк Энтони, Ларри Блок, Кэролайн Аарон, Андре Белградер, Минни Драйвер, Питер МакРобби, Изабелла Росселлини, Лив Шрайбер, Иэн ХолмПеревод: Двуголосый профессиональный (SDI Media)Язык озвучки: русский, английскийСубтитры: русский, английскийПродолжительность: 01:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A57D1A3ED63F8DD82ADCCC5EE4E5EF9E753840
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754767   (103697) от 12.10.2024
 
 PowerDirector – Video Editor v14.5.0 Mod by Balatan [Ru/Multi]
@@ -484,193 +665,6 @@ Ad Infinitum - Abyss (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B89E29E1747C84E344DB381CCFFD0D6D44F4FFA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754644   (103716) от 11.10.2024
-
-Johan Steensland - Crossfade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog, Rock Opera>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (2:04)
-02. Joseph's Dream (4:49)
-03. Doorbell (5:14)
-04. I'm All to Blame (3:19)(   Читать дальше...   )Жанр: Progressive Rock, Neo-Prog, Rock OperaПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A8CA3A4D75871ECCCBA4C5F91DC844CDAEEA58B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754591   (103717) от 11.10.2024
-
-Winter - Keeping The Flame Alive (2024) [MP3|320 Kbps] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keeping The Flame Alive (04:22)
- 02. Wheel Of Fortune (featuring Ralf Scheepers) (04:04)
- 03. Guardians Of Life (04:45)
- 04. Into The Fire (05:19)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A07182600AD4080940BB5AA4664B8C2EB761EEB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754669   (103718) от 11.10.2024
-
-Лицедейство перед лицом смерти / Dodsangstens maskespil (1912) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103718.jpg" />
-</div>
-
-
-###  Подробнее
-
-На судне вспыхивает пожар, и капитан призывает популярного артиста, находящегося на корабле, попытаться отвлечь пассажиров, чтобы не началась паника, пока команда пытается взять ситуацию под контроль.
-В главной роли Вальдемар Псиландер - записной красавчик и первейший герой-любовник кинематографа тех времен.Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Эдуард Шнедлер-СоренсенАктеры: Ellen Aggerholm, Аньес Андерсен, Axel Boesen, Alma Hinding, Astrid Krygell, Отто Лагони, Agnes Lorentzen, Эксел Маттсон, Вальдемар Псиландер, Кристиан ШрёдерПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395673FE1C073D0D144C3E23B9B6C3B3AC75F53B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754502   (103719) от 11.10.2024
-
-House Of Lords - Full Tilt Overdrive (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crowded Room (4:47)
-02. Bad Karma (4:12)
-03. Cry Of The Wicked (5:09)
-04. Full Tilt Overdrive (4:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27018C4B11414826CF135E23D8C556EA0711E6F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754619   (103720) от 11.10.2024
-
-Kalandra - A Frame of Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Prog Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am (5:33)
-02. Untie The Knot (3:55)
-03. Are You Ready? (4:31)
-04. The State of the World (4:19)(   Читать дальше...   )Жанр: Progressive Rock, Prog FolkПродолжительность: 00:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561F9E3F57FCA562F428D4C454214AED62E88243
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754501   (103721) от 11.10.2024
-
-Radioactive - Reset (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sentimental (4:33)
-02. Shame On You, Shame On Me (5:02)
-03. Gaia (5:03)
-04. When The Lights Go Down (4:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA0E35123BF120DDEB714B7C0F73F40BB7FDFFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754268   (103722) от 09.10.2024
-
-The Vaughan Brothers - Family Style  (1990) [FLAC|Lossless|tracks + .cue] <Blues Rock, Pop Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard To Be
-02. White Boots
-03. D / FW
-04. Good Texan(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC4ACE55262C55EA1B1DF559D6F627FACABA5ED
 ```
 
 

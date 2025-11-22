@@ -1,3 +1,30 @@
+###  Публикация: 1594250   (178699) от 30.11.2022
+
+Michael Rother - Solo (2019) 5×CD, Compilation [FLAC|Lossless|tracks + .cue] <Ambient, Krautrock>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_178699.jpg" />
+</div>
+
+
+###  Подробнее
+
+1977 - Flammende Herzen
+1978 - Sterntaler
+1979 - Katzenmusik
+1982 - Fernwärme(   Читать дальше...   )Жанр: Ambient, KrautrockПродолжительность: 02:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:287C7AC181F961E5875F79E482A1451709A7D17E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666064   (178929) от 05.10.2023
 
 Alexey Teplykh - Different Styles (2023) [MP3|320 Kbps] <Synthpop>
@@ -663,33 +690,6 @@ DISC 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7692C98C3E5A969ECDB07E63966EC2658403C26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593111   (181675) от 25.11.2022
-
-Jean Michel Jarre - The Concerts In China (1982) 2CD, 40th Aniversary – Remastered Edition, 2022 [FLAC|Lossless|WEB-DL|tracks] <Electronic>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_181675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orient Express (Live - Remastered 2022) [00:04:21]
-02. Chants Magnetiques, Pt. 1 / Magnetic Fields Part 1 (Live - Remastered 2022) [00:00:27]
-03. Chants Magnetiques, Pt. 3 / Magnetic Fields Part 3 (Live - Remastered 2022) [00:03:45]
-04. Chants Magnetiques, Pt. 4 / Magnetic Fields Part 4 (Live - Remastered 2022) [00:06:45](   Читать дальше...   )Жанр: ElectronicПродолжительность: 2 CD, 01:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA9A7671A5CD1A2B14861003F07FEDA451CA2493
 ```
 
 

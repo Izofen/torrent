@@ -1,3 +1,57 @@
+###  Публикация: 1800099   (66294) от 01.06.2025
+
+Ella Fitzgerald - The Moment Of Truth (1967) 2025, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Moment of Truth [2:52]
+02. Don't Be That Way [4:34]
+03. You've Changed [4:37]
+04. Let's Do It (Let's Fall in Love) [4:43](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B40134339096740A1B91F6A0770D485A2C3C6E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800274   (66295) от 01.06.2025
+
+Anthems in Ashes - This Affliction (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hold (3:05)
+02.  Superheroes (3:50)
+03.  This Disease (4:15)
+04.  Give It To Me (3:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84EC1924B9655A4DD24B3714C18E91D38E9C46BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800252   (66296) от 01.06.2025
 
 Big Head Todd And The Monsters - Midnight Radio (1990) CD, Album, Reissue 1994 [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
@@ -604,60 +658,6 @@ Chiyu Mahou no Machigatta Tsukaikata | The Wrong Way to Use Healing Magic | Ка
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75FB25A0BD48185AF2649A957E0AC62B326E4408
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799917   (66320) от 31.05.2025
-
-Heidi Montag - Heidiwood (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thank Me [00:02:17]
-02. Heidiwood (feat. Chase Icon) [00:02:11]
-03. WET HOT SUMMER [00:02:09]
-04. Prototype [00:02:25](   Читать дальше...   )Жанр: PopПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BEF8AF6C7C49D90DFEA88861FDECBAC79718A63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799927   (66321) от 31.05.2025
-
-(hed) p.e. - New And Improved (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Experimental, Hardcore Hip-Hop, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Breath You Take [00:02:41]
-02. Just Can't Get Enough [00:03:01]
-03. Always On My Mind [00:02:44]
-04. Red Red Wine [00:04:26](   Читать дальше...   )Жанр: Experimental, Hardcore Hip-Hop, MetalcoreПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58D8228A5ACD6C37DB65D9E17953F38B3CBE2FCD
 ```
 
 

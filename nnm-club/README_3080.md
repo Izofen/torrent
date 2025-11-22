@@ -1,3 +1,208 @@
+###  Публикация: 474285   (97873) от 28.03.2012
+
+DJ Kocmoc - Electro Russian Dance vol.4 (24.03.2012) [MP3|320 кб/с]<Electro House, House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97873.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Anna FOX & Extasy Project - Мне все равно (DJ Melnikoff & DJ Andy Max Remix)
+2. Cloud Dj' s Project & Альмароин - Небо Над Нами (Extended Mix)
+ 3. Лерика - Небо И Земля (DJ Vengerov Remix)
+ 4. DJ Mixer Euro feat. Nika Belaya - Зажигаем (Ser Twister Remix)
+5. Клипса - Шаг (Dj Kutsek Club Remix)
+ 6. DJ Sandro Escobar feat. Katrin Queen vs Nyusha - Vyshe (DJ Solovey Remix)
+7. Biffguyz - Bum bum bum (Big Four & DJ Demonhouse Remix)
+8. Тяга - Он уходил (Ser Twister Remix)24.03.2012Жанр: Electro House, HouseПродолжительность: 03:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A834CA45BB0B081BC242ED7E9E33504595C747F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474235   (97874) от 28.03.2012
+
+VA - Слушай Электронный Рок Maximum (2012) [MP3|256 kbps]<Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97874.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Би-2 - Февраль (Feat. Ю. Чичерина)
+002 The Beatles - Yesterday
+003 Глеб Самойлоff & The Matrixx - Рай
+004 Doors - The Severed Garden
+005 Ляпис Трубецкой - Священный Огонь
+006 Stratovarius - Celestial Dreams
+007 Мкпн - Аленький Цветочек
+008 Supertramp - Breakfast In Amerika
+009 Ленинград - Прогресс
+010 Pegazus - Emerald Eyes(   Читать дальше...   )2012Жанр: РокПродолжительность: 05:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A75450200A63E789812EF1AB8B289A0A4A1B52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474766   (97875) от 28.03.2012
+
+VA - Trance Maniacs Party Melody Of Heartbeat #79 (26.03.2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97875.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trance Maniacs Party Melody Of Heartbeat #79 (26.03.2012)
+Год: 26.03.2012
+Жанр: Vocal Trance
+Продолжительность: 03:26:03Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Andrew Rayel - 550 Senta (Aether Mix)
+02. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Extended Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1371A36BF0F5581AB24FAB29679CE7D11036E586
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474463   (97877) от 28.03.2012
+
+Nightside Glance - 2 альбома (2009 - 2011) [FLAC|Lossless]<Sympho Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nightside Glance — белорусская sympho/modern/black metal группа, основанная в 2005 году и сразу зарекомендовавшая себя как яркий живой коллектив, с запоминающимся имиджем и мощной подачей материала. Музыкальная составляющая группы представляет собой жесткий, мелодичный саунд с элементами электронной музыки — метал, тяжелым локомотивом движущийся сквозь настоящее в будущее. За время своей деятельности Nightside Glance дали множество концертов на площадках Беларуси и России, где делили сцену с такими группами как: Vesania (PL), Thy Disease (PL), Christ Agony (PL), Luna Ad Noctum (PL), Vicious Crusade (BY), Rasta (BY), Mental Demise (UA) и др. На сегодняшний день Nightside Glance – одни из самых ярких представителей белорусской метал-сцены со своим сценическим имиджем и концертным шоу.01. Breaking Point 05:52
+02. Changing Lives 03:45
+03. Children (Robert Miles cover) 06:28
+04. Edge of Time (live) 07:35
+05. In Raven Claws (live) 06:18
+06. Masquerade of Piety (Vicious Crusade cover) 06:45Жанр: Sympho Black MetalПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474671   (97878) от 28.03.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (29.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3017670F4B94F219C144807865A140F9BB284B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474398   (97879) от 28.03.2012
+
+VA - Absolute Dance Hits (2012) [MP3|256 кб/с]<Dance, Рор>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97879.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cosmic Gate & Arnej - Sometimes They Come Back For More (Radio Edit)
+ 002. Asher Roth (Ft Akon) - Last Man Standing
+ 003. Funky Chicos - Girls In Love (Sunrider Edit)
+ 004. Milk & Sugar Feat. Miriam Makeba & Jungle Brothers - Hi-A Ma (Pata Pata)
+ 005. Kelly Clarkson - Stronger (What Doesnt Kill You) (7th Heaven Club Mix)
+ 006. Dj Project Giulia - I'm Crazy In Love
+ 007. Flo Rida feat. T-Pain & LMFAO - Run To You
+ 008. Nadia Ali - Rapture (Avicii New Generation Radio Edit)
+ 009. Andreea Balan - Like a Bunny (Radio Edit)
+ 010. Azuro Feat. Elly - Toca Me (Video Edit)(   Читать дальше...   )2012Жанр: Dance, РорПродолжительность: 05:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA869585816232DE00124A7E5CE45ACB657BB2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474847   (97880) от 28.03.2012
+
+Каникулы в Мексике - 2. Выпуск №18 (2012.03.28) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97880.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E22082D56FDA829E1FEC185C4C276C1C9FB8105
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474703   (97881) от 28.03.2012
 
 Журнал | Домовичок №1 Здороье на блюде [2011] [PDF]
@@ -502,195 +707,6 @@ magnet:?xt=urn:btih:4FAACB8EF9869C7CA7F47548FBC3C291723155DE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EEB1AECC1549CD74285FAAFCD72DFF6B8A60457
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474950   (97910) от 29.03.2012
-
-Мишель Лебрюн | Смерть молчит [2007] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франсуа Малле ревнует свою жену к своему боссу и замышляет его убийство. А совершив задуманное, понимает, что убил кого-то другого, совершенно ему незнакомого. "Что я наделал? Это невероятно - я был способен убить человека? И вдобавок ещё ошибся! Убил кого-то, кого в жизни не видел, и только потому, что тот был одет в плащ из верблюжьей шерсти? Человека, который мог быть отцом семейства, который... Что за идиотизм! Не остается ничего, кроме как..."2007Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E3BA100261231C136874541A70289EB4A2FC5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474305   (97911) от 29.03.2012
-
-Tort - Tort (2012) [WavPack|Lossless]<Sludge Metal/Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valhalla (6:15)
-02. Cannibals Of Ma'arrat (6:09)
-03. Gnosis Of The Dead (13:33)
-04. Fire Rose Vampira (3:58)
-05. Earl Estruch (11:23)Жанр: Sludge Metal/Thrash MetalПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475223   (97915) от 29.03.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (30.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5EE06918A46443E7DE257A548113CE252D0224B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474797   (97916) от 29.03.2012
-
-[Wallpapers] Nature HD Wallpapers Pack 3
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97916.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature HD Wallpapers Pack 3 
-Название:  Nature HD Wallpapers Pack 3 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 4599х2861
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8830FFDDCEA22B4F489C4AADB7652AA333E21ADF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475143   (97917) от 29.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 30
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97917.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 30 
-Название:  Desktop Wallpapers Pack 30 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE0B9904BC305BF97645B189D441EFEB820999F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471986   (97920) от 29.03.2012
-
-Game Over - NESperado (2006) [MP3|256 кб/с]<Experimental/Nintendo Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97920.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Flying High through the Skull's Eye
-2. Siege at Monsteropolis
-3. Hyrule's Angel (The Sleeping Beauty)
-4. Transylvanian Temptation
-5. Addicted to Vengeance
-6. For Those About to climb2006Жанр: Experimental/Nintendo MetalПродолжительность: 00:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CA2BBE9579C8FCB6EE9ED79F753F4989E53484
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474799   (97921) от 29.03.2012
-
-[Wallpapers] Nature HD Wallpapers Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97921.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature HD Wallpapers Pack 4 
-Название:  Nature HD Wallpapers Pack 4 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 4288х2848
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21FC1BCBD621712645A6DAB6DB3B1476ECD9BA4
 ```
 
 

@@ -1,3 +1,183 @@
+###  Публикация: 1760888   (103144) от 16.11.2024
+
+MotoGP. Этап 20 из 20. Гран-при Барселоны. Спринт (16.11.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103144.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 ноября 2024, суббота. 17:00 МСК. Этап 20, Испания. Гран-при Барселоны. Спринт (12кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B52BF9B909408C3E1E1079DA33E67A80E1D7EFAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760772   (103145) от 16.11.2024
+
+Пятеро на одного (16.11.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F621AB052D1D9DA4ED26AB9123C04A1E7AF903
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760791   (103146) от 16.11.2024
+
+Hard Shine - Cold Shot (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better (3:35)
+02. Business (5:51)
+03. Mojo (3:33)
+04. Fat Daddy (3:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6FA8A6611C41D2820B92C70F5CA8990C5573A4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760900   (103147) от 16.11.2024
+
+Nile - The Underworld Awaits Us All (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal, Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stelae of Vultures (06:20)
+ 02. Chapter for Not Being Hung Upside Down on a Stake in the Underworld and Made to Eat Feces by the Four Apes (03:50)
+ 03. To Strike with Secret Fang (01:59)
+ 04. Naqada II Enter the Golden Age (05:28)(   Читать дальше...   )Жанр: Brutal, Technical Death MetalПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF99235F11BD18B301304EE2F67493BEB485877C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760879   (103148) от 16.11.2024
+
+Hilde Fjortoft (Fjørtoft) - Trolls in my head (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trolls in my head (3:02)
+02. Don't you lie to me (2:29)
+03. A change is gonna come (4:52)
+04. Reelin' and rockin' (1:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C0825E92C30D90097549617BE891DCDA640973
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760839   (103149) от 16.11.2024
+
+MotoGP. Этап 20 из 20. Гран-при Барселоны. Квалификация (16.11.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103149.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 ноября 2024, суббота. 12:50 МСК. Этап 20, Испания. Гран-при Барселоны. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75AD9DD3C8C86D861078FA9C32C0A70B2FE03B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760805   (103150) от 16.11.2024
+
+Genus Ordinis Dei - Studio Albums & Singles (4 releases) (2016-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Death/Groove Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Genus Ordinis Dei - итальянская симфоническая дэт-метал/дэткор-группа. Образована в 2009 году.2016 - The Middle
+2017 - Great Olden Dynasty
+2020 - Glare of Deliverance
+2023 - The BeginningЖанр: Symphonic Death/Groove Metal/MetalcoreПродолжительность: 04:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FAFC9EB2C8406B25F1CFA99366BD41D4BF3383
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760867   (103151) от 16.11.2024
 
 Beast - Ancient Powers Rising (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -489,192 +669,6 @@ Letdown. - Be OK (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DA807B8E555F5BE84749D67B0D1453CE2B527AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760642   (103170) от 15.11.2024
-
-St. Vincent - Todos Nacen Gritando (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Infierno Está Cerca (4:09)
-02. Salvaje (3:57)
-03. Hombre Roto (3:22)
-04. Pulga (3:47)(   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F773134CF0F9F23C73B37CEAD1EF949076DC79E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760662   (103171) от 15.11.2024
-
-Невеста Франкенштейна / The Bride of Frankenstein (1935) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит сразу после событий предыдущего фильма и основано на сюжетной линии оригинального романа Мэри Шелли «Франкенштейн, или Современный Прометей» (1818)... Отвергнутый всеми монстр ищет себе пару. Доктор Франкенштейн приходит на помощь и создает заветную подругу...Производство: США / A Universal PicturesЖанр: ужасы, фантастикаРежиссер: Джеймс УэйлАктеры: Борис Карлофф, Колин Клайв, Валери Хобсон, Эрнест Тесиджер, Эльза Ланчестер, Гэвин Гордон, Дуглас Уолтон, Уна О`Коннор, Люсьен Приваль, О.П. Хегги, Дуайт Фрай, Реджинальд Барлоу, Мэри Гордон, Энн Дарлинг, Тед БиллингсПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6E112EAA9B0EF5895C9CE42F14BF6425B7FABB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760451   (103172) от 15.11.2024
-
-Michel Sardaby - Blue Sunset (1967) 1990, Mantra [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Sunset [5:35]
-02. Always Room for One More [5:23]
-03. Empty Room [4:00]
-04. Wendy [5:18](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AEB3CA62A4A4D42098C7E0F94193616749B1598
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760639   (103173) от 15.11.2024
-
-Larry Willis Trio - Just In Time (1989) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just in Time [10:34]
-02. Soul Search [9:01]
-03. T's Bag Blues [5:22]
-04. For All We Know [9:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD482AD99BECD5CAFE3E0E671F6A7411CE6F8E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760627   (103174) от 15.11.2024
-
-Violent Definition - Progressive Obsoletion (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103174.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Into Trepidation
-2. Justified Ferocity
-3. The Last Grain In Your Hourglass
-4. Experimental Failure(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F197084B0850E90270A11D7919255B9F861654F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760359   (103175) от 13.11.2024
-
-Captain Morgan Express - The Pussycat Tapes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Just Your Fool (3:06)
-02. Chicago Bound (3:08)
-03. The Jealous Kind (3:32)
-04. Change It (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E814F6A08F2C7783362D914F2C6D06E6E801044E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760377   (103176) от 13.11.2024
-
-North By Northwest - No Time Like the Present (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Then (2:59)
-02. Caesar Jingle (Live) (2:28)
-03. Easy Street (A Song for the Homeless) (4:17)
-04. Good Times (Wild Women and Lovers) (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D441786038A8A86BEE21D64C6A59C3DB345ED8D2
 ```
 
 

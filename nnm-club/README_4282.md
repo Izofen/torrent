@@ -1,3 +1,196 @@
+###  Публикация: 1682189   (131711) от 06.12.2023
+
+art of rally (2020) [Ru/Multi] (1.5.0/dlc) Scene Rune
+
+>>Win Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131711.jpg" />
+</div>
+
+
+###  Подробнее
+
+art of rally - раллийная игра от создателя игры Absolute Drift, завоевавшей любовь многих ценителей гонок. Вид сверху позволит полностью сфокусироваться на заездах благодаря хорошему обзору трассы без подсказок штурмана. Управление автомобилем было существенно доработано по сравнению с Absolute Drift и стало более предсказуемым и менее требовательным. Поведение автомобиля (   Читать дальше...   )Тип издания: SceneРазработчик: Funselektor Labs Inc.Жанр: Action, Racing, Simulation, SportsЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67BD9DAF77858523CDA9093C36BC482BB032178D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645273   (131712) от 06.12.2023
+
+Ледяная внучка (1980) WEBRip [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-сказка по мотивам русской народной сказки о Снегурочке. Полюбился ей деревенский гончар - и захотела она стать обыкновенной девушкой и выйти за него замуж. Но счастью влюбленных мешает коварный обман князя…Производство: СССР / Киностудия им. М. ГорькогоЖанр: фэнтези, семейныйРежиссер: Борис РыцаревАктеры: Светлана Орлова, Андрей Градов, Людмила Шагалова, Борис Сабуров, Альберт Филозов, Валерий Долженков, Ольга Григорьева, Владимир Никитин, Владимир Дружников, Николай АверюшкинСубтитры: отсутствуютПродолжительность: 01:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BDE3F3ABB662C25EA9E589F9653DB8A0A637976
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596079   (131714) от 30.12.2012
+
+Jorn - Dukebox (2009) [MP3|320 кб/с]<Hard`n`Heavy>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Man Of The Dark
+02.  Starfire
+03.  Young Forever (new version)
+04.  Soul Of The Wind
+05.  Living With Wolves
+06.  War Of The World
+07.  Sunset Station
+08.  We Brought The Angels Down
+09.  The Inner Road
+10.  Tungur Knivur(   Читать дальше...   )Жанр: Hard`n`HeavyПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E895581A766CB4740FA406B8AE380B82514293
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595290   (131715) от 30.12.2012
+
+Kanista - The Sunlight Channel (2012) [MP3|320 кб/с]<Breakcore, Noise>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celestial Seasonings
+02. CORRUPT YOUR PINEAL, DESTROY YOUR CATS
+03. Gorilla Balls Ballistic
+04. Walmart Employee Mercilessly Sodo
+05. Persian Pimpcoat
+06. Heartless Wizard
+07. GOD IS DEAD (FULLY DEAD)
+08. Butcher, Danger, Ancient Filth
+09. Gay Nazi Ravers
+10. 600 For KoSq(   Читать дальше...   )Жанр: Breakcore, NoiseПродолжительность: 00:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:277A4772B49899B0194586B960FF32DA350DCCB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682136   (131716) от 06.12.2023
+
+Бесполезная ложь / Soyongeopseo geotjitmal / Useless Lies / My Lovely Liar (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) Light Breeze, Softbox
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мок Соль Хи обладает особой способностью, которая позволяет ей различать, лгут люди или нет. Она ненавидит свою способность и рассматривает ее как проклятие. Однажды девушка связывается с подозреваемым в убийстве, который настаивает на том, что он невиновен, но ему никто не верит.Производство: Южная Корея / BIG OCEAN ENM, Studio Dragon, tvNЖанр: детектив, комедия, мелодрама, фэнтезиРежиссер: Нам Сон-уАктеры: Ким Со-хён, Хван Мин-хён, Юн Джи-он, Со Джи-хун, Ли Щи-у, Пак Кён-хе, Квон Дон-хо, Чхве Га-ин, Чин Ми-са, Ли Дон-ёнПеревод: двухголосый любительский (Light Breeze, Softbox)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: ~01:04:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D28FD521AF74BDAAD72407EFAD83DE2FB4DA4D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596324   (131717) от 30.12.2012
+
+[Wallpapers] World of Animals (30.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131717.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] World of Animals (30.12.12)
+Название: World of Animals (30.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64FCC19343E185B816562085686EB8EDABAC59D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682245   (131718) от 06.12.2023
+
+Deep Forest - Burning (2023) [MP3|320 Kbps] <New Age, Electro>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Did That [08:54]
+02. Burning Sun [06:10]
+03. Deep Fakear [05:48]
+04. Travelling With Sam [05:25](   Читать дальше...   )Жанр: New Age, ElectroПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A68FB7B88E5B13268D8F48B0C25C4BEA3A18FC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682208   (131720) от 06.12.2023
 
 Macrorit Disk Scanner 6.7.0 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -471,194 +664,6 @@ FIFA Manager 13 [Ru/En] (RePack/1.02) 2012 l R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA63240C004431D664DB3A0C1BAFC2489366A024
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682209   (131746) от 06.12.2023
-
-StartAllBack 3.7.0 StartIsBack++ 2.9.19 (2.9.1 for 1607) StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePack by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131746.jpg" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43CC62790E0844B14A4D1774A3C32A2C2379B779
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682210   (131748) от 06.12.2023
-
-Udemy, Samantha Dabrowski | Become a Graphic Designer in the Film Industry (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы творческий человек и хотите продолжить свою увлекательную карьеру в киноиндустрии? Мешает ли вам страх перед неизвестностью расти ? Этот курс подготовит вас к тому, чтобы с уверенностью приступить к новой работе !
-Вы хотите работать графическим дизайнером в киноиндустрии ?
-Прошел еще один год, а вы все еще застряли на той же бесполезной работе? Вы говорили себе, (   Читать дальше...   )Производство: UdemyЖанр: ДизайнЯзык озвучки: АнглийскийПродолжительность: 01:21:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D69A0A9241CADA0A15D5B9923859EEEC1E7660E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595753   (131749) от 29.12.2012
-
-Ограбление казино / Killing Them Softly (2012) DVDRip [Звук с CamRip]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время подпольной игры в покер совершено ограбление, и угроза повисла над всем воровским сообществом. Воротилы мафии рассчитывают, что Джеки Коган найдет виновных. Однако, вращаясь среди нерешительных заказчиков, жуликов-ростовщиков, усталых убийц и тех, кто спланировал «дело», даже специалисту трудно сохранить контроль над ситуацией…Жанр: Триллер, Криминал, ДрамаРежиссер: Эндрю ДоминикПродюсер: Деде Гарднер, Брэд Питт, Пола Мэй ШварцАктеры: Брэд Питт, Ричард Дженкинс, Джеймс Гандольфини, Рэй Лиотта, Скут МакНэйри, Бен Мендельсон, Винсент Куратола, Тревор Лонг, Макс Каселла, Сэм ШепардПеревод: ДублированныйПродолжительность: 01:37:13
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682217   (131750) от 06.12.2023
-
-Udemy, Passive Income Gen Z | ChatGPT & DALL-E2 to Create a KDP Storybook for Children (2023) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскройте потенциал своих стремлений к рассказыванию историй с помощью нашего комплексного курса «Мастерство создания сборников рассказов: ChatGPT и DALL-E2 Edition». Этот курс, предназначенный для начинающих авторов, стремящихся разобраться в сфере создания цифровых продуктов и пассивного дохода, предлагает прагматичный и пошаговый подход к созданию очаровательных (   Читать дальше...   )Производство: UdemyЖанр: ДизайнЯзык озвучки: АнглийскийПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE00CB8C9712F081B8046ED2467358D5BA46E846
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596085   (131751) от 29.12.2012
-
-VA - 90's Hits Euro Dance Remix Classics Vol 2 (2012) [MP3|320 кб/с]<Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tunnel Alliance-Blue (Feat Saffron Beat-Trance Future Reloaded Mix) 03:31
-02. Supershake-Gonna Make You Sweat (Everybody Dance Now) (Alex Twister Edit) 03:30
-03. Latin Warriors-Macarena (That's Now Club Mix #44)03:35
-04. G6-Ray of Light (I Like A Mashup Mix) 03:40
-05. Paradise City & Billionaire-Another Day in Paradise (Stereo Love Remix) 03:39
-06. Ammonia-Don't Speak (Said & Done Total Party Dance Mix) 03:50
-07. Coleda-I Will Always Love You (Twister Club Edit)03:44
-08. Kings of Commotion-Whoomp (There it is) (Accolade Cut) 03:22
-09. Supershake-Pump Up The Jam (Rfn Electro Funhouse Remix) 03:35
-10. Mind & Moore-Infinity (Retro's White Sensation Electro Remix) 03:15(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A6EAC825897E38C6EA8F5586C8DBD1C281CF2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682214   (131752) от 06.12.2023
-
-Udemy, Rufana Zade | Master Brand Design: Graphic Masterclass - Time-Saving Steps (2023) WEB-DL [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправьтесь в преобразующее путешествие благодаря нашему мастер-классу по графическому дизайну — захватывающему опыту, призванному пролить свет на сложный мир создания брендов. На протяжении всего курса мы шаг за шагом знакомим вас с техниками, раскрываем мастерство графического дизайна и представляем экономящие время ярлыки для быстрых и эффективных результатов. (   Читать дальше...   )Производство: UdemyЖанр: ДизайнЯзык озвучки: АнглийскийПродолжительность: 01:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71711D7F2C0E8DDFE867A85BE8845C6B50E6BCD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595349   (131753) от 29.12.2012
-
-VA 90's Hits - Euro Dance Remix Classics Vol 1 (2012) [MP3|320 кб/с]<Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_131753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dutch South - Children 2012 (Davincii Remix) 03:28
-02. Re-Quest - Insomnia (Original Rework) 03:30
-03. New Life Generation - Enjoy The Silence (Pacific State Chillout Mix) 03:52
-04. Area 44 - Believe (90'S Anthems Version) 03:39
-05. Jamal Lamar - Ice Ice Baby (Dan Drake Levels Remix) 03:49
-06. Funky Animal - I Like To Move It (Twister On Madagascar Edit) 03:28
-07. Tetrixx - U Can't Touch This (Calabria Inc Remix) 03:36
-08. Party Control - Music (Reloaded Electro Mix) 04:04
-09. Vibez - Music Sounds Better With You (Ministry Of Funk Wmc Dub) 03:49
-10. D&J Prese Josh Harris - One More Time (Calvin Chase Remix) 03:57(   Читать дальше...   )Жанр: Club, HouseПродолжительность: 02:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B03610A283AC1E265CF860198FC49A0889EA8B
 ```
 
 

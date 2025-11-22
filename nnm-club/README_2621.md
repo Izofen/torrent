@@ -1,3 +1,57 @@
+###  Публикация: 1787088   (68894) от 23.03.2025
+
+Елена Князева - Выбрала счастье (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Чувства не горят [00:02:54]
+02 - Не твоё дело [00:03:34]
+03 - Зависть и ревность [00:04:02]
+04 - Отключу телефон [00:03:30](   Читать дальше...   )Жанр: PopПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1A8CCC21590490ABAF39D254326F2926E3680D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786878   (68895) от 22.03.2025
+
+Fallujah - Empyrean (2022) [FLAC|24/96|image + .cue|Vinyl-Rip] <Progressive, Technical Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bitter Taste Of Clarity (04:50)
+02. Radiant Ascension (04:03)
+03. Embrace Oblivion (05:55)
+04. Into The Eventide (06:02)(   Читать дальше...   )Жанр: Progressive, Technical Death MetalПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D9B697B65D111F24127BB2283EAA5801F778A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786833   (68896) от 22.03.2025
 
 Forsaken - Virtues of Sanctity (1993) (EP) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Doom Metal>
@@ -617,57 +671,6 @@ magnet:?xt=urn:btih:8E6D69D927F9C9A4AE597A30AF0C89A09960F7EC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2F8D4EC8D4702A4FF4A4223F1E9BF06A1B7B6F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786811   (68920) от 22.03.2025
-
-Тайное вторжение / The Secret Invasion (1964) DVDRip [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нацисты заключают в тюрьму итальянского генерала, который планировал перебежать на сторону врага и перевести свою армию к Союзникам. Штаб Союзников посылает небольшую группу солдат, чтобы освободить генерала и помочь ему осуществить свои планы.Производство: США / San Carlos Productions, The Corman CompanyЖанр: боевик, драма, военный, историяРежиссер: Роджер КорманАктеры: Стюарт Грейнджер, Раф Валлоне, Микки Руни, Эдд Бернс, Генри Сильва, Спела Розин, Уильям Кэмпбелл, Хельмо Киндерман, Энцо Фьермонте, Питер КоуПеревод: Двуголосый профессиональный (НТВ+)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457CEDAA750C2DABFA4474168C2070305BDC13D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786840   (68921) от 22.03.2025
-
-VA - Milk & Sugar Miami Sessions 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adelphi Music Factory - The Miracle (Original Mix) (02:23)
-02. Milk & Sugar - Higher & Higher (Daniel Steinberg Extended Remix) (05:32)
-03. Bob Sinclar - World Hold On feat. Steve Edwards (Tom Staar Extended Remix) (06:52)
-04. David Penn & Rober Gaez - Set Me Free feat. Sheilah Cuffy (DJ Kone & Marc Palacios Extended Remix) (05:36)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 05:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:223289C249B69B4B7455EC02B6717D652865C460
 ```
 
 

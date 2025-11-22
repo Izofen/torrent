@@ -1,3 +1,54 @@
+###  Публикация: 1802368   (66034) от 18.06.2025
+
+Kris Cayden - Stranger Than Fiction (2025) [MP3|320 Kbps] <Electronic, Dubstep>
+
+>>Electronic
+>>Dubstep, Future Garage, Bass Music, UK Garage
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Paranormal Summer [1:07]
+02 - Love Is On Fire [4:39]
+03 - Wake [3:59]
+04 - Ghost [3:39](   Читать дальше...   )Жанр: Electronic, DubstepПродолжительность: 01:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C93874A3EF554C98B4AD22202A55F1A34B84237
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802560   (66035) от 18.06.2025
+
+Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019, Movie] Blu-ray 1080p raw+rus
+
+>>Аниме разное
+>>Аниме Blu-ray, Remux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родители Аой и Аканэ погибли 13 лет назад, и, чтобы заботиться о младшей сестре, Аканэ пришлось отказаться от планов переехать в Токио вместе со своим парнем Синносукэ. С тех пор Аой чувствует себя в долгу перед сестрой. Однажды известный исполнитель песен в жанре энка по имени Данкити приглашает Аой, только делающую первые шаги на музыкальном поприще, выступить (   Читать дальше...   )Производство: CloverWorksЖанр: романтика, повседневность, драмаРежиссер: Нагай ТацуюкиПеревод: ReanimediaОзвучка: Original 5.1Язык озвучки: Японский и РусскийСубтитры: РусскиеПродолжительность: 107 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8DEF6CF72B36CC3CBBA89A95D03B2FD26B24859
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802691   (66036) от 18.06.2025
 
 Electric Church - Used and Abused (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock, Jam Band>
@@ -634,60 +685,6 @@ magnet:?xt=urn:btih:81D68798A5A0E20C29F18EB17261AE2AE5C47735
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEC188F50D4DDEF257140CC331ADB60317F95F3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802377   (66060) от 17.06.2025
-
-Octoploid - Beyond the Aeons (2024) [FLAC|Lossless|image + .cue] <Melodic Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dawns in Nothingness (feat. Mikko Kotamäki) (05:46)
-02. Coast of the Drowned Sailors (feat. Tomi Koivusaari) (04:40)
-03. Human Amoral (feat. Tomi Joutsen) (05:43)
-04. Shattered Wings (05:18)(   Читать дальше...   )Жанр: Melodic Progressive Death MetalПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:333C67C4C02B11B2A378320EE7B16FE72DC6E643
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802409   (66061) от 17.06.2025
-
-SanMinor - Ночь декабря (2015) [MP3|320 Kbps] <Pop, Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Доверие
-02. Корабли твои мечты
-03. Ты моя - я твой
-04. Ночь декабря(   Читать дальше...   )Жанр: Pop, Rap, Hip-HopПродолжительность: 00:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F7A6CCB7475B010DC36735396025B4DEDF86751
 ```
 
 

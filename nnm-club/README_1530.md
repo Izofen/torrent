@@ -1,3 +1,51 @@
+###  Публикация: 1755666   (40134) от 17.10.2024
+
+The Devil is in the Details (2024) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40134.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Devil is in the Details, это хоррор-игра от первого лица, где вы окажетесь в адском особняке. Каждый шаг вперед - риск в постоянно меняющемся кошмаре, где ни одно прохождение не повторяется. Изучайте и исследуйте своё окружение и попытайтесь победить дьявола в его собственной игре, размещая талисманы на проклятых предметах, стараясь выжить среди множества смертельных (   Читать дальше...   )Тип издания: RepackРазработчик: HideWorksЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD85C66DC303E9F7F443B4A8E10A1DAEDDEA2B04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755702   (40135) от 17.10.2024
+
+Navicat Premium 17.1.5 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Premium - это мощный инструмент для администрирования баз данных, позволяющий подключаться к базам MySQL, Redis, MariaDB, MongoDB, SQL Server, Oracle, PostgreSQL и SQLite одновременно в одном приложении. Программа совместима с облачными базами данных Amazon RDS, Amazon Aurora, Amazon Redshift, Amazon ElastiCache, Microsoft Azure, Oracle Cloud, Google Cloud, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE07509C2FAC47AC7F78687041EC151F0F632219
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024437   (40136) от 17.10.2024
 
 Книжная серия | Волшебная академия [144 книги] (2015-2024) [FB2] [Обновляемая]
@@ -583,60 +631,6 @@ Anastasia Calmus - Revelations (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A63A31AF6D69E0B30950A4BD0F018D796BD685B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755460   (40160) от 16.10.2024
-
-Fever Ray - Live at Troxy (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, Synth-pop, Leftfield>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. An Itch (Live) [00:05:28]
-02. A Part Of Us (Live) [00:03:52]
-03. When I Grow Up (Live at the Troxy) [00:04:26]
-04. Mustn't Hurry (Live) [00:04:35](   Читать дальше...   )Жанр: Dance-pop, Synth-pop, LeftfieldПродолжительность: 01:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B45424C79F7DCD98D4E37AC5EF87DC5DA830D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755548   (40161) от 16.10.2024
-
-VA - Ultimate Chillout Ambient Lounge III (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Creation Sings (3:56)
-02. Kool&Klean - Kiss & Dance (4:44)
-03. Chillaxing Jazz Kollektion - New Sunrise Every Day (4:19)
-04. Love Suggestions - Clarity (4:36)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, Contemporary JazzПродолжительность: 01:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F9FEB110125614643BB90E4333B4BB843AE9BF8
 ```
 
 

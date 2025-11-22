@@ -1,3 +1,192 @@
+###  Публикация: 1689871   (124153) от 05.01.2024
+
+Krabathor - Lies (1995) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Truth About Lies
+02. Unnecessarity
+03. Short Report on the Ritual Carnage
+04. Tears, Hope and Hate(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F0EC8335866011E86A911C5C9A7DCB901720E61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689940   (124154) от 05.01.2024
+
+Morning Dead - Desde el otro Lado (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (02:44)
+02. Inmerso en el Abismo (02:57)
+03. Amanecer de Muerte (03:17)
+04. Desolación (04:12)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15544FEAD6544F15A396265617CB4222F524B04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689932   (124155) от 05.01.2024
+
+Sun Of The Endless Night - Symbols Of Hate And Deceitful Faith (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Hell Exhales 04:33
+02. Duality of Man 03:18
+03. Like Wolves in Winter 06:07
+04. Where Is Your God? 03:45(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3683FBFA7498C373ED5AE547704F8612183EA1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689995   (124156) от 05.01.2024
+
+Enforced - War Remains (2023) [FLAC|Lossless|image + .cue] <Thrash Metal, Crossover>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aggressive Menace
+02. The Quickening
+03. Hanged By My Hand
+04. Avarice(   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F098C2F1D6891EFADA3648CAFFF9B2B0D7C087
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689918   (124157) от 05.01.2024
+
+Whorehouse - Execution Of Humanity (2009) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Violent Storm 04:43
+02. E.O.H. 04:38
+03. Friendly Fire 04:23
+04. True Living 04:26(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CAFA4EDA7854244BF98F164ACD143D841AD2356
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690029   (124158) от 05.01.2024
+
+Necrophthysis - Diminution of Flesh (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - To Become Pale (03:17)
+02 - Diminution of Flesh (05:16)
+03 - Procurement (05:19)
+04 - Denervation (04:24)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA80C0B10D664DEB855803F913A8045149BE6BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689861   (124159) от 05.01.2024
+
+Krabathor - Only Our Death Is Welcome (1992) [APE|Lossless|image + .cue] <Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Royal Crown
+02. Psychodelic
+03. Eternal
+04. Convict to Contempt(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61BCD8870D39FF9FA81E08060C1DCF56F8034977
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689864   (124160) от 05.01.2024
 
 Krabathor - Cool Mortification (1993) [FLAC|Lossless|image + .cue] <Death, Thrash Metal>
@@ -478,182 +667,6 @@ Visions of Morpheus - Lost Within (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88BA0379AAD5C36D7C5029924C40F8B12A74189C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690097   (124179) от 05.01.2024
-
-Юрий Тынянов | Смерть Вазир-Мухтара (2009) [MP3, Олег Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Николаевич Тынянов (1894–1943) – русский советский писатель, драматург, литературовед и критик.
-В романе изображается последний год жизни великого русского писателя и государственного деятеля, дипломата А.С. Грибоедова и его трагическая гибель. Глубокое изучение историко-литературных материалов, тонкое проникновение в изучаемую эпоху позволили Юрию Тынянову (   Читать дальше...   )Жанр: Русская литература, классика, ЖЗЛ, биография, романИздательство: Вира-МПродолжительность: 18:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B6787FB7991E7A2E5F68A9F3C0BFFB178446A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689837   (124180) от 05.01.2024
-
-Adramelch - Irae Melanox (1988) 2CD Remaster, 2010, Underground Symphony [FLAC|Lossless|image + .cue] <Epic Heavy Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cruel Times
-02. Winter Dusk
-03. Portals (1987 demo)
-04. Adramelch (1987 demo)(   Читать дальше...   )Жанр: Epic Heavy Progressive MetalПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC44D1A334EABBFDAD04A87803204A5BBD82ADBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690086   (124181) от 05.01.2024
-
-Дэвид Кушнер | Потрачено. Беспредельная история GTA (2022) [MP3, Петр Сальников]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grand Theft Auto – одна из самых известных игр в мире, и, пожалуй, лучший претендент на звание самого скандального игрового проекта современности. Обвинения в пропаганде насилия и разбоя, судебные иски, возмущение общественности и громкие разбирательства. Для Rockstar Games, студии, подарившей миру GTА, это рядовой рабочий день.
-«Потрачено» – это история, воссозданная (   Читать дальше...   )Жанр: БизнесИздательство: БОМБОРАПродолжительность: 09:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56773CEE3DC25B6323CCD7FC20049A9D12DBF219
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690064   (124182) от 05.01.2024
-
-Игорь Слуцкий - Царю Царей (2021) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время не ждет
-02. Ностальгия
-03. Вдохновение
-04. Пучина(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F526C3D6DAFBE9CFB5FC799B7154F483D70F50B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689981   (124183) от 05.01.2024
-
-Последнее безумство / Zui hou de feng kuang / Desperation: The Last Frenzy (1987) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полиция пытается поймать сбежавшего из тюрьмы преступника, который едет на поезде в Пекин.Производство: Китай / Xi'an Film StudioЖанр: боевик, криминал, триллерРежиссер: Чжоу Сяовэнь, Ши ЧэнфэнАктеры: Чжэн Цзяньминь, Лю Сяонин, Цзинь Лили, Чжэнь Цзяньхуа, Чжу ЛэйПеревод: Одноголосый профессиональный (к/с "Ленфильм", читает Геннадий Богачев)Язык озвучки: русский, китайскийСубтитры: отсутствуютПродолжительность: 01:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F0C4F43116968859BCD952452FC21C68DFD2C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690087   (124184) от 05.01.2024
-
-Патрик Кинг | Как легко находить друзей (2022) [MP3, Дмитрий Шабров]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Находите новых друзей играючи! Мы научим вас это делать быстро, эффективно и плодотворно. Нетворкинг? Банкеты? Караоке-вечеринки? Нет проблем. Больше никакой утомительной светской болтовни – налаживайте с окружающими тесные контакты! Найти настоящих друзей… непростая задача, не так ли? Но почему так происходит в наш современный век? Слишком много отвлекающих факторов (   Читать дальше...   )Жанр: ПсихологияИздательство: БиблосПродолжительность: 04:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B825E8FF5434CE0A6E1C5D145AA0D1ECF4D72DDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689993   (124185) от 05.01.2024
-
-Журнал | Homebuilding & Renovating №2 (2024) [PDF] [EN]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_124185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежей.Жанр: Строительство, ремонт, дизайнЯзык: АнглийскийИздательство: Ascent Publishing Ltd.Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A6DA198E3AFFFB0B4FEB74E89FA2CB8D765501
 ```
 
 

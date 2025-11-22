@@ -1,3 +1,57 @@
+###  Публикация: 1799917   (66320) от 31.05.2025
+
+Heidi Montag - Heidiwood (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thank Me [00:02:17]
+02. Heidiwood (feat. Chase Icon) [00:02:11]
+03. WET HOT SUMMER [00:02:09]
+04. Prototype [00:02:25](   Читать дальше...   )Жанр: PopПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BEF8AF6C7C49D90DFEA88861FDECBAC79718A63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799927   (66321) от 31.05.2025
+
+(hed) p.e. - New And Improved (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Experimental, Hardcore Hip-Hop, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Breath You Take [00:02:41]
+02. Just Can't Get Enough [00:03:01]
+03. Always On My Mind [00:02:44]
+04. Red Red Wine [00:04:26](   Читать дальше...   )Жанр: Experimental, Hardcore Hip-Hop, MetalcoreПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D8228A5ACD6C37DB65D9E17953F38B3CBE2FCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800062   (66322) от 31.05.2025
 
 Дагестан: танцы, секреты виноделов и лезгинское блюдо с итальянским акцентом | «Поедем, поедим!» (31.05.2024) WEBRip [H.264/720p]
@@ -601,60 +655,6 @@ Tim Gartland - Right Amount of Funky (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38F50EC48417E8653A2D87ED77DB0EA6194C797D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799877   (66346) от 30.05.2025
-
-All Against - Straight Down To Hell (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight Down To Hell (09:05)
-02. Narrow Streets Of Disgrace (03:26)
-03. Nação Valente e Imor(t)al (04:44)
-04. Out Of The Box (03:14)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16B44C2465E27E62B1C6C5A9A5589D865FDEB657
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799934   (66347) от 30.05.2025
-
-Emma Wilson - A Spoonful of Willie Dixon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  SPOONFUL (4:56)
-02.  GOOD TO THE LAST DROP (4:53)
-03.  I CAN'T QUIT YOU BABY (4:41)
-04.  WANG DANG DOODLE (4:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDDA6261FDD5C77254E3F423D1CDD3C6E6DBAF1
 ```
 
 

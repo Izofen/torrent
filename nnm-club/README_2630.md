@@ -1,3 +1,57 @@
+###  Публикация: 1785954   (69128) от 18.03.2025
+
+The Bleeding (U.K.) - Studio Albums (4 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69128.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bleeding - рок-группа из Великобритании (Лондон, Англия). Образована в 2010 году.2013 - Death Eternal (EP)
+2017 - Rites of Absolution
+2019 - Morbid Prophecy
+2023 - MonokratorЖанр: Death/Thrash MetalПродолжительность: 02:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F0AB573A9D22E875D2884DF5AD4A43741A36E1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785854   (69129) от 18.03.2025
+
+Heathen - Bleed the World (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Speed Thrash Metal, Technical Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - This Rotting Sphere (Live) [1:40]
+02 - The Blight (Live) [4:39]
+03 - Empire of the Blind (Live) [5:47]
+04 - Dying Season (Live) [5:44](   Читать дальше...   )Жанр: Speed Thrash Metal, Technical Thrash MetalПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E756CC631A93E64DD281003A4DE7C9F9781351B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785911   (69130) от 18.03.2025
 
 Various - Ronnie James Dio - This Is Your Life (2014) Japanese Edition, Compilation [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
@@ -616,57 +670,6 @@ magnet:?xt=urn:btih:C38CBF89E921E157253F45FCDD14B02FEB5988F3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:098D2ADB999D565C6BEE7A93CBC564ACB8C59ECB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785774   (69154) от 17.03.2025
-
-MotoGP. Этап 02 из 22. Гран-при Аргентины. Гонка (16.03.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69154.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 марта 2025, воскресенье. 21:00 МСК, Этап 2. Автодром Термас-де-Рио Ондо. Гран-при Аргентины. Гонка (24 круга)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1601842C921346B1EEB9158FB27F8C04C7119F09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785766   (69155) от 17.03.2025
-
-VA - Groove Paradise (The Deep-House Collection), Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fonetica - I Need Your Love (Carlos Hdez Remix) [06:50]
-02. Steen Thottrup & Denver Knoesen - Another Day (Another Remix) [05:07]
-03. DJ Enne - Stand Up (Original Mix) [07:12]
-04. Mutehead - Wardenclyffe [02:49](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72EC34F418B7F4E9200AB905B3AC10A1889E19E2
 ```
 
 

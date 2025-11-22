@@ -1,3 +1,183 @@
+###  Публикация: 1736087   (106733) от 11.07.2024
+
+High-Logic FontCreator Professional 15.0.0.2993 Portable by 7997 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106733.jpg" />
+</div>
+
+
+###  Подробнее
+
+FontCreator - Редактор шрифтов FontCreator может создавать свои собственные шрифты, переводить в файл шрифта любой шрифт с бумаги через сканирование, редактировать уже установленные шрифты. Для создания собственного рукописного шрифта можно просто написать на бумаге от руки (если нет планшета) все русские и английские буквы, цифры, специальные знаки, знаки препинания (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22B67B016A1AE79B11EA73E443A8B98989471B14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736044   (106734) от 11.07.2024
+
+4K YouTube to MP3 5.4.3.102 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106734.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 - приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио. Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url". Наслаждайтесь аудио треками в любое время, в любом месте, оффлайн.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB2B0448A1E361CE96BF42DA6512D4EAA23CDC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736077   (106735) от 11.07.2024
+
+Photo Supreme 2024.2.1.6560 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683C81A3C3116775E3A6353439C996F0431CBCB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736248   (106736) от 11.07.2024
+
+Testament - The Legacy (1987) Remastered, 2024, Rhino Atlantic; Nuclear Blast [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over the Wall (4:06)
+02. The Haunting (4:14)
+03. Burnt Offerings (5:07)
+04. Raging Waters (4:31)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1FB0B0F5D63B8CED1A31EAF6B8B6CD98B48D5B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736164   (106737) от 11.07.2024
+
+Faze-O - Slow Funk: The Atlantic Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riding High [00:05:18]
+02. Funky Reputation [00:05:14]
+03. You and I (Belong Together) [00:05:22]
+04. Toejam [00:05:03](   Читать дальше...   )Жанр: SoulПродолжительность: 02:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E06CBC316B56AF932A680891F6246D189FF9957
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736162   (106738) от 11.07.2024
+
+Forbidden Society - Lonely Road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise [00:02:04]
+02. Lonely Road [00:03:27]
+03. Addict [00:03:14]
+04. Wish [00:03:41](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD3F5819AB0987F6256145C2CD4884539D21EAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736167   (106739) от 11.07.2024
+
+Arctic Rise - Voyager III (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Era [00:05:11]
+02. Terra Nova (feat. Break My Fucking Sky) [00:04:42]
+03. The Human Tragedy [00:06:56]
+04. Sky [00:04:23](   Читать дальше...   )Жанр: Post-RockПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3642C81FEB17488EAED6FEF73B4393161A224F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736255   (106740) от 11.07.2024
 
 Jacob Banks - Our Time Together: The Live Album (2024) (Live) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul>
@@ -480,189 +660,6 @@ Troyen - Unfinished Business (2024) [MP3|320 Kbps] <NWOBHM, Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB4F427548219FF34C8139A60C1F1C3424EC3200
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735990   (106759) от 10.07.2024
-
-Когда влюбленные расстаются / When Lovers Part (1910) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простая житейская история о любви и разочаровании, о строгом папаше и о расставании. И немного о войне.Производство: США / Kalem CompanyЖанр: короткометражный, драма, немое киноРежиссер: нет сведенийАктеры: Карлайл Блэкуэлл ст., Элис ДжойсПеревод: немой с интертитрамиСубтитры: немецкие (интертитры), русские отдельным файломПродолжительность: 00:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C619CBFB023AE7636D859118C67310F7DE8CC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735928   (106760) от 10.07.2024
-
-Святитель Игнатий (Брянчанинов) | Вход на вечерю благодати. Из творений святителя Игнатия (Брянчанинова) (2007) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советы мирянам великого подвижника и духовного писателя святителя Игнатия Брянчанинова предназначаются для тех, кто желает совершенствовать себя в духовной жизни.Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC36FE8F67A70A19916560167B1B8960D741557
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735888   (106761) от 10.07.2024
-
-Seth Lee Jones - Tulsa Custom (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 110 (3:53)
-02. All That I Ask (2:53)
-03. Bird of Paradise (3:45)
-04. Good Dog (2:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C953E4975E6478541DB8229AC755338CC6848315
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735878   (106762) от 10.07.2024
-
-Ray Brown, Monty Alexander, Sam Most - A Ray Brown 3 (1982) 2002, Victor Entertainment [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wish You Love [6:02]
-02. I Can't Stop Loving You [4:57]
-03. Jamento [3:09]
-04. Blue Monk [4:41](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770CC80B52F77312BE82FA719BF0213481BEF597
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735883   (106763) от 10.07.2024
-
-Sean Webster - Summer Has Gone (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever Gone Away (4:34)
-02. Won't Lay Down (3:40)
-03. Can't Be Alone (4:38)
-04. Lost And Alone (4:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC71F2EA2C67F85E630CCB86AC86FE688738D4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735891   (106764) от 10.07.2024
-
-The Roses - Out Of The Fear (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raise It Up (3:11)
-02. Groove In (3:32)
-03. Nowhere (3:08)
-04. Girls Out (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11BCF7CF4F289850DA97DA651EE1C2BD5EC0589
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735961   (106765) от 10.07.2024
-
-Nocturnus AD - Unicursal (2024) [FLAC|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. The Ascension Throne Of Osiris
-03. CephaloGod
-04. Mesolithic(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C0A47FCB82605F076AE6FAEBEF089735E57867
 ```
 
 

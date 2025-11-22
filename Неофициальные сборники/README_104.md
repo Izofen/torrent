@@ -1,3 +1,57 @@
+###  Публикация: 1590512   (188650) от 14.11.2022
+
+VA - Super Mega Hits (2022) [MP3|320 Kbps] <Electropop, Dancehall, Synth-pop, Afrobeats>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lizzo - 2 Be Loved (Am I Ready)
+02. Ed Sheeran - 2step (feat. Lil Baby)
+03. Smyles - Running up That Hill (A Deal with God)
+04. Charlie Puth - Left and Right(   Читать дальше...   )Жанр: Electropop, Dancehall, Synth-pop, AfrobeatsПродолжительность: 02:51:03 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36B3A2F5B93589BCB160B42EC198C534FBED7A23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590395   (188745) от 14.11.2022
+
+Imazee - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Away
+02. You Tell Me
+03. Me and You
+04. Only You(   Читать дальше...   )Жанр: Instrumental, ElectronicПродолжительность: 02:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:675E70D565B6EAB2DAB9DC110D785E8CA136CC51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590508   (188754) от 14.11.2022
 
 VA - New Pop Hits (2022) [MP3|320 Kbps] <Synthpop, Disco, Dance, Hip Hop>
@@ -160,6 +214,33 @@ magnet:?xt=urn:btih:AA29E80026A0FE642E7D56DC55D2B80931FEE7EF
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589431   (189044) от 13.11.2022
+
+VA - Music News vol.227 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_189044.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brianna - Don't Love Me (03:00)
+ 002. 84 feat. Volodya XXL - Ballantines (02:20)
+ 003. Achtabahn feat. Kati K - Traum (02:25)
+ 004. #PavLova - Без Тебя Меня Чуть-Чуть (01:55)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE910FEABF1D67473826E0438DC5A444BE2D0628
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590182   (189100) от 13.11.2022
 
 VA - В машине с музыкой Vol.317 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -209,6 +290,59 @@ VA - Capital FM (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50E8BB491A9D8B62C54CAA7AE46B571C78A3D264
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589203   (189329) от 12.11.2022
+
+VA - Sound Of Rain & Crackling Woodfire (2022) [MP3|320 Kbps] <Relax, Meditate>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_189329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Bonfire & Crackling Fire Sounds
+02. Crackling Woodfire Sound
+03. Sound of RainЖанр: Relax, MeditateПродолжительность: 05:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E9A05D83A6D40DCCA082D043C02C3A3B2E227A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446167   (189563) от 11.11.2022
+
+VA - Workout Motivation, Trance Edition (2019-2021) Mixed by Sergey Sychev [MP3|320 Kbps] <Trance ,Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_189563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия миксов1. Ronski Speed & Jennifer Rene - Into the Sky
+2. RAM & Talla 2XLC - Shine (feat. Natalie Gioia)
+3. Alexander Popov & Attil
+4. Roman Messer & Twin View With Christian Burns - Dancing In The Dark (Alex M.O.R.)(   Читать дальше...   )Жанр: Trance ,Vocal TranceПродолжительность: 17:10:35 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB707D8BF8E1540F1B96251072DC768C33A9C94A
 ```
 
 
@@ -268,6 +402,60 @@ magnet:?xt=urn:btih:076C50E562EF69751188518A9737D1A8556DC6BC
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589201   (189668) от 11.11.2022
+
+VA - Compilation Part 10 (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_189668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elise Legrow - Feel Alright
+02. Trixie Whitley - Breathe You in My Dreams
+03. Ingrid Kup - Song of Hope
+04. Elise Legrow - Drinking in the Day(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7DE10639C7DACCF5185E1582A57E302339CF05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589426   (189686) от 11.11.2022
+
+Besso - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_189686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mia
+02. First Fusion
+03. The Past
+04. Harsha(   Читать дальше...   )Жанр: Instrumental, ElectronicПродолжительность: 01:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1631AF8B9CD991086B1BF1A81D72AA324D86500F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659440   (190049) от 11.09.2023
 
 Melody Gardot - This is Melody Gardot (2023) [MP3|320 Kbps] <Jazz, Chillout, Female Vocal>
@@ -290,6 +478,33 @@ Melody Gardot - This is Melody Gardot (2023) [MP3|320 Kbps] <Jazz, Chillout, Fem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D62EA0AAE9EAC54AF7DAD5266A1B65B81FF2CDCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589411   (190149) от 09.11.2022
+
+VA - Deep House, Baby 5 (2022) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_190149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Durand & Ellie Lawson - Wide Awake (RoelBeat Remix) (3:38)
+02. Costa Mee - Remembering Your Touch (Housenick Remix) (4:16)
+03. Katie Melua - Wonderful Life (Scanna Remix) (2:49)
+04. NekliFF, Mary S.K. - Parallel Life (Original Mix) (4:34)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 06:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B72ABB514BD57519779215AD1F4B3D8BD2A8362
 ```
 
 
@@ -477,222 +692,6 @@ VA - Future Nu Disco Classics Vol. 12 (2022) CD, Compilation [MP3|320 Kbps] <Nu 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E9F51C2A326CF26F8868E34E8CB8D9A7C486EFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658342   (191093) от 08.09.2023
-
-VA - The Best Songs of All Time - Greatest Hits (2023) [MP3|320 Kbps] <Dance, Pop, R&B, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191093.jpg" />
-</div>
-
-
-###  Подробнее
-
-   01. Ava Max - Sweet but Psycho
-   02. Linkin Park - Numb
-   03. GAYLE - abcdefu (angrier)
-   04. Flo Rida, T-Pain - Low (feat. T-Pain)(   Читать дальше...   )Жанр: Dance, Pop, R&B, RockПродолжительность: 03:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564856260D0B2A06116D5017C7F09BFD775C9AFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658642   (191116) от 08.09.2023
-
-VA - Music News vol.296 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191116.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ALBA - Целое (02:09)
- 002. Achilles feat. MC Stretch - Set You Free (VIP Mix) (03:01)
- 003. Adelina - Я Иду (02:33)
- 004. AIDAI - Без Тебя (03:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:07:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B2245D6AAB9F04F9F29F9A9A9B133181D99301
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658572   (191227) от 08.09.2023
-
-VA - Music News vol.295 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191227.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Icona Pop - Loving You Ain't Easy (02:35)
- 002. Alan Walker feat. Sophie Stray & Zena Emad - Land Of The Heroes (Arabic Version) (02:53)
- 003. Alexander Popov feat. Chester Young & Whiteout - Overtaking (VIP Mix) (02:43)
- 004. Alma - Chasing Highs (LIZOT Remix) (02:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0C235513C3D4669BD94A0B03F4999E14E2AA39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658128   (191248) от 08.09.2023
-
-Malaya Blue - Compilation (2023) [MP3|320 Kbps] <Soul, Soft Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bourbon Street
-02. Your Act Has Worn Thin
-03. Bitter Moon
-04. Oh What a Fool(   Читать дальше...   )Жанр: Soul, Soft RockПродолжительность: 00:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF00475567DA80E5D34BB26E1FDE2341C5ECC08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658232   (191363) от 07.09.2023
-
-VA - Привет Уходящему Лету (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191363.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kalvados feat. Татем & Kasia - А Я Тебе Душу (2:28)
-002. 5УТРА - Давай Сбежим (2:31)
-003. Aquaneon - Нам Не Надо (2:25)
-004. Amirchik - Либо Люби (2:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06142F148BE3AFE11EB05942F933F182E9C54FD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588500   (191508) от 04.11.2022
-
-VA - Шансон Осень 2022 [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edik Salonikski - Бокал Вина (4:11)
-02. Pavlos Bouros - Когда Ты Рядом (4:17)
-03. Sevenrose - Туда, Где Ты (4:08)
-04. Shodi - Бродяга Странник (5:13)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C7C6CB6D60F3FBF0D765E52012AB668BCCCBF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588300   (191558) от 04.11.2022
-
-VA - Oriental Deep 2 (2022) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthony Keyrouz - Akhedni Maak (2:35)
-02. Eljoee - Bent Sultan (3:57)
-03. Otnicka - Babel (3:22)
-04. Anthony Keyrouz - Mohicans - Radio Edit (3:40)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5939788D3E0DA6C95F28413E45E49B9BF3607C40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657646   (191790) от 06.09.2023
-
-VA - Compilation  Assorted rock, blues rock part  32 (2023) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_191790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddy Wilson's Blues Band - I'd Rather Go Blind
-02. Cort Duggins - Blue and Lonesome Ramblin' Man
-03. Bernie Marsden - Help Me Through the Day
-04. Corey Stevens - Killer Blues(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9C988A7B8D82ED4BCF7E2DCB4093705E24E4E3
 ```
 
 

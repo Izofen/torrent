@@ -1,3 +1,55 @@
+###  Публикация: 1776430   (71260) от 01.02.2025
+
+МузЛофт / МузLoft. Антон и Виктория Макарские (2025) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антон и Виктория Макарские. Всё о мюзиклах и семье.
+Пожалуй, самая музыкальная, самая поющая и самая образцовая семья посетила Музлофт! Главное сделала этот концерт на 200%! Просто включите и наслаждайтесь!Производство: Россия | Y-GenerationУчастники: Антон и Виктория МакарскиеПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10EEFA320D051A71CC8BF38CA9C3CA212DD4B9B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776500   (71261) от 01.02.2025
+
+Michael Medrano - The Penthouse (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dance, Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martini (Shots) [00:02:25]
+02. The Penthouse [00:02:26]
+03. Tom Hardy [00:02:18]
+04. Instant Classic [00:02:22](   Читать дальше...   )Жанр: Disco, Dance, Electronic, PopПродолжительность: 00:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9F1139FD17358E13BEAA2FE79BBB8A10CF98E5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776421   (71262) от 01.02.2025
 
 Deep Forest - Live Machine (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambient, Electronic, New Age, Chillout>
@@ -589,57 +641,6 @@ CoolUtils Total Image Converter преобразует изображения в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EC556C7AA29072AB343A621BBE9C45ED7E7FC63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776482   (71286) от 01.02.2025
-
-Giorgio Moroder - Club Remixes Selection, Vol. 7 (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco, House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E=Mc2 (Kniagna Radio Edit) [00:03:52]
-02. Our Love (Defex Radio Edit) [00:03:27]
-03. I Wanna Rock You (Denis Naidanow Radio Edit) (Radio Edit) [00:02:23]
-04. What a Feeling (Hackatone Radio Edit) [00:02:51](   Читать дальше...   )Жанр: Electronic, Disco, HouseПродолжительность: 01:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08687989CA320A64AD5E50D211F893EA6F7D22A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776450   (71287) от 01.02.2025
-
-Saleblazers (2023) [Ru/Multi] (0.14.9.3) Repack Pioneer [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Saleblazers предлагает насладиться увлекательным опытом выживания в мультиплеерном экшене, в котором тебе предстоит создать магазин и выжить в опасном мире, наполненном различными опасностями. На этом опасном острове тебе придется строить уютные кафе или же огромные торговые центры в компании с другими игроками. Весь мир игры является реактивным песочницей, где каждый (   Читать дальше...   )Тип издания: RepackРазработчик: AIRSTRAFE INTERACTIVEЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0546E4FFCDB576F9C4B1A000840BA6DA3526ADC
 ```
 
 

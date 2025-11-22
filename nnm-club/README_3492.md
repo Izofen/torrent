@@ -1,3 +1,185 @@
+###  Публикация: 1719535   (110477) от 01.05.2024
+
+The Sonic Tapestry - Into the Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurora Awakens [00:02:21]
+02. New Beginning [00:11:19]
+03. System Failure [00:06:05]
+04. Edge of the Forest [00:04:11](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81BEB8A4360B705B7A22F697AB1DF6CC229A2310
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719852   (110478) от 01.05.2024
+
+Bobby Watson & Horizon - Horizon Reassembled (2004) Palmetto Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lemoncello [7:13]
+02. Pere [7:51]
+03. The Love We Had Yesterday [5:53]
+04. Ginger Bread Boy [5:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53AE5CD30C5F3062EC4611EB0D8A4F42083E0BD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719999   (110479) от 01.05.2024
+
+Одиннадцатый час / The Eleventh Hour (1914) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110479.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Одиннадцатый час" это такая метафора в разговорной речи американцев. Означает "в самый последний момент". В этом фильме мы видим драматическую историю - главного героя обвиняют в преступлении, которое он не совершал, осуждают и приговаривают к смерти. Казнь невиновного вот-вот свершится... Успеет ли его невеста спасти своего любимого?
+В копии (   Читать дальше...   )Производство: США, Bison Motion PicturesЖанр: короткометражный, драма, немое киноРежиссер: Генри МакРэйАктеры: Уильям Клиффорд, Филлис Гордон, У.К. Уолтерс, Шерман Бейнбридж, Кларенс Бертон, Вэл Пол, Луле Уоррентон, Кларенс ХоджПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A091BFD76046345C6BC25BA5087A01C9793EB5ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719890   (110480) от 01.05.2024
+
+Niels van Gogh - Miami (2023) [FLAC|Lossless|tracks] <EDM, Club House, Dance-Pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niels van Gogh – Miami (2:27)
+02. Niels van Gogh – Miami (extended mix) (3:32)Жанр: EDM, Club House, Dance-PopПродолжительность: 00:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1961573AA870C2D5969CE922688C445A6A47F06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719948   (110481) от 01.05.2024
+
+Судная ночь в Аркадии / Arcadian (2024) WEB-DLRip [H.264] [звук с TS] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля пережила конец света, уничтоживший почти всех людей. Пол и его сыновья Томас и Джозеф - одни из немногих выживших, скрывшихся в отдаленном доме. Однако их жизнь все еще далека от спокойной: с каждым заходом солнца просыпаются свирепые и жестокие существа, которые уничтожают все живое на своем пути. Но однажды им придется выйти во тьму.Производство: Канада, США, Ирландия / Aperture Media Partners, Highland Film GroupЖанр: ужасы, боевик, триллерРежиссер: Бенжамин БрюэрАктеры: Николас Кейдж, Джейден Мартелл, Макс Дженкинс, Сэди Совералл, Саманта Кохлан, Джо Диксон, Джоэль Гильман, Дэйр МакмахонПеревод: Дублированный (Мосфильм-Мастер) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:34Реклама: Плавающий баннер
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719856   (110482) от 01.05.2024
+
+Dave Brubeck - Jazz Impressions Of Japan & Jazz Impressions Of New York (1960, 1964) 2001, Columbia [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tokio Traffic [5:54]
+02. Rising Sun [4:43]
+03. Toki's Theme [2:11]
+04. Fujiyama [5:06](   Читать дальше...   )Жанр: CoolПродолжительность: 01:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3156B56DB19C689EB4AA1D8DFDBAE037A0BE874C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719892   (110483) от 01.05.2024
+
+Moonsorrow - Studio Albums (8 releases) (2001-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk/Pagan/Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moonsorrow — финская фолк/викинг/блэк-метал-группа, основанная в 1995 году.2001 - Suden Uni
+2001 - Voimasta Ja Kunniasta
+2003 - Kivenkantaja
+2005 - VerisakeetЖанр: Folk/Pagan/Black MetalПродолжительность: 08:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4943BF7775ED7E8BBE971F7A3D7A92CA996D19FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719880   (110484) от 01.05.2024
 
 Eve To Adam - Locked and Reloaded (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Post Grunge>
@@ -487,188 +669,6 @@ Fruits Basket: Prelude | Корзинка фруктов: Прелюдия [2022
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06C001348607DFD77D026981797346D12D5B7F85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719314   (110503) от 30.04.2024
-
-Sara Landry - Live @ All Night Long, Knockdown Center New York, United States (2024-03-15) [MP3|320 Kbps] <Techno, Hard Dance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Princess Superstar - Perfect (Peligre Edit)
-02. Fabrizio De Santis - Budokai Tenkaichi
-03. Peligre - BRB Crying
-04. Nico Moreno ft. Laren - You Make Me Horny(   Читать дальше...   )Жанр: Techno, Hard DanceПродолжительность: 02:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B086380EDAD5DB7CE51B6440059BD8040081707D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719595   (110504) от 30.04.2024
-
-Оливер Милман | Закат и падение крошечных империй (2024) [MP3, Амир Шакиров]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаете ли вы, что прямо сейчас на земле происходит вымирание насекомых, которое может угрожать всему: от диких птиц в небе до еды на наших тарелках?
-Пережившие пять великих кризисов, мухи, навозные жуки и другие крошечные существа не справляются с давлением, оказываемым на них сельским хозяйством и урбанистикой.
-В этой книге автор приводит недавние свидетельства (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: ЭксмоПродолжительность: 08:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90A33432654287C0CA617C2C3EBFCEA05F4DB150
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719681   (110505) от 30.04.2024
-
-Удар / Wandeuki / Punch (2011) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на бестселлере "Ван дек" Ким Ре рен (2008)... То Ван дэку не позавидуешь. Мать ушла, когда он был совсем маленьким, отец - инвалид, в школе - худшие оценки в классе. Перспектив никаких, разве что драться умеет. Поганец - как поговаривает его учитель. Но когда парень вдруг узнаёт, что мать не забыла его и приехала увидеться, жизнь Ван-дэка (   Читать дальше...   )Производство: Южная Корея / Another Pictures, CJ Entertainment, Ubu FilmЖанр: драма, спортРежиссер: Хан ЛиАктеры: А Ин Ю, Юн Сок Ким, Джасмин Б. Ли, Хё Чжу Пак, Бёль Кан, Киль Кан Ан, Сан Хо Ким (I), Су Ён Пак (I), Ён Чжэ Ким (II), Судип Банерджи, Ын Сон Хан, Соль Гу Ли, Чжэ Гу Ли, Ю Бин СонПеревод: любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские (Récitant), английскиеПродолжительность: 01:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9829D2458029D8FC7FEFA0B0E45C08A26FFF712C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719624   (110506) от 30.04.2024
-
-Instrumental Wedding Music Zone, Jazz Erotic Lounge Collective - Wedding Night Erotic Jazz Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Caresses (3:31)
-02. Silken Serenade (4:01)
-03. Lustrous Embrace (4:21)
-04. Sensual Nocturne (4:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD88DA7B84E1D3491784D3B3981876C887BB636D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719716   (110507) от 30.04.2024
-
-VA - Ethernal Motion Downtempo: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dellasollounge - Odyssey (5:52)
-02. Matt Sour - One Thought (Binaural) (4:13)
-03. Incognita Alma - Rendez Vous (5:52)
-04. Dj Shan - Ethernal Motion (Original Mix) (3:22)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A45FC6F22816622DCEC97DFC61576D6925D480F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719651   (110508) от 30.04.2024
-
-Grateful Dead - From the Mars Hotel: The Angel's Share (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Scarlet Begonias (Takes 1 and 2) (00:04:46)
-02 - Scarlet Begonias (Alternate Mix) (00:04:27)
-03 - China Doll (Acoustic Mix) (00:04:25)
-04 - Money Money (Alternate Version) (00:04:23)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B6926EC5790B09824132C49961F8E2CAF6CB28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719701   (110509) от 30.04.2024
-
-Удар / Wandeuki / Punch (2011) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на бестселлере "Ван дек" Ким Ре рен (2008)... То Ван дэку не позавидуешь. Мать ушла, когда он был совсем маленьким, отец - инвалид, в школе - худшие оценки в классе. Перспектив никаких, разве что драться умеет. Поганец - как поговаривает его учитель. Но когда парень вдруг узнаёт, что мать не забыла его и приехала увидеться, жизнь Ван-дэка (   Читать дальше...   )Производство: Южная Корея / Another Pictures, CJ Entertainment, Ubu FilmЖанр: драма, спортРежиссер: Хан ЛиАктеры: А Ин Ю, Юн Сок Ким, Джасмин Б. Ли, Хё Чжу Пак, Бёль Кан, Киль Кан Ан, Сан Хо Ким (I), Су Ён Пак (I), Ён Чжэ Ким (II), Судип Банерджи, Ын Сон Хан, Соль Гу Ли, Чжэ Гу Ли, Ю Бин СонПеревод: любительский одноголосыйЯзык озвучки: русский, корейскийСубтитры: русские (Récitant), английскиеПродолжительность: 01:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159E0E3C8AA683D8BAAD83F68187714F960D0B5B
 ```
 
 

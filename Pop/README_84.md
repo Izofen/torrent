@@ -1,3 +1,192 @@
+###  Публикация: 1587803   (192022) от 02.11.2022
+
+VA - NOW That's What I Call Music! 113 (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elton John, Britney Spears - Hold Me Closer
+02. Calvin Harris, Justin Timberlake, Halsey, Pharrell Williams - Stay With Me
+03. Joel Corry, Becky Hill - HISTORY
+04. Luude, Mattafix - Big City Life(   Читать дальше...   )Жанр: Pop, Rock, Dance |Продолжительность: 01:17:56 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:093F345EA1F6729C6345218EB4FA17F01C78052E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588008   (192125) от 02.11.2022
+
+VA - Keep It Disco Vol. 05 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.P.V. - Boogying (Original Mix)
+02. Vinny Terranova - I'm The Same Boy (Original Mix)
+03. DJ Patisso - Hold On (Original Mix)
+04. HP Vince - Funky Africa (Original Mix)(   Читать дальше...   )Жанр: Nu Disco, Funky, Soulful, DiscoПродолжительность: 02:05:27 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97D7FFC94C56C4FA5A55AE32340B524AD9069D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657609   (192247) от 05.09.2023
+
+Debbie Gibson - Body Mind Soul (1993) Deluxe Edition, 2023, Warner Music Group - X5 Music Group [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love or Money [00:04:06]
+02. Do You Have It in Your Heart? [00:04:45]
+03. Free Me [00:04:27]
+04. Shock Your Mama [00:04:07](   Читать дальше...   )Жанр: PopПродолжительность: 02:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F3C429014CC3A202F78FE14F521B19ACCF1196
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587669   (192307) от 01.11.2022
+
+VA - Sex Music (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snoop Dogg - I Wanna Fuck You (2:58)
+02. Tory Lanez - Say It (3:57)
+03. Julia Michaels - Heaven (3:11)
+04. Jeremih - Birthday Sex (3:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91821DE65E820D90B2223392DA745ABD760B7618
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587723   (192312) от 01.11.2022
+
+VA - Generation Rave Vol. 4 - 90s Dance Classics Only (2022) 2CD, Compilation [MP3|320 Kbps] <Euro-House, Italodance, Euro-NRG, Progressive>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suspicious - Lovewaves (Marusha Remix)
+02. Armin van Buuren - Communication (Radio Edit)
+03. Tillmann Uhrmacher - On The Run (Ocean To Shore Club Extended)
+04. Jens Lissat - The Future(   Читать дальше...   )Жанр: Euro-House, Italodance, Euro-NRG, ProgressiveПродолжительность: 03:14:53 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B25417CA473305221677D8A3F03D6BDD3EF1561
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587716   (192326) от 01.11.2022
+
+VA - Generation Rave - 90s Dance Classics Only (2020) CD, Compilation [MP3|320 Kbps] <Euro-House, Italodance, Euro-NRG, Progressive>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delerium feat. Sarah McLachlan - Silence (Tiesto's In Search Of Sunrise Radio Edit)
+02. Rank 1 - Airwave (Original Vocal Edit)
+03. Mauro Picotto - Komodo (Radio)
+04. Dune - Hardcore Vibes (Video Mix)(   Читать дальше...   )Жанр: Euro-House, Italodance, Euro-NRG, ProgressiveПродолжительность: 02:40:25 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DAFFACE92E3815D5D2F1A284BBF76CE8D0A0A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587720   (192333) от 01.11.2022
+
+VA - Generation Rave Vol. 2 - 90s Dance Classics Only (2020) CD, Compilation [MP3|320 Kbps] <Euro-House, Italodance, Euro-NRG, Progressive>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gigi D'Agostino - L'amour Toujour (Original Mix)
+02. Robin S. - Show Me Love (StoneBridge Radio Edit)
+03. Fragma - Toca Me (Radio Cut)
+04. Mauro Picotto - Iguana (On Air Mix)(   Читать дальше...   )Жанр: Euro-House, Italodance, Euro-NRG, ProgressiveПродолжительность: 02:56:55 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B990DB4438F5156C797DABF33900C13A4A681830
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587812   (192375) от 01.11.2022
 
 VA - Covermania - Dance Hits (2022) CD, Compilation [MP3|320 Kbps] <Electropop, Dance, Club, Future House>
@@ -506,195 +695,6 @@ magnet:?xt=urn:btih:CED78C8D34012DF635AFE564676FB16EDCB23965
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE98CEB5E0FEB01DE0A3A65ABD2CB341079C12EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 270663   (195167) от 27.07.2023
-
-Uma2rmaH - 1825 The Best (2010) [FLAC|Lossless] <Pop-Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прасковья
-02. Ночной дозор
-03. Ума Турман
-04. Тайд(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02CFFD628103BDB0F326A446912ADF8355C864A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 276590   (195206) от 26.07.2023
-
-Красные Маки - Доктор Шлягер Представляет (1996) [FLAC|Lossless]<Поп, Диско>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Если не расстанемся
-02. Анютины глазки
-03. Из-за тебя
-04. Чужая ты(   Читать дальше...   )Жанр: Поп, ДискоПродолжительность: 01:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B280EB4D50F944F6AFA8BF02186D0EF07BCC38D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 213790   (195222) от 26.07.2023
-
-Кар-Мэн - Нитро (2008) [APE|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_195222.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Марсианка
-2.Детка
-3.Дискотека
-4.Точка-Тире(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F692AE19257562B59E1068BC922FA224CB0EB3E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641592   (196699) от 23.06.2023
-
-VA - Песни Виктора Резникова (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196699.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дмитрий Маликов - Бумажный змей
-2. Лариса Долина/Алексей Чумаков - Дельтаплан
-3. ХАБИБ - Домовой
-4. Александр Розенбаум - Дворик(   Читать дальше...   )Жанр: PopПродолжительность: 01:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB03EA920E96BC36779878466554CED422DEFC36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641590   (196719) от 23.06.2023
-
-Братья Грим - Лететь высоко (2023) [MP3|320 Kbps] <Pop Rock>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_196719.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лететь высоко
-2. Солнце моё
-3. Лелею
-4. Крылья рукава(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B1444F57F6C96971D561218FD8CEECA455397A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638201   (197356) от 07.06.2023
-
-Руки Вверх - Дышите Равномерно (1997) 2 x CD, Reissue, Remastered, 2023, Maschina Records, Deluxe Expanded Edition [FLAC|Lossless|image + .cue] <Russian Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197356.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Дышите Равномерно:
-01. Доброе Утро
-02. Малыш (Complete Version)
-03. Студент(   Читать дальше...   )Жанр: Russian PopПродолжительность: 01:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF205567EB5BEACC6336E227577D950C478F5F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638141   (197435) от 07.06.2023
-
-VA - 70s Pop Mega Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_197435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bee Gees - Stayin Alive                                 [04:45]
-   02. Jerry Williams - Cotton Jenny                           [03:30]
-   03. Rupert Holmes - Escape (The Pina Colada Song)           [04:37]
-   04. Rod Stewart - Maggie May                                [05:44](   Читать дальше...   )Жанр: PopПродолжительность: 01:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E973D11D8E8CE257D6456E6725ED6FCDC731D47A
 ```
 
 

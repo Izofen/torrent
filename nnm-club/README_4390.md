@@ -1,734 +1,701 @@
-###  Публикация: 592679   (135648) от 22.12.2012
+###  Публикация: 1679714   (135351) от 26.11.2023
 
-Роктябрята - The Best (2012) [MP3|256 кб/с]<Rock, Blues Rock>
+Wet Cactus - Magma Tres (2023) [FLAC|Lossless|WEB-DL|tracks] <Desert Rock, Heavy Rock, Stoner>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135648.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135351.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Первое января
- 02. Мой день
- 03. Огни желания
- 04. Восход любви
- 05. Мой блюз
- 06. Ничего не изменить
- 07. Миг
- 08. Железнодорожный блюз
- 09. Портвейн
- 10. Песня о друге(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:47:29
+01. Barren Landscape [00:03:21]
+02. Profound Dream [00:04:17]
+03. Mirage [00:06:14]
+04. My Gaze Is Fixed Ahead [00:05:04](   Читать дальше...   )Жанр: Desert-Rock, Heavy-Rock, StonerПродолжительность: 00:39:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F6E159EC50AF407B70DD8DF8DB4120D29367F7F
+magnet:?xt=urn:btih:EDE417D7DB11FAAC1056D621346DEAC2E9D14618
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592798   (135649) от 22.12.2012
+###  Публикация: 1679551   (135353) от 26.11.2023
 
-[картинки] Catwoman
+Silent Angel - Unyielding, Unrelenting (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Unyielding Spirit
+02 – Against The Tides
+03 – A Destiny In Shadows
+04 – Through Selene’s Eyes(   Читать дальше...   )Жанр: Power Metal, Melodic RockПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0097EFAFE8A073ADA1EB1A0A28173876D8123D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593465   (135354) от 23.12.2012
+
+Берег (2 серии) (1983) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советский писатель Вадим Никитин приезжает в Гамбург, где недавно был издан его роман. В памяти Никитина воскресает Германия последних отчаянных боев за победу в 1945 году, когда был короткий отдых в немецком городке и была Эмма, молодая немка, в которую он был влюблен. Спустя сорок лет, они встречаются вновь.Производство: СССР, Германия (ФРГ)Жанр: МелодрамаРежиссер: Александр Алов, Владимир НаумовАктеры: Борис Щербаков, Наталья Белохвостикова, Бернхард Викки, Владимир Гостюхин, Валерий Сторожик, Михаил Голубович, Владимир Заманский, Андрей Гусев, Армен Джигарханян, Корнелия Бойе, Бруно Дитрих, Наталья Наумова, Альбина Матвеева...Продолжительность: 1 серия 01:06:07, 2 серия 01:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D93B6F3638ABA8C3A726B0D0188D42C762FF57D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679747   (135355) от 26.11.2023
+
+Борис Житков | Что я видел (2011) [MP3, Татьяна Телегина]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современный российский патриот ни дня не может прожить без мысли о СССР. Уже час за часом прослежены и перелицованы биографии почти всех советских политиков, не выходят из моды советские фильмы, мультфильмы, стихи, песни и их исполнители...
+Дети в школах с открытым ртом слушают о временах, когда квартиры просто давали, а за здоровье и науку не драли три шкуры. И (   Читать дальше...   )Жанр: Русская литература для детей, классика, рассказИздательство: МедиаКнигаПродолжительность: 08:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D77EBAFD0760B542761F86CC01ECD3695824A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679688   (135357) от 26.11.2023
+
+Pat Martino - Consciousness (1974) 1999, Sony Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impressions [4:38]
+02. Consciousness [11:56]
+03. Passata on Guitar [2:52]
+04. Along Came Betty [5:24](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369AE7301F921E6A0A277A5E764B68003B48B713
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593274   (135358) от 23.12.2012
+
+Deborah Coleman - 7 Альбомов (1997-2007) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1997 - I Can't Lose
+1998 - Where Blue Begins
+2000 - Soft Place To Fall
+2001 - Livin On Love
+2002 - Soul Be It!
+2004 - What About Love?
+2007 - Stop The GameЖанр: Blues |Продолжительность: 05:25:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679790   (135359) от 26.11.2023
+
+Борис Житков | Семь огней (2012) [MP3, Вячеслав Герасимов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борис Степанович Житков (1882–1938), известный русский советский писатель-путешественник, автор приключенческих рассказов и путевых заметок.
+Книги Бориса Житкова отличаются высокой познавательной ценностью, захватывающим сюжетом, чудесным юмором и романтической верой в торжество добра. В сборник вошли рассказы, повести, пьесы и очерки для детей старшего школьного (   Читать дальше...   )Жанр: Русская литература для детей, классика, повесть, очерк, рассказИздательство: Нигде не купишьПродолжительность: 11:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175E7E187AABF9BF5CD44DB42074259FD969164C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679670   (135361) от 26.11.2023
+
+Roadkill - Insanity Inside (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Compromise (03:47)
+02. Die in Peace (03:42)
+03. FTATD (03:36)
+04. Chainsaw Love (05:31)(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DEA6F24673496F97A9999FFB99D4283266D122
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592387   (135362) от 23.12.2012
+
+Дума о Ковпаке. Буран (1975) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о рейде партизанского соединения С.А.Ковпака во вражеский тыл в 1941-1942 годах, боях на Сумщине при форсировании Днепра и Припяти, знаменитой операции под Саранами, вошедшей в историю второй мировой войны под названием "Саранский крест".Жанр: Военный, ДрамаРежиссер: Тимофей ЛевчукАктеры: Константин Степанков, Валентин Белохвостик, Михаил Голубович, Юрий Саранцев, Виктор Пивненко, Зураб Капианидзе, Иван Гаврилюк, Аркадий Трощановский, Николай Мерзликин, Юрий Демич, Михаил Кокшенов, Наталья Гвоздикова, Валерия Заклунная, Александр ГайПродолжительность: 01:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:801DC52FDF93189B09D75E3917704F4907E1A000
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679500   (135363) от 26.11.2023
+
+Just Before Dawn - Tides of Blood (2018) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.When The Iron Shield Falls
+02.Day Of Days
+03.Market Garden
+04.Formations At The Rising Dawn(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBD16DC7DF6CFCF7C5EE75AC2793CC93CD8C745
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679711   (135365) от 26.11.2023
+
+Журнал | Сваты №22 (256) (ноябрь 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135365.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сват плохого не посоветует» — говорят в народе. В каждом номере журнала «Сваты» вы найдете: проверенные советы от читателей, экспертов, юристов, медиков, психологов, кулинарные рецепты, секреты здоровья, помощь в воспитании детей разного возраста, песни, байки, анекдоты. И все это в ярком, красочном оформлении.Жанр: Популярный журналИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095C160CE02D0BF10663BD888BDD92A51012BAD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679760   (135367) от 26.11.2023
+
+Борис Житков | Рассказы о животных (2012) [MP3, Леонид Бородин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борис Степанович Житков (1882–1938), известный русский советский писатель-путешественник, автор приключенческих рассказов и путевых заметок.
+Книги Бориса Житкова отличаются высокой познавательной ценностью, захватывающим сюжетом, чудесным юмором и романтической верой в торжество добра.
+В сборник вошли рассказы о животных Бориса Житкова. Яркие, увлекательные - они (   Читать дальше...   )Жанр: Русская литература для детей, классика, рассказИздательство: Нигде не купишьПродолжительность: 03:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E8F1AB188BE0346E28F657FA510BB0B92EA4D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679717   (135369) от 26.11.2023
+
+Журнал | Сваты №21 (255) (ноябрь 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135369.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сват плохого не посоветует» — говорят в народе. В каждом номере журнала «Сваты» вы найдете: проверенные советы от читателей, экспертов, юристов, медиков, психологов, кулинарные рецепты, секреты здоровья, помощь в воспитании детей разного возраста, песни, байки, анекдоты. И все это в ярком, красочном оформлении.Жанр: Популярный журналИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADC770C47D50E9C0F8878186279D5B1B32ADB60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592231   (135370) от 23.12.2012
+
+Plies - Hunna (2012) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-hopПродолжительность: 00:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F3107DC72C81785EC63F27D00C336F9D12268D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679846   (135371) от 26.11.2023
+
+iCompta 6.1.9 [Multi]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135649.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Я женщина-Кошка, я злая немножко.
-Нежно игрива... опасно красива...
-Красивая шёрстка,пушистенький хвостик!
-Я лапками трогаю верности мостик.
-Тебя не обижу, не дам нам пропасть!
-Я Женщина - Кошка! Я Женщина - Страсть!
+iCompta - простое, но мощное приложение для управления персональным финансами. Программа создана так, чтобы быть максимально простой в использовании, поддерживая множество функций, которые помогут вам отслеживать ваши деньги и начать экономить. Следите за своими доходами и расходами, контролируйте свои счета, оставайтесь в соответствии с вашим бюджетом.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2023Разработчик: © 2006-2022 SAS LyricAppsПоддерживаемая ОС: macOS X 10.13 +Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7602786CB8DAAB9BFEDD475595947358B06FF2E0
+magnet:?xt=urn:btih:8F3D670245E27F469EB3E497A907C7683D6E574B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592374   (135652) от 22.12.2012
+###  Публикация: 591856   (135372) от 23.12.2012
 
-Конец молчания / La fin du silence (2011) DVDRip
+VA - DubStep Pro V.9 (2012) [MP3|320 кб/с]<DubStep>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135652.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Атмосфера тревоги и отстраненности складывается с первых кадров фильма, показывающих чащу ночного леса. Сложные отношения царят в семействе Кляйн, живущей в отдаленной горной местности. Младший сын Жан считается в семье "паршивой овцой". Он, в свою очередь, жесток и озлоблен. Что довело этого юношу до состояния почти животной агрессии? Что случится, когда в его руках окажется винтовка? После исчезновения Жана в горах семья со страхом ждет его возвращения. Уже третий день идут проливные дожди. Способен ли Жан с оружием в руках бросить вызов семье?Жанр: Триллер, ДрамаРежиссер: Ролан ЭдзарАктеры: Франк Фализ, Тьерри Фремон, Майя Моргенштерн, Карло Брандт, Марианн Басле, Алексис МихаликПеревод: Любительский (одноголосый)Продолжительность: 01:16:29
+01. Degrees Of Motion & North Base - Shine On (Dubstep Mix)
+02. Other Echoes feat. Julian Huggins - Free Running
+03. Delerium feat. Michael Logen - Days Turn Into Nights (Seven Lions Remix)
+04. Waverokr - Gravity Switch
+05. Dubba Jonny - Smack It!
+06. Molecule - Ghetto Superstar
+07. DKS - Can't Get Enough (Original Mix)
+08. Hardwell feat. Amba Shepherd - Apollo (3rd Prototype Bootleg)
+09. TS7 - Struggle (DJ Q Remix)
+10. Smooth feat. Tasha Baxter - Nowhere(   Читать дальше...   )Жанр: DubStepПродолжительность: 04:26:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B884A15CE9C26A1644863948164EBD9DB12F1DB
+magnet:?xt=urn:btih:BE01CE8DE485381BFF5BAC1C0EDFCA34F86E334C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592717   (135655) от 22.12.2012
+###  Публикация: 1679792   (135373) от 26.11.2023
 
-Александр Михайлов | Байки с Лубянки [2004] [RTF, FB2]
+PrintLab Studio 3.0.2 [En]
 
->>Художественная литература
->>Боевики, Детективы, Триллеры
+>>Программы для macOS
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135655.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135373.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда-то автор подобной книги мог бы получить лет …надцать, а теперь он получил гонорар и восторг читателей.
+PrintLab Studio - это легкое и простое в использовании приложение для создания векторных иллюстраций для Mac OS X. PrintLab Studio содержит инструменты, необходимые для создания базовых фигур. Быстро создавайте рисунки и легко меняйте стили.Тип издания: macOS SoftwareРелиз состоялся: 08.05.2018Разработчик: © 2021 Bluetail TeamПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B03E3DFE8545F74AFAF8607801CA5200FDFA8C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593020   (135374) от 23.12.2012
+
+Zora Young - 4 Альбома (2000 - 2009) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
 
-Даже во время важных операций чекисты могут стать участниками анекдотических ситуаций. «Байки с Лубянки» – это подлинные истории, похожие порой на анекдоты, случились с автором этой книги или с его коллегами-чекистами. Ведь в жизни трагическое нередко соседствует с комичным.Формат: RTF, FB2
+2000 - Learned My Lesson
+2005 - Tore Up from the Floor Up
+2009 - The French Connection
+2009 - SunnylandЖанр: Blues |Продолжительность: 04:22:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6D44838659F6E0A83BB8BB19D343F8C6CBB9A6D
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592828   (135662) от 22.12.2012
+###  Публикация: 1679723   (135375) от 26.11.2023
 
-Armin van Buuren - A State of Trance 592 (Top 20 of 2012) (2012) [MP3|256 кб/с]<Trance>
+Memorial Day - Embark Hades (1995) [FLAC|Lossless|tracks] <Gothic, Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carnifex
+02. Phobia
+03. Embark Hades
+04. Salve Caput Cruentatum(   Читать дальше...   )Жанр: Gothic, Doom, Death MetalПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009ED584D7CB230E755BF3EED1DB0B392B97A27A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593186   (135379) от 23.12.2012
+
+Особо опасны / Savages (2012) [MP3|320 кб/с]<Soundtrack>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135662.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135379.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gareth Emery featuring Christina Novelli - Concrete Angel (TUNE OF THE YEAR 2012)
- 02. Armin van Buuren featuring Ana Criado - I’ll Listen
- 03. Omnia & IRA - The Fusion
- 04. Gaia - J’ai Envie De Toi
- 05. Andrew Rayel featuring Jano - How Do I Know (Club Mix)
- 06. Armin van Buuren featuring Ana Criado - Suddenly Summer
- 07. Andrew Rayel - Aeon Of Revenge
- 08. Aly & Fila meet Roger Shah featuring Adrina Thorpe - Perfect Love
- 09. W&W - Invasion (Club Mix)
- 10. Andrew Rayel - 550 Senta (Aether Mix)Жанр: TranceПродолжительность: 02:00:07
+01.Neptune's Net
+02.Cartel Theme
+03.Where I'm Going
+04.Romantic Theme
+05.Legalize It
+06.Mandala (feat. Anoushka Shankar)
+07.Hijack In The Desert
+08.Quien Es El Patron
+09.Romance In Durango
+10.Whipping(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:11:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C52A74DFDD57B2D8828774198BD725C760E95BE
+magnet:?xt=urn:btih:8AAA8D6E96789388F4530E0E633F8916789E9567
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592800   (135665) от 22.12.2012
+###  Публикация: 593276   (135384) от 23.12.2012
 
-Кинопленка с кровавой баней / Celluloid Bloodbath: More Prevues from Hell (2012) DVDRip  [EN]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгожданный сиквел к классическому культовому сборнику трейлеров фильмов ужасов "Mad Ron's Prevues from Hell" 1987 года выпуска. Перед нами новая удивительная коллекция трейлеров из более чем 60 фильмов, выходивших в золотые года жанра грайндхаус- малобюджетного коммерческого кино в период с 1960-го по 1980-е годы.
-В сборнике также имеются комментарии режиссеров, актеров, критиков и поклонников данного жанра.Жанр: УжасыРежиссер: Джим Монако, Джеймс Ф. Мюррей младшийАктеры: Джинджер Линн, Мишель Бауэр и Эми ЛиннПеревод: ОтсутствуетПродолжительность: 01:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D2AA1F20CC3803E33927C408DFFF2D66C0188BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592829   (135667) от 22.12.2012
-
-VA - Guitar Con Guitarra Vol.1 (Acoustics Chill Out & Sunset Pearls) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guenter Haas - First Floor Lobby
-02. Jeff Aug - Diving Into the Autumn Deep
-03. Marga Sol - No One Who Loves Me
-04. Anthya - Patience and Love
-05. Guenter Haas - The Pilot's Dance
-06. Weathertunes - Bikini
-07. Jeff Aug - Listen Up, Jazzhole!
-08. Taco-Town - Con Su Permiso
-09. Jeff Aug - 7 Ate the Cat (And Called It a Boogie)
-10. Aimee Sol - Girl in the Gallery(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B1F534DDE1CE93FA5CB4960161D68B9ACBD1421
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592772   (135672) от 22.12.2012
-
-"Крылов" | Книжная серия "Boutique" [2004-2005] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект Boutique: модное чтение при любой погоде!
-Стильные, остроумные и современные книги на любой вкус, кроме плохого.
-В проект входят следующие серии:Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69DE2990C8425BD0791018F41BC496322BBFDB3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592806   (135675) от 22.12.2012
-
-Журнал | Похудей. Спецвыпуск №1 [январь-февраль 2013] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135675.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Похудей" - журнал для женщин , стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D781DF268E378205A0DA6BEFB33C01AD376A8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592801   (135676) от 22.12.2012
-
-Журнал | Рыбачьте с нами №12 [декабрь 2012] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135676.jpg" />
-</div>
-
-
-###  Подробнее
-
-“Рыбачьте с нами” - это журнал об увлечении. Он делается для людей с высокими требованиями к качеству жизни, для которых рыбалка стала синонимом высококлассного отдыха и приятного времяпрепровождения, то есть синонимом слова “удовольствие”. Подтверждением этого тезиса может служить тот факт, что рекламодатели часто прибегают к демонстрации своих товаров и услуг на фоне рыбалки!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6393E624E7AE68A59FA232FD974FE7F5BC058A14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592460   (135677) от 22.12.2012
-
-VA - Progressive House Vol.2 (2012) [MP3|320 кб/с]<Progressive House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moritz Ochsenbauer - Fuck Face (Manuel De La Mare Remix)
-02. Thorsten Graeber - Rumble in the Box
-03. Indepth - Lunar Park (Loquai Remix)
-04. Jean Le Grand - Quotech
-05. Martin Eyerer - A Cherry Blossom (Tigerskin Remix)
-06. Nicoll Beck - Mooves
-07. Johnson - How You Swear
-08. Jonny Calypso - Vampire Nights
-09. Pierce - Butterfly Collector
-10. RPO - Idea (Flow, Zeo Remix)(   Читать дальше...   )Жанр: Progressive House, Club HouseПродолжительность: 03:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39BB26A6E9C1EC26976FAEB5B914053DDA7C138E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592629   (135679) от 22.12.2012
-
-Журнал | Любимая дача. Спецвыпуск №6 [2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135679.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Любимая дача» представляет спецвыпуск «Орхидеи в доме». В номере дана информация об основных родах и видах орхидей; самые интересные факты об орхидеях; основные правила посадки и тонкости деления в домашних условиях; история коллекционирования орхидей и просто полезная информация.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4E051C7E23A661F16DD8C6F78564FD8D4DF9DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593044   (135684) от 22.12.2012
-
-VA - Xmas Night Party (2012) [MP3|320 кб/с]<Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laera - Good White Christmas (Original Mix)
-02. Jose Seron feat. Bori - 4Strings
-03. Turbotronic - Stronger (Extended Mix)
-04. Danny Costta - Como Besa (Original Mix)
-05. Toni G - Dance Again (Ferny Garzia Remix)
-06. Joe Impero & Laera - Jingle Bells (Laera Club Mix)
-07. Hoxygen feat. Linda & Shiva - Somebody to Love (Hoxygen Revision Extended)
-08. Christina Matsa - If You Wanna (Teknova Remix)
-09. Locadisco feat. Dirty Punks - I Want You (Danny Groove Remix)
-10. Turbotronic - Disco Monster (Extended Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC2AA399A3A1C7D7FB9DCD6B68F52E3B3BA0662
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592380   (135688) от 22.12.2012
-
-Seven Daily Sins - Say Yes to Discomfort (2011) [MP3|320 кб/с]<Progressive Death Metal>
+Артур Беркут - Рождественская песня (2012) [MP3|320 кб/с]<Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135688.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Ego, Revisited (4:41)
-2. Aura Breach (6:18)
-3. Sculpturing Void (4:07)
-4. The Glorious Backstab (3:47)
-5. Hell Sweet Home (5:34)
-6. Ghostalgy (3:44)
-7. To Enter and Survive (4:38)
-8. Drown (4:06)Жанр: Progressive Death MetalПродолжительность: 00:36:59
+01 - Рождественская песняЖанр: Heavy MetalПродолжительность: 00:04:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E64DAB769470773AE18ADDCD4A30372B6C78EFF6
+magnet:?xt=urn:btih:8C4A7CE13AF4042CD9E6939C3BF0985F4D6A7685
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592833   (135692) от 22.12.2012
+###  Публикация: 593226   (135386) от 23.12.2012
 
-Журнал | Tatler №1 [январь 2013] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это издание, которое сочетает в себе искусство быстрого реагирования на сиюминутные колебания моды с глубоким журналистским анализом ситуации. Модному городу нужен модный журнал.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74138201B437A7162171FE28A0577435CB410C93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592898   (135696) от 22.12.2012
-
-VA - Bed Time Christmas Stories (Sensualism compiled by DJ MNX) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
+VA - Cafe La Guitarra Vol.1 (La Seleccion Musica Balearica - The Best In Guitar Lounge & Chill Out) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135696.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135386.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pnfa - Ride
-02. Krystian Shek - Black Chocolate
-03. Stargazer - Norito Bar
-04. Pianochocolate & Alfida - Ona Zhdala (Lost Zone Vocal Edit)
-05. Mazelonostra - Memories of Love
-06. Jean Honeymoon - Bang Bang (Experimental Mix)
-07. Lo Tide - All Our Yesterdays
-08. Xemplify - Your Own Gravity
-09. Mathieu Hobiere - High On You
-10. Marga Sol - Midnight Flight(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:12:45
+01. Guenter Haas - Cienfuegos
+02. Jeff Aug - Mountain Pass
+03. Weathertunes - Passion
+04. Marga Sol - Call of an Angel
+05. Taco-Town - El Platano
+06. Anthya - Patience and Love
+07. Fenena Garcia Mijas - Way Beyond
+08. Jeff Aug - Bird Watcher's Dirge
+09. Pnfa - Salt
+10. Xemplify - Sober Eyes(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 00:59:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04D119DF4A6D4297C1CC0BC76267DE81FB985E93
+magnet:?xt=urn:btih:EDFE9BCBFF97553B6883A16B8BA153C110875418
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592500   (135700) от 22.12.2012
+###  Публикация: 593076   (135390) от 23.12.2012
 
-Лёня Мичтатель и Женя Ка Поник - Жили (ЕР) (2012) [MP3|320 кб/с]<Rap>
+VA - Rocks Off - 16 Tracks Of The Best New Music (2012) [FLAC|Lossless]<Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Роисся Вперде !
-2. Жили
-3. Иголки
-4. АлёшкаЖанр: RapПродолжительность: 00:12:29
+01. King Tuff - Bad Thing [02:21]
+02. The Mountain Goats - Harlem Roulette [03:22]
+03. The Jim Jones Revue - Times Around The Sun [03:41]
+04. The Fresh And Only - Dream Girls [02:51]
+05. John Hiatt - It All Comes Back Someday [03:40]
+06. The Cairo Gang - Now You Are One Of Us [03:39]
+07. Two Gallants - Song Of Songs [02:45]
+08. Martin Rossiter - Sing It Loud [02:25]
+09. Ian Hunter & The Rant Band - Saint [03:35]
+10. The Wooden Sky - Child Of The Valley [03:42](   Читать дальше...   )Жанр: RockПродолжительность: 00:57:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA2230E5DEC8D84FD88DAF520A2E4E6392305844
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592799   (135704) от 22.12.2012
+###  Публикация: 593110   (135391) от 23.12.2012
 
-Журнал | Народный доктор №24 [декабрь 2012] [PDF]
+Журнал | Tattoo Collection №54 (UK) [2012] [PDF] [En]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135391.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Tattoo Collection" является идеальным журналом для тех, кто ищет татуировки или просто хочет увидеть самые последние работы лучших международных мастеров. В журнале представлено более 300 татуировок, которые являются лучшими на момент выхода журнала.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5F89338544B860A5518F604109F38931ABDDAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593160   (135392) от 23.12.2012
+
+Газета | Компьютер для начинающих №12 [декабрь 2012] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135704.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Народный доктор» - это народные рецепты и советы читателей, травников, физиотерапевтов по профилактике и лечению многих заболеваний.Формат: PDF
+Компьютер для начинающих рассказывает о самых азах работы с компьютером, различными программами, сетью Интернет. В номере: видео на компьютере; что такое кодеки и для чего они требуются; чем смотреть видео; как выбрать монитор и видеокарту.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:525E0FE2C00E75D53F5F6ECC292416DFAE8DCB80
+magnet:?xt=urn:btih:C2070C374CFAB4CACEC216064D389E099F0BD9EE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592047   (135706) от 22.12.2012
+###  Публикация: 590274   (135397) от 23.12.2012
 
-Alien Autopsy - Paranormal (2011) [MP3|320 кб/с]<Industrial death metal/deathcore>
+Noel Quinlan - 7 albums (1991-2004) [MP3|320 кб/с]<New Age, World, Instrumental>
 
->>Архив торрентов
->>Архив Музыки
+>>Other Styles
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135706.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135397.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[04:18] 01. Abduction
-[03:50] 02. Alien Autopsy
-[03:54] 03. Seek The Core
-[01:51] 04. Hangar 18
-[04:57] 05. An.Un.Na.Ki. (Part I)
-[03:48] 06. Karma
-[02:19] 07. Contact
-[03:57] 08. Abduction (Remix by Stan Alien)Жанр: Industrial death metal/deathcoreПродолжительность: 00:28:59
+(6:50)
+
+(1:30) 01. China Heart
+(4:39) 02. Snowy Mountain
+(6:27) 03. Chongsam
+(4:37) 04. Genghis
+(1:07) 05. Birdman
+(4:45) 06. Sparrows
+(6:01) 07. Mountain Mist
+(5:00) 08. Chungwu Concerto(   Читать дальше...   )Жанр: New Age, World, InstrumentalПродолжительность: 00:54:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B34650FB7BFE601C40A40E26279EBD03AD8EE592
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592879   (135709) от 22.12.2012
-
-Butterfly - Favorite Colors Episode 063: End of Year 2012 (Part. 1) (22.12.2012) [MP3|320 кб/с]<Progressive Trance, Melodic Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lisa Gerrard & Patrick Cassidy -  Sailing to Byzantium (Intro Original Orchestral Mix)
-02. Simon O'Shine -  Lies in Plain Sight (Farhad Mahdavi Remix)
-03. Stonewave -  The Last Time (Original Mix)
-04. Sound Quelle -  Allous (Original Mix)
-05. Stoneface & Terminal -  Scuderia (Original Mix)
-06. Luigi Lusini & Starchaser -  Summer Tale (Dub Mix)
-07. Farid -  Afloat (Original Mix)
-08. Spark7 -  Insania (Original Mix)
-09. Mosahar -  Passion (Original Mix)
-10. Naden -  Cellar Door (Original Mix)(   Читать дальше...   )Жанр: Progressive Trance, Melodic TranceПродолжительность: 00:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86BE16CA246F5FCF078C86B4924D457E94782FBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592856   (135712) от 22.12.2012
-
-Профессия  репортер. Дети джихада (2012.12.22) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135712.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Профессия-репортер" - это цикл телевизионных репортажей на актуальные темы современного мира. Это интересный, острый социальный или экстремальный репортаж. В каждом еженедельном репортаже заложен свой конфликт, актуальность и проблематика. Каждый корреспондент программы - уникален и преподносит свою, индивидуальную точку зрения на ту или иную проблему, событие или явление. Если в Вашем городе, регионе или стране происходят важные события или необычные явления, если это остро и актуально, пишите нам, и мы обязательно приедем к Вам.В выпуске: Ее дочь стала русской шахидкой, а ее русские внуки попали в плен к террористам. Но она не сдалась и сама пришла в бандитское логово. Предательство, отчаяние и любовь — в фильме Дениса Арапова «Дети джихада» из цикла «Профессия — репортер».Жанр: ДокументальныйПродолжительность: ~ 00:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B44AA19913CCA3FD49CCB81AF7BB858E5C2C970
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592189   (135713) от 22.12.2012
-
-Animal Wallpapers (18.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:453733727F270240A62553EF4488423800B96BF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592903   (135719) от 22.12.2012
-
-Freddy Todd - Sick in the City, Alive in the Woods (2012) [MP3|320 kbps]<Dubstep, Glitch Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive in the City (Prelude) (04:31)
-02. Out of All the Sounds (05:28)
-03. Triple Entendre (06:28)
-04. Thriver (06:44)(   Читать дальше...   )Жанр: Dubstep, Glitch HopПродолжительность: 01:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4222B2A149210E9DDA3814AB5D6695B275FAA16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592849   (135721) от 22.12.2012
-
-VA - Keri Gen - True Trance Nation (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epos - Polarized (Magic Island 200th Episode Theme) (Original Mix)
- 02. Armin van Buuren & Orjan Nilsen - Belter (Original Mix)
- 03. Moonbeam feat. Jacob A - Only You (Club Mix)
- 04. 2Players - Signet (Wellenrausch Remix)
- 05. KhoMha - Days Gone Bye
- 06. Aly & Fila vs. Ummet Ozcan - FSOE 200 Anthem (Keri Gen 2 in 1 Mashup)
- 07. Above & Beyond feat. Zoë Johnston - Alchemy (Myon & Shane 54 Redemption Mix)
- 08. Richard Durand vs. The World - Stand Again (Original Mix)
- 09. Alexandre Bergheau - Adduria (Original Mix)
- 10. Armin van Buuren feat. Jan Vayne - Serenity (Andrew Rayel Aether Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8528D18543B5A1A39328A7EFE1096370F21C1863
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592863   (135722) от 22.12.2012
-
-VA - Trancern 2012.5 - Official Compilation (Best of 2012) (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)
- 02. Gareth Emery - Concrete Angel (Original Mix)
- 03. Akira Kayosa & Bevan Miller feat. Carly Kling - Phase 3 (Original Mix)
- 04. Lange vs. Gareth Emery - Another You Another Me (Rafael Frost Remix)
- 05. Solarstone With Giuseppe Ottaviani - Falcons (John O'Callaghan Remix)
- 06. DubVision - All By Myself (David Jones Remix)
- 07. Delerium feat. Michael Logen - Days Turn Into Nights (Solarstone Pure Mix)
- 08. Andrew Rayel - Believe (Original Mix)
- 09. Andy Tau & Sean Truby - Rapture (Suncatcher Remix)
- 10. The Thrillseekers feat. Fisher - Angel (Eximinds Remix)(   Читать дальше...   )Жанр: Trance
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:822E91B81BF0AADE5C8F94111C059B1E77FC1051
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592082   (135727) от 21.12.2012
-
-Windows 8 x64 Pro Reactor v2 [Русский]
-
->>3
->>38
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компактная версия Microsoft Windows 8 Professional x64
-За основу взят оригинальный образНазвание программы: Windows 8 x64 Pro Reactor v2Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24FB0DF03A78B92758921786DB5101FB4B274879
+magnet:?xt=urn:btih:E23401DB621165DD9C05E42106C3812B14CBDF5C
 ```
 
 

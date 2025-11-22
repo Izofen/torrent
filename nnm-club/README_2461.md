@@ -1,3 +1,54 @@
+###  Публикация: 1809428   (64734) от 30.07.2025
+
+Каштанка (1952) DVDRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жил столяр Лука Александрович с сыном Федюшкой и была у них собака по кличке Каштанка. Однажды, когда столяр шёл к заказчикам и по дороге заходил в каждую таверну, собака потерялась. И пришла Каштанка к другому дому, где жил клоун из цирка, который и взял её к себе. Стала она артисткой, выступала в цирке.Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражкаРежиссер: Михаил ЦехановскийАктеры: Алексей Грибов, Юрий Хржановский, Борис Чирков, Владимир Грибков, Владимир ФеоктистовСубтитры: отсутствуютПродолжительность: 00:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C051BACA004A87A3A352B00C7E4AE3D83DDD2D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809366   (64735) от 30.07.2025
+
+VA - A State of Trance - Classics Top 10, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren & Susana - Shivers Feat. Susana (Extended Mix) 07:33
+02. Lange & Skye - Drifting Away Feat. Skye (Extended Mix) 07:58
+03. Vincent De Moor - Fly Away (Extended Vocal Mix) 08:21
+04. Ferry Corsten - Galaxia (Extended Mix) 07:31(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFFE09169545581526E8B1E44F65B57F9A89D05E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809386   (64736) от 30.07.2025
 
 Алекс Рудин | Укротитель миров (Книга 2). Магия и кровь (2023) [MP3, Константин Днепровский]
@@ -591,60 +642,6 @@ Mass Deception - Resurrections (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13080DCC83802A4A93744D16DF38556E95B2E1A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809277   (64760) от 29.07.2025
-
-Paramore - All We Know Is Falling (2005) Deluxe Edition, 2025, Fueled By Ramen [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All We Know [00:03:13]
-02. Pressure [00:03:05]
-03. Emergency [00:04:00]
-04. Brighter [00:03:43](   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F9BD1074CB06498EE1F0AFF9CA1BA2EF14DEA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809269   (64761) от 29.07.2025
-
-Gloombound - Dreaming Delusion (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Atmospheric Doom / Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At the Precipice to Longinquity [00:09:13]
-02. An Eternity of Complete Acquiescence [00:09:38]
-03. Salvation [00:02:03]
-04. Luminary Dissolution [00:07:06](   Читать дальше...   )Жанр: Atmospheric Doom / Death MetalПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0ED1B717D7296FB5B764937EB9AAEA7FB04581F
 ```
 
 

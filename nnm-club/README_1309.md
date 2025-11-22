@@ -1,3 +1,56 @@
+###  Публикация: 1765373   (34387) от 12.12.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 6-й.  Ювентус (Италия) - Манчестер Сити (Англия) (11.12.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 6-й. Ювентус (Италия) - Манчестер Сити (Англия) (11.12.2024)
+СУДЬЯ Тюрпен Клеман (Улинс, Франция)
+СТАДИОН «Альянц (Ювентус) Арена» (Турин)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CABEC2379373BB2EB6CF6258ADF48083BCCF85D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765413   (34388) от 12.12.2024
+
+Lee Abraham - Origin Of The Storm (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Origin Of The Storm (4:21)
+02. The Same Life (8:51)
+03. Chalk Hill (8:09)
+04. Isolation / Disconnection (8:51)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5FC3D78741A43FEE6DF91D4423562DB2F3657C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765289   (34389) от 12.12.2024
 
 Trisha Yearwood - The Song Remembers When (1993) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Rock, Folk, World, & Country>
@@ -616,60 +669,6 @@ MF Ghost | MF Призрак [ТВ-1] [2023, TV, 12 эп.] BDRip 720p 10-bit raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0463CAD76573AC599A0A4C448191F7EE65A1ED5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765438   (34413) от 12.12.2024
-
-Sexual Music Collection, Jazz Music Lovers Club - Provocative Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel (3:55)
-02. Open The Heart (3:00)
-03. Lover and Soul Mate (2:50)
-04. Life del Mar (3:13)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4CECF512F9673E4394681D15704AC985C06685F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764238   (34414) от 12.12.2024
-
-David Antony Clark - Spirit Dance - Freeing the Primal Soul (2013) [MP3|320 Kbps] <New age, Relax, Meditative, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_34414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit Stalking (Spirit Dance remix) [06:26]
-02. The Moa Hunters (Spirit Dance remix) [05:29]
-03. The Rainmakers (Spirit Dance remix) [04:32]
-04. Frog Dancing (Spirit Dance remix) [04:44](   Читать дальше...   )Жанр: New age, Relax, Meditative, WorldПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92909C9343F094E2816B92F859210B62CA1C571
 ```
 
 

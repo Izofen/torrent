@@ -1,3 +1,190 @@
+###  Публикация: 1741648   (105641) от 07.08.2024
+
+Наталья Корнева | Зачем ты вновь меня томишь, воспоминанье (2023) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105641.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Однажды в дверь учителя каллиграфии постучался новый ученик.
+К чему приведёт любовь к искусству красивого письма?" (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6146A842852C26E10BD30890623199CD91D5BEEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741559   (105642) от 07.08.2024
+
+VA - Funky Jazz House Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Belladonna - Inspiration Zone (Belladonna Jazzy Remix) (10:43)
+02. Don Carlos - House of Blues (8:21)
+03. Ltj Xperience - Stronger (6:07)
+04. Clan Greco - Rotation (Eric Kupper Remix) (6:30)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 02:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0B669733FB30E71700B22993CCEE63A206952B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741548   (105643) от 07.08.2024
+
+Soul.Blues - The Easy Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groove 2 (5:17)
+02. Mind to Travel (5:11)
+03. Serves You Right to Suffer (7:03)
+04. Smoke on the Water (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE37862999BFBA3BD9132DEACF598032E2C0CA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741540   (105644) от 07.08.2024
+
+Jay Lang - Jay Lang and the Devil's Due (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mississippi Bound (3:39)
+02. Preachin' Blues (3:56)
+03. My Mama Crazy (3:04)
+04. Leave My House (3:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F7E5B17AC0106DCFFB123C2D583F70106E46D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741530   (105645) от 07.08.2024
+
+Blues Pickers - Night Avenue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time (4:33)
+02. Uptown Blues (4:25)
+03. Down in Mississippi (6:25)
+04. John the Revelator (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4513382FF6E99BF95A32B0CAFAA61AD275A8D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741553   (105646) от 07.08.2024
+
+The Honey Badgers - Shakin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken Boy Blues (4:00)
+02. Shakin' (3:33)
+03. Since You've Been Mine (5:39)
+04. Drinkin' and Thinkin' (2:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF03E1B60F53C765034503837FE6A944EC5DAD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741549   (105647) от 07.08.2024
+
+The Achievers - Easy Going Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy Going Days (3:44)
+02. Free Hugs (4:13)
+03. 400 Rabbits (3:00)
+04. How Long (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51F57FE82260BC5D4C41CF9657EB70DCA7D43C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741531   (105648) от 07.08.2024
 
 Cotton Wing - Nothing but Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -471,190 +658,6 @@ Derdian - пауэр-метал группа из Италии, Милан, об
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1A7345F8E979EFC41132885DE591AC37B3645FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741338   (105667) от 06.08.2024
-
-Category 7 - Category 7 (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Stitches
-02. Land I Used To Love
-03. Apple Of Discord
-04. Exhausted(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9131E0CB15D563FA40A44BE721C5A40A07DC4552
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741155   (105668) от 06.08.2024
-
-Футбол. Чемпионат Португалии 23-24. 33-тур. Эшторил-Спортинг. (2024) WEBRip [H.264]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый матч Спортинга в статусе чемпиона, а Эшторил только что обеспечил, себе следующий сезон.
-Тренеры: Васко Сибра, Рубен Аморим
-Главный арбитр: Жао Гонсалвес
-Комментатор: Дмитрий СачковТелекомпания: СтартЖанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B06D0037065A12B5FE41E101D7C4AF9659F6C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741165   (105669) от 05.08.2024
-
-Эд Макбейн | Любовь или деньги (2024) [PDF]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ про расследование отравления детективами из 87-го полицейского участка. С завязкой, где автор предложил сочинить концовку читателям. Один из которых это и сделал.Жанр: ДетективИздательство: СамиздатФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9742AE242E6C0B7911F4E0893334EF42B1C11F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741139   (105670) от 05.08.2024
-
-Cache Creek - A National Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride Easy (4:52)
-02. Molotov Woman (4:58)
-03. National Dream (4:43)
-04. The Hunter (3:27)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99709CBE74F1C1D470DFFFDE72FB1E901A868821
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741231   (105671) от 05.08.2024
-
-Лаймен Фрэнк Баум | Волшебник из Страны Оз (Книга 12). Железный Дровосек из Страны Оз (2011) [MP3, Геннадий Храпунков и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театральный фонограф.
-Лаймен Фрэнк Баум (1856–1919) – американский журналист, драматург, автор детских рассказов. Хотя Баум написал более семи десятков детских книг, его известность базируется в основном на книге о «Волшебнике...» и других историях о стране Оз, во всех из которых особое значение придается таким американским добродетелям, как практичность, (   Читать дальше...   )Жанр: Зарубежная литература, классика, сказкаПеревод: Ирина ВоскресенскаяИздательство: ООО «АрМир»Продолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:132D2AC93316281150969B4D88AECA4BFF042E5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741132   (105672) от 05.08.2024
-
-Dirt Road Band - Righteous (2024) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Never Got Over) Losing You (3:51)
-02. What's Going Down (3:54)
-03. Don't Count for Nothing (5:29)
-04. Been So Long (5:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3BC3F4AD80680A24BA926D2F82C4FDB4629112
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741269   (105673) от 05.08.2024
-
-Tony Grey - Infinity Glitch (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreaming At A Train Station (2:54)
-02. Infinity Glitch (5:27)
-03. Elastic Man (6:27)
-04. Life As A Child (6:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1BFB9082A460CF914C00D76C5E0AD3B91023713
 ```
 
 

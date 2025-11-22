@@ -1,3 +1,183 @@
+###  Публикация: 1739195   (106161) от 26.07.2024
+
+PrivaZer Pro 4.0.91 Portable by 7997 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106161.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3723DB4F361A663AE686A9F0F9C406F635580D02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739098   (106162) от 26.07.2024
+
+VA - Rock Klassiker (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avenged Sevenfold - Paranoid (2:43)
+02. Ei siis on siis - Highway to Hell (3:14)
+03. Dick Brave & The Backbeats - Walk This Way (2:49)
+04. Halestorm - Get Lucky (3:09)(   Читать дальше...   )Жанр: RockПродолжительность: 03:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:526DBA450BFE6CB1FC059D292F872D459CC1B5F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739064   (106163) от 26.07.2024
+
+VA - Armin van Buuren - A State Of Trance 1183 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kryder ft. Sarah de Warren - Lights Out (Dominiq Vanquish Remix)
+02. Nitrous Oxide & Adam Sobiech - Magique
+03. David Broaders - Interplanetary
+04. Jochem Hamerling - Go Back(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB4F13D45FBA6734AC8A10B00060EBB5E904E76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739096   (106164) от 26.07.2024
+
+VA - Don't Stop the Rock! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exhaust - Star of the Logbook (4:30)
+02. Different Image Project - Behind the Lines (Remix) (5:35)
+03. Skyfyre - Red Lights (3:22)
+04. Blue Thunder - Highway Solitude (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21AF164535184E967D56CE8155FE8E63B08620B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739062   (106165) от 26.07.2024
+
+Дина Волсини, Сергей Волсини | Простить или Отомстить (2020) [MP3, Дмитрий Ельпин]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Статьи супругов Волсини, появившиеся в глянцевых журналах в 2010–2013 годах, произвели настоящий фурор среди читателей. Со свойственной авторам правдивостью они объясняют, почему хороший человек сталкивается с плохими проблемами, что общего между проституткой и сверхпорядочной дамой, чем грозит мужчине брак с «папиной дочкой», как поклонники разрушают личную жизнь (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 05:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9307BD0CF48AF71E78649D94FD040A65963B1F50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739141   (106166) от 26.07.2024
+
+4K YouTube to MP3 5.5.1.0110 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106166.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 - приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио. Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url". Наслаждайтесь аудио треками в любое время, в любом месте, оффлайн.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E4341E17279277839AC7509751A6EB7EC3832E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739078   (106167) от 26.07.2024
+
+Schwarzer Engel - Höhere Gewalt (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 100 Jahre (4:23)
+02. Einer gegen alle (3:43)
+03. Hitsingle (3:11)
+04. Kunstprodukt (3:50)(   Читать дальше...   )Жанр: Industrial Metal, Gothic MetalПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD8224D09923E8956B2053BDDA15D89CC3B34CBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738909   (106168) от 26.07.2024
 
 Status Quo - Official Archive Series Vol. 3: Live at Westonbirt Arboretum 2008  (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -489,185 +669,6 @@ VA - Balatonica Chillout: Summer Edition 2024 (2024) [MP3|320 Kbps] <Downtempo, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E43FE8B5E5060CD8D8397AD3819A6F0F136B949
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739077   (106187) от 26.07.2024
-
-Моя семья / Treasure (2024) TS [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская журналистка Рут, давно мечтавшая съездить на родину родителей, предлагает отцу совершить путешествие домой. Отец всеми силами саботирует поездку, отшучиваясь и создавая по пути массу курьёзных ситуаций. Тем временем Рут пытается разобраться в прошлом, понять себя и свою семью.Производство: Германия, Франция / ARTE, Bavaria Film and Television FundЖанр: драма, комедияРежиссер: Юлия фон ХайнцАктеры: Лина Данэм, Стивен Фрай, Андре Хеннике, Томаш Влосок, Збигнев Замаховский, Ивона Бельска, Венанти Носул, Мария Мамона, Роберт Баста, Оливер ЭвиПеревод: Дублированный (Paragraph Media) звук с TSЯзык озвучки: РусскийСубтитры: Русские (Forced hardsub, на иностранную речь)Продолжительность: 01:45:48Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739063   (106188) от 26.07.2024
-
-Зигмунд Фрейд | Знаменитые случаи из практики (2023) [MP3, Илья Акинтьев]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106188.jpg" />
-</div>
-
-
-###  Подробнее
-
-В аудио книгу включены пять наиболее известных терапевтических случаев, описанных австрийским ученым-психологом, основоположником психоанализа Зигмундом Фрейдом. Изложение драматических обстоятельств жизни и хода лечения пациентов, прокомментированное творцом новой науки, и по сей день служит незаменимым пособием по изучению основ психоанализа.Жанр: Научно-популярная литератураИздательство: АРДИСПродолжительность: 18:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ACC93810DF319992DF43B0FAB7CBECB13448CD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739122   (106189) от 26.07.2024
-
-AudioRealism - ABL3 3.3.3.2 Standalone, VSTi, VSTi 3 (x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106189.jpg" />
-</div>
-
-
-###  Подробнее
-
-AudioRealism Bass Line 3 (ABL3) - это новое поколение нашего признанного критиками модуля эмуляции 303.
-ABL3 полностью воссоздан с нуля и был в разработке в течение нескольких лет с целью создания наиболее возможной и достоверной эмуляции.
-Благодаря интуитивно понятному и рациональному рабочему процессу, мы надеемся ABL3 установит новый стандарт в программном обеспечении (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EEFF718CB7CE4B957C12FFAE40259C1C325D380
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739149   (106190) от 26.07.2024
-
-4K YouTube to MP3 5.5.1.0110 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106190.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 - приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио. Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url". Наслаждайтесь аудио треками в любое время, в любом месте, оффлайн.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:225F5FBF5A574223D89B16B81155885AC0DD0404
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738871   (106191) от 25.07.2024
-
-VA - Sunrise Sessions Vol. 1 - Mixed by Robilardo (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Organic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ALMA (GER) - What's That Called Again (Extended Mix) [8:27]
-02. Koelle & Paul Brenning - Dark Knight Of The Soul (Extended Mix) [6:48]
-03. Morgin Madison & Meeting Molly - Pomegranate (Extended Mix) [6:10]
-04. Jerome Isma-Ae - Baharat (Extended Mix) [7:19](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Organic HouseПродолжительность: 02:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDBA154868BE3BA16C9BF6981285691F109446A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738868   (106192) от 25.07.2024
-
-VA - Redux Selection Vol. 8 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forbidden Mind - Wanderer (Extended Mix) [6:23]
-02. Fros7novA - Renegade (Extended Mix) [6:28]
-03. STNX - Remedy (Extended Mix) [6:33]
-04. DJ Hollowbase - Aukusti (Extended Mix) [6:25](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62F4753103101950849A3D6EA5A02B40B04A491B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738872   (106193) от 25.07.2024
-
-The Blues Vultures - You Can't Ruffle My Feathers (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Scars (3:05)
-02. Electric Stars (3:35)
-03. Hang Me out to Dry (3:38)
-04. Rocket 88 (4:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E95FE3CEADC6402FDBC2EF518C5BC7CBEE5EF3E
 ```
 
 

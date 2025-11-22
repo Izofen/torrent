@@ -1,3 +1,191 @@
+###  Публикация: 1728070   (108371) от 05.06.2024
+
+Святитель Иустин (Полянский) | Исповедь кающегося грешника (1998) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108371.jpg" />
+</div>
+
+
+###  Подробнее
+
+«…Филарет, митрополит Московский, находя соотношение и соответствие между творением мира и возрождением человека, рассуждает следующим образом:
+
+I. «Каждый человек имеет свое небо и землю, дух и плоть, внутреннее и внешнее, остаток первобытного совершенства и хаос греховного растления, из которого действием благодати постепенно устраивается новая тварь (2 Кор. 5,17), (   Читать дальше...   )Жанр: ПравославиеИздательство: СатисъФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D72FB43255C7630FB198A0FD3F4CE1F2FD69CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728144   (108372) от 05.06.2024
+
+Idol Throne - A Clarion Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ecliptykon [00:07:34]
+02. Covenant of the Immortal [00:05:23]
+03. King Among Jackals [00:08:20]
+04. Petrified [00:04:40](   Читать дальше...   )Жанр: Thrash Metal, Power MetalПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31627DBCAEF05D1B2F3A1EC89F5610569995F7FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727935   (108373) от 05.06.2024
+
+Pungent Stench - Been Caught Buttering (1991) Remastered, 2024, Dissonance Productions [FLAC|Lossless|WEB-DL|tracks] <Death metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shrunken & Mummified Bitch [00:03:48]
+02. Happy Re-Birthday [00:03:25]
+03. Games of Humiliation [00:05:09]
+04. Smash [00:02:33](   Читать дальше...   )Жанр: Death metalПродолжительность: 01:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7A083DDEF68A7CEAE974E6CCF41E0884A6591C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728093   (108374) от 05.06.2024
+
+Scott Hamilton, Jake Hanna, Dave McKenna - Major League (1986) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swinging at the Copper Rail [3:28]
+02. A Pretty Girl Is Like a Melody [5:06]
+03. Cocktails for Two [4:20]
+04. I'm Through with Love [4:20](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B5ACD1E5B34C085D78D3F54195FEA4C3348A046
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727922   (108375) от 05.06.2024
+
+Blackwelder - Survival Of The Fittest (2015) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night Of New Moon
+02. Spaceman
+03. Adeturi
+04. Freeway Of Life(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611B8D217DC1C30CF2B61E22EB20D39FD60B2CFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728087   (108376) от 05.06.2024
+
+The Scott Hamilton Quintet - The Second Set (1983) 1993, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Things You Are [6:33]
+02. Time After Time [6:39]
+03. Taps Miller [5:36]
+04. All Too Soon [6:03](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88552C926145C2AF73EC89F7CCE1787EE8911FCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727938   (108377) от 05.06.2024
+
+Duality - Elektron (2016) [MP3|320 Kbps] <Death Metal, Progressive Metal, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Six years locked clock (07:02)
+02. Azure (03:37)
+03. Chaos introspection (01:26)
+04. Along the crack (06:19)(   Читать дальше...   )Жанр: Death Metal, Progressive Metal, ExperimentalПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E869D998EB1D073F14FB74E867D4E6BC3EEC858
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727930   (108378) от 05.06.2024
 
 Ten Ton Slug - Colossal Oppressor (2024) [FLAC|Lossless|WEB-DL|tracks] <sludge metal>
@@ -502,195 +690,6 @@ VA - Exquisite Dream-Like Relaxing Soothing Jazz Tunes to Chill (2024) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC7AF8567F9E0968209759DFC7D55720C9A201C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727814   (108397) от 04.06.2024
-
-Dolorosa - Summoning Ancient Bleakness (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Sombre Passage (02:30)
-02. Mother Sorrow (05:39)
-03. From the Distant Shadows (05:13)
-04. Nocturnal Wisdom (04:53)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87DC09D0FF28CC28ACD8F7696757C7C66D511111
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727642   (108398) от 03.06.2024
-
-The Fail Of God - Acatalepsy (2024) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Unparalleled Power
-02 - Chain Reaction
-03 - Harness The Atom
-04 - Chaos Theory(   Читать дальше...   )Жанр: Deathcore, Melodic Death MetalПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3589A60FD9913191DBAC8C7EF7E6B8754A0820DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727600   (108399) от 03.06.2024
-
-Chris Potter - Eagle's Point (2024) Edition Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream of Home [5:39]
-02. Cloud Message [7:05]
-03. Indigo Ildiko [7:19]
-04. Eagle's Point [7:36](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF33E6EF0EFB4612D9935049B77CCC0D5B7A0E73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727658   (108400) от 03.06.2024
-
-Suffering Souls - In Synergy Obscene (2019) [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Idolised and Vilified
-02. In Synergy Obscene
-03. Inheritance of Irony
-04. In Death Reborn(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010846B6FC321EFD6701E9616657FC42D5801790
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727591   (108401) от 03.06.2024
-
-Charlie Byrd - The Concord Jazz Heritage Series (1980 - 1997) 1998, Concord Records [FLAC|Lossless|tracks + .cue] <Mainstream jazz, Latin Jazz, Guitar jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Wonderful World [3:42]
-02. Baia [5:02]
-03. Swing '59 [4:43]
-04. Stone Flower [4:57](   Читать дальше...   )Жанр: Mainstream jazz, Latin Jazz, Guitar jazzПродолжительность: 01:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98AF377E279038AFD47745911065A009CBA2353B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727559   (108402) от 03.06.2024
-
-Deliverance - Stay of Execution (1992) [FLAC|Lossless|image + .cue] <Speed, Thrash Metal, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Stay Of Execution
-02 Windows Of The Soul
-03 Words To The
-04 From Once Was(   Читать дальше...   )Жанр: Speed, Thrash Metal, IndustrialПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC1D40DC8A4105C0FE350DD6214682373E39647
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727667   (108403) от 03.06.2024
-
-Young Acid - Murder At Maple Mountain (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Garage Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Depths [00:02:52]
-02. Bitter Little Man [00:03:32]
-03. Fightmaker Street [00:02:49]
-04. PV 444 [00:03:25](   Читать дальше...   )Жанр: Alternative Rock, Garage RockПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922E8A66A841F0B46B1F2F7508F1C334BD2E13E1
 ```
 
 

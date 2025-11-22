@@ -1,3 +1,192 @@
+###  Публикация: 1723518   (109411) от 16.05.2024
+
+Zelenaya - Folk Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <doom metal, fusion, folk metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Majka budi Radu [00:03:20]
+02. (reprise) [00:00:37]
+03. Oy Letilo Kupailo [00:03:51]
+04. Urodyla Mene Mate [00:06:15](   Читать дальше...   )Жанр: doom metal, fusion, folk metalПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AACB1D62E05A5076982E062442E8D30C9B270A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723367   (109412) от 16.05.2024
+
+Ricky Ford - Saxotic Stomp (1988) Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saxotic Stomp [3:27]
+02. For Mary Lou [5:31]
+03. Musradres [5:21]
+04. Major Love [6:32](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52145172E85AC936FF9992C17107B68501CE844C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723577   (109413) от 16.05.2024
+
+Cardiac Arrest - Cadaverous Presence (2008) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Inevitable
+02. Cadaverous Presence
+03. You Beg For Mercy... I Beg For More
+04. The Process Of Self-Mutilation(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FED00AC9CC2B7260FFC9B4239B7635719ECE3D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723372   (109414) от 16.05.2024
+
+Wycliffe Gordon - Somebody New (2015) Blues Back Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Herkie Jerkie [6:01]
+02. I Got Rhythm [3:37]
+03. What You Dealin' With [6:03]
+04. Somebody New [4:16](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0619951B6BA4C923866084F31B28930C8774E16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723452   (109415) от 16.05.2024
+
+Cardiac Arrest - Morgue Mutilations (2006) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I See Red
+02. Into The Woodchipper
+03. Forbidden Passage
+04. Carnage Your Fate(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F17EE5DE910303595C0D4B03B081B77B9247AFF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723205   (109416) от 16.05.2024
+
+VA - Silent Shore Trance - Essential Classics Vol. 4 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miroslav Vrlik - Still In Love (Original Mix) [7:39]
+02. Manuel Rocca - Open Sea (Running Man Remix) [8:56]
+03. Dave Deen - Killer Worms (Original Mix) [8:39]
+04. Norland - Cloudwalking (Original Mix) [7:04](   Читать дальше...   )Жанр: TranceПродолжительность: 01:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95F482EB6A5F4F3C6F3A8021C26305167F3957C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723615   (109417) от 16.05.2024
+
+Seb Zito - Dialled In LP (2024) [FLAC|Lossless|WEB-DL|tracks] <deep house, progressive house, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Again (Extended Mix) [00:05:53]
+02. Take It Easy (Extended Mix) [00:05:12]
+03. Magic Arp (Extended Mix) [00:06:29]
+04. Who Created House (Extended Mix) [00:07:41](   Читать дальше...   )Жанр: deep house, progressive house, DanceПродолжительность: 2 CD, 01:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3445CED25C6A50E8BADC3AB31B7089FD7C3112E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723593   (109418) от 16.05.2024
 
 НХЛ. Кубок Стэнли 2024 (Плей офф. 2-й раунд. 5-й матч) Колорадо Эвеланш - Даллас Старз (15.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
@@ -501,188 +690,6 @@ QuickEdit Text Editor Pro - полноценный и многофункцион
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AB20C08DD28E95456F5B350CB8E4A40A00BB0AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723521   (109437) от 16.05.2024
-
-GForce - impOSCar 3 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109437.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе imOSCar3 от GForce лежит дизайн легендарного британского аппаратного синтезатора OSCar®.
-Как и оригинал, его гибридная архитектура сочетает в себе точность цифровых генераторов с теплотой аналоговых фильтров, обеспечивая широкий спектр звуковых возможностей.
-Создавайте обширные, пышные, темные или эмбиентные пэды, резонансные колокольчики и точные соло с (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74CFC4C88C88DA50BCD4C07578ADFB19A06AE123
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723515   (109438) от 16.05.2024
-
-Газета | Аргументы и Факты. Москва №20 (15-21 мая 2024) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельная газета «Аргументы и Факты Москва» - одно из самых популярных изданий в России и за рубежом. Основные темы: информация о событиях в России и за рубежом, политика, культура, экология, социальные проблемы и многое другое. В 1990 году за самый большой тираж в мире (33,5 млн. экземпляров) была внесена в книгу рекордов Гиннеса. Еженедельник «АиФ» рассчитан (   Читать дальше...   )Жанр: Популярное изданиеИздательство: АО "Аргументы и Факты"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C28AB96D73AF1C3A4CF232C5ADA35BB2003F1AE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723204   (109439) от 16.05.2024
-
-Jazz Guitar Club, Background Instrumental Music Collective, Romantic Love Songs Academy - Passion And Pomegranate: Best Romantic Guitar Music of All Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]  ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passion And Pomegranate (3:35)
-02. Romantic Love Songs Academy - Absolute Satisfaction (3:02)
-03. Background Instrumental Music Collective - Morning Kiss (3:39)
-04. Savage Feeling (3:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E2876508710FE5315CC8D63275B04E4333CC836
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723679   (109440) от 16.05.2024
-
-Demon - Invincible (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:27)
-02. In My Blood (4:40)
-03. Face The Master (4:26)
-04. Ghost From The Past (5:08)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763A47989109B044945457FC24669BB32799624F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723600   (109441) от 16.05.2024
-
-Господа из Санте / Ces messieurs de la Sante / These Gentlemen of Health (1934) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по одноимённой пьесе Поля Армона и Леопольда Маршана (1931)... Хитрый финансист, заключённый в тюрьму по обвинению в мошенничестве, сбегает оттуда, берёт вымышленное имя и работает разнорабочим в магазине корсетов. Преуспев в бизнесе своей покровительницы, он быстро оказывается во главе экономической империи...Производство: Франция / Pathé-NatanЖанр: комедияРежиссер: Пьер КоломбьеАктеры: Ремю, Люсьен Бару, Поль Амио, Жорж Молау, Пьер Стефан, Полин Картон, Ивонн Эбер, Моника Роллан, Эдвиж ФёйерПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FFB132879CCB73819B7A27B39E048A50303E328
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723572   (109442) от 16.05.2024
-
-Intelligent Music Project - VIII: Miracles Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Thunder
-03. Days Rollin'
-04. For You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCDCFEE9EAF01CD3232D2028ACA26E4B5DDACFBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723740   (109443) от 16.05.2024
-
-Elvellon - Ascending in Synergy (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbound (5:51)
-02. A Vagabond's Heart (5:21)
-03. My Forever Endeavour (5:08)
-04. Ocean Of Treason (5:00)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55EA452F12EA3B563E2CD0E8E790BDE11490C0E6
 ```
 
 

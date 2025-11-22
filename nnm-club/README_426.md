@@ -1,3 +1,30 @@
+###  Публикация: 1806983   (11290) от 16.07.2025
+
+Big Dave & The Dutchmen - Big Dave & The Dutchmen (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Never Love Again (5:05)
+02.  I Dig You Baby (3:58)
+03.  Screwdriver (5:50)
+04.  Daring Haring (2:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEAD537B92CE81199EDB5A7D2FCED429F2A3DE8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806992   (11291) от 16.07.2025
 
 Chantel McGregor - The Healing (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -627,30 +654,6 @@ magnet:?xt=urn:btih:F38506135E1AFAE38A4BC9679183C8EF40376A02
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73AA7E5253E29CCA009A6EFE7FC0EA8493FFD826
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806998   (11316) от 16.07.2025
-
-Rosetta Stone: Изучение языков 8.33.0 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_11316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему приложение Rosetta Stone? Потому что лучший способ выучить новый язык — окружить себя им, и метод Dynamic Immersion® от Rosetta Stone делает именно это. Интерактивные и контекстуальные уроки сочетаются с функциями расширенного обучения, которые буквально у вас под рукой — в любое время, в любом месте и на любом устройстве; онлайн или оффлайн и совершенно без (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 01.07.2025Разработчик: Rosetta Stone LtdПоддерживаемая ОС: Android 11+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935562E1117DA2F903D0653ABBFC27BE375F8A3A
 ```
 
 

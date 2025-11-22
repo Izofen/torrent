@@ -1,3 +1,190 @@
+###  Публикация: 1754644   (103716) от 11.10.2024
+
+Johan Steensland - Crossfade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog, Rock Opera>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (2:04)
+02. Joseph's Dream (4:49)
+03. Doorbell (5:14)
+04. I'm All to Blame (3:19)(   Читать дальше...   )Жанр: Progressive Rock, Neo-Prog, Rock OperaПродолжительность: 00:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8CA3A4D75871ECCCBA4C5F91DC844CDAEEA58B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754591   (103717) от 11.10.2024
+
+Winter - Keeping The Flame Alive (2024) [MP3|320 Kbps] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keeping The Flame Alive (04:22)
+ 02. Wheel Of Fortune (featuring Ralf Scheepers) (04:04)
+ 03. Guardians Of Life (04:45)
+ 04. Into The Fire (05:19)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07182600AD4080940BB5AA4664B8C2EB761EEB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754669   (103718) от 11.10.2024
+
+Лицедейство перед лицом смерти / Dodsangstens maskespil (1912) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103718.jpg" />
+</div>
+
+
+###  Подробнее
+
+На судне вспыхивает пожар, и капитан призывает популярного артиста, находящегося на корабле, попытаться отвлечь пассажиров, чтобы не началась паника, пока команда пытается взять ситуацию под контроль.
+В главной роли Вальдемар Псиландер - записной красавчик и первейший герой-любовник кинематографа тех времен.Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Эдуард Шнедлер-СоренсенАктеры: Ellen Aggerholm, Аньес Андерсен, Axel Boesen, Alma Hinding, Astrid Krygell, Отто Лагони, Agnes Lorentzen, Эксел Маттсон, Вальдемар Псиландер, Кристиан ШрёдерПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395673FE1C073D0D144C3E23B9B6C3B3AC75F53B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754502   (103719) от 11.10.2024
+
+House Of Lords - Full Tilt Overdrive (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crowded Room (4:47)
+02. Bad Karma (4:12)
+03. Cry Of The Wicked (5:09)
+04. Full Tilt Overdrive (4:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27018C4B11414826CF135E23D8C556EA0711E6F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754619   (103720) от 11.10.2024
+
+Kalandra - A Frame of Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Prog Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am (5:33)
+02. Untie The Knot (3:55)
+03. Are You Ready? (4:31)
+04. The State of the World (4:19)(   Читать дальше...   )Жанр: Progressive Rock, Prog FolkПродолжительность: 00:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561F9E3F57FCA562F428D4C454214AED62E88243
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754501   (103721) от 11.10.2024
+
+Radioactive - Reset (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sentimental (4:33)
+02. Shame On You, Shame On Me (5:02)
+03. Gaia (5:03)
+04. When The Lights Go Down (4:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA0E35123BF120DDEB714B7C0F73F40BB7FDFFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754268   (103722) от 09.10.2024
+
+The Vaughan Brothers - Family Style  (1990) [FLAC|Lossless|tracks + .cue] <Blues Rock, Pop Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard To Be
+02. White Boots
+03. D / FW
+04. Good Texan(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC4ACE55262C55EA1B1DF559D6F627FACABA5ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754236   (103723) от 09.10.2024
 
 Jihee Heo - Flow (2024) OA2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -502,192 +689,6 @@ Krzysiek Ponieważ - The Devil, the Past and the Countryside: The Blues Collecte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA5C584D373FBEEBB3BEA5A6D322B35BAE348184
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754123   (103742) от 08.10.2024
-
-Lights of Marfa - Light of Day (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Knows (3:37)
-02. My Burning Flower (2:50)
-03. Light of Day (3:35)
-04. Double Vision (3:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B842C68CA65071136BEA3A4BB6BB5B248A4572E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754120   (103743) от 08.10.2024
-
-Chris Killz and The Family - Mister Move On (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mister Move On (2:29)
-02. Are We Gonna Make It (5:09)
-03. Would You Believe Me (4:22)
-04. Give Me Time (2:53)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E796C3614F19A3C3DD9829090CD1A7A1FE15B848
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754031   (103744) от 08.10.2024
-
-Agnes Darelid - RISE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stakes Are High (6:43)
-02. Liliana Zavala - Anten (5:51)
-03. If it Were All About Feelings (6:54)
-04. Bloom of November (5:42)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1658F3A522998DE5F7A460C339A433CC62DE7E48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754117   (103745) от 08.10.2024
-
-Bobbie Dazzle - Fandabidozi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lightning Fantasy (4:29)
-02. Merry-Go-Round (4:36)
-03. Revolution (4:38)
-04. Magic of Music (3:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BCB4E60B5A4A4FF2C44628059E570A7BE3A4E6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754032   (103746) от 08.10.2024
-
-Antonio Dayyani - Trop op (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wow, det er nat (3:45)
-02. Skiftevisen (3:52)
-03. Fyldt op (…pludselig af kærlighed) (6:07)
-04. Snefald på Lyravej (4:39)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A116BF752DC7753967C44A1A5AE9A144234138
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753990   (103747) от 08.10.2024
-
-Coldplay - Moon Music (Full Moon Edition) (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103747.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1:
-01 - MOON MUSiC [4:37]
-02 - feelslikeimfallinginlove [3:57]
-03 - WE PRAY [3:54](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0C6D8060B5C80E1DF963D5D84AEB005381A178
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754040   (103748) от 08.10.2024
-
-Л.Э. Генденштейн, А.А. Булатова и др. | Физика. Учебник для 11 класса (базовый уровень) (2022) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Линия учебных изданий для среднего общего образования ориентирована на обучение решению задач. Параграфы представляют собой канву сценариев уроков, реализующих системно-деятельностный подход к обучению: тщательно подобранные задания погружены не-посредственно в теорию. В 10-м классе изложены темы: кинематика, динамика, законы сохранения в механике, статика и гидростатика, (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94AD048F48CEC91DD7AFA0214EDCF835F96CF2AA
 ```
 
 

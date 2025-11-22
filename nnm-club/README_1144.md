@@ -1,3 +1,57 @@
+###  Публикация: 1774752   (30097) от 22.01.2025
+
+Riot V - Mean Streets (2024) 2xCD, Japanese Edition, Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название Riot является чуть ли не синонимом пауэр-метала, если не американского хэви-метала в целом. Рожденные на улицах Нью-Йорка в середине 70-х, примерно в то же время, когда появилось самое раннее воплощение Iron Maiden, они стояли рядом с такими группами, как Rainbow, Judas Priest и Motorhead, развивая ранние успехи Deep Purple и Black Sabbath в более быстром (   Читать дальше...   )CD1:
+01. Hail To The Warriors 4:26
+02. Feel The Fire 4:14
+03. Love Beyond The Grave 4:21(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F65C0EE322979481FE06532F390C71111279094
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774766   (30098) от 22.01.2025
+
+Visions Of Atlantis - Armada LIVE Over Europe - Pt. 2 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Those Who Choose to Fight (LIVE at Lyon) (02:19)
+ 02. The Land of the Free (LIVE at Lyon) (04:41)
+ 03. Monsters (LIVE at Nuremberg) (03:49)
+ 04. Heroes of the Dawn (LIVE at Paris) (04:42)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EAFF6347A4EE3F05C70C38159D5443AC3B61EA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774636   (30099) от 22.01.2025
 
 Футбол. Лига Чемпионов 2024/2025. Основной турнир. Тур 7-й. Обзор матчей (21.01.2025) HDTVRip [H.264/1080p]
@@ -614,59 +668,6 @@ magnet:?xt=urn:btih:8A6C7517C20B694C3E9C9B029310895F9E1F7753
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC05B35E294358E4F9F86A4E26F7F6FBED168A81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774656   (30123) от 22.01.2025
-
-Журнал | National Geographic №2 (февраль 2025) [PDF][EN]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последние новости науки, исследований и культуры откроют вам глаза на многие чудеса света. Прочтите журнал National Geographic сегодня, чтобы получить статьи высочайшего качества и захватывающие фотографии в этом выпуске.
-
-The latest news from science, research and culture will open your eyes to many wonders of the world. Read National Geographic magazine today to (   Читать дальше...   )Жанр: Научно-популярный журналЯзык: АнглийскийИздательство: National Geographic SocietyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00DA5115BBE4813301AD57590079A057CC31BBCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774588   (30124) от 22.01.2025
-
-Together We Live v1.0.1g [En]
-
->>Программы, Игры и прочее
->>Игры для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_30124.jpg" />
-</div>
-
-
-###  Подробнее
-
-История:
-""Пробуждение""
-Кёя просыпается в тускло освещенной комнате.
-По словам прошедшей мимо девушки, мир погиб.(   Читать дальше...   )Тип издания: PaidРелиз состоялся: 18 дек. 2024 г.Разработчик: KEMCOПоддерживаемая ОС: Android 6.0+ (arm64-v8a)Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B31EB81AA5BEB8469E6B5785C6F8DAEBA2333B
 ```
 
 

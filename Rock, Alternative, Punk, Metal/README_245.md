@@ -1,3 +1,382 @@
+###  Публикация: 1433698   (156683) от 21.12.2020
+
+Дора - Боже, храни кьют-рок (2020) [MP3|320 Kbps] <Pop Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - втюрилась [00:02:03]
+02 - быть с тобой [00:02:58]
+03 - больше [00:02:24]
+04 - осень пьяная [00:02:51](   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6EAAFB4FFBA1773AF28FFFD44201CDDAEC7490C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968067   (156693) от 23.12.2015
+
+Chris Rea - The Road To Hell Part 2 (1999) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Get Through (8:17)
+02. Good Morning (5:23)
+03. E (6:06)
+04. Last Open Road (3:46)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E143827EA0CC3D3F9B6A98564F960295C0CBE88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968055   (156707) от 23.12.2015
+
+Chris Rea - The Road To Hell (1989) [FLAC|Lossless|tracks + .cue] <Blues Rock, Country Rock, Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road to Hell, Part 1 (4:53)
+02. The Road to Hell, Part 2 (4:33)
+03. You Must Be Evil (4:22)
+04. Texas (5:11)(   Читать дальше...   )Жанр: Blues Rock, Country Rock, Soft Rock, Pop RockПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22CC2DC4F749D8C91F526AAB97C4932BC8947A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968086   (156744) от 23.12.2015
+
+Chris Rea - King Of The Beach (2000) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King of the Beach (5:01)
+02. All Summer Long (5:10)
+03. Sail Away (4:49)
+04. Still Beautiful (4:11)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54034C1C8A326640D0724D2879ACB28BDC863867
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217438   (156773) от 20.12.2019
+
+Airbourne - 7 аlbums, 1 Box set, 13 CD (2004-2019) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Hard"n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Airbourne (Воздушно-десантное) - австралийская рок-группа из Варрнамбула, штат Виктория. Сформирована в 2003 году братьями Джоэлом и Райаном О’Кифами. Музыка группы представляет собой высокоэнергичный паб-рок, характерный для многих групп из Австралии (AC/DC, Rose Tattoo и т.д.).--------------------------
+
+01. Boneshaker (3:30)
+02. Burnout the Nitro (3:32)(   Читать дальше...   )Жанр: Hard Rock, Hard"n'Heavy |Продолжительность: 09:58:21 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E590999BE0238B1967921AB2680B4A3C96CE1ADD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676544   (156793) от 13.11.2023
+
+Саша Цой - Основан на реальных событиях (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сын Виктора Цоя представил новый альбом. Этот альбом – настоящая находка для всех поклонников рок-музыки. Он включает в себя 11 потрясающих песен, каждая из которых пронизана эмоциями и историями из жизни самого Саши.
+Одной из самых ярких композиций альбома стала дебютная песня “Светлячки”, которую Саша представил в июле 2022 года. Эта мелодия захватывает слушателя (   Читать дальше...   )1. Невзначай
+2. Светлячки
+3. Часть меня (Которой нет)
+4. Свобода(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1983D1A2828CA6B0336462B961ECFE3490B816
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968334   (156859) от 23.12.2015
+
+VA - Fetenhits - The Ballads (1997) 2 CD, Compilation [FLAC|Lossless|tracks + .cue] <Rock, Blues, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonnie Bianco & Pierre Cosso - Stay (3:49)
+02. Scorpions - Still Loving You (4:53)
+03. Bonnie Tyler - Total Eclipse of the Heart (4:25)
+04. Boston - More Than a Feeling (4:40)(   Читать дальше...   )Жанр: Rock, Blues, PopПродолжительность: 02:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8172276D98478F1884F39EE8F052182165BA6073
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968349   (156872) от 23.12.2015
+
+Chris Norman - Full Circle (1999) [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Think You Know How To Love Me (3:52)
+02. I'll Meet You At Midnight (3:16)
+03. Oh Carol (3:42)
+04. Mexican Girl (3:56)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657E1553D035D5B8898328C6D836F39227364D5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085434   (156882) от 22.12.2016
+
+The Living End - Modern Artillery (2003) [FLAC|Lossless|image + .cue] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Would You Do? - 1:27
+02. One Said To The Other - 2:44
+03. Who's Gonna Save Us? - 3:21
+04. End Of The World - 3:36(   Читать дальше...   )Жанр: PunkПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDD726D4D31E59ABD68DDF1E5BEF054FA30053D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085917   (156890) от 22.12.2016
+
+Mother Turtle - II (2016) [FLAC|Lossless|tracks] <Eclectic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture
+02. Harvest Moon
+03. Ennui
+04. Walpurgi Flame(   Читать дальше...   )Жанр: Eclectic ProgПродолжительность: 00:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F8AF33A9E67FB3150C18519A13BB6AB6FF5566D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202829   (156924) от 18.12.2021
+
+Royal Hunt - 15 Albums, 3 Compilations, 5 Lives, 6 Singles & EP (1992-2020) 36CD [FLAC|Lossless|image + .cue] <Melodic Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_156924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Royal Hunt - это динамичную смесь традиционного хард-рока, классических тем и аранжировок, элементов прогрессива и чрезвычайной мелодичности. Датой начала истории "Royal Hunt" можно считать 1989 год, когда клавишник Андре Андерсен и бас-гитарист Стин Могенсен сошлись во мнении, что им нужно основать команду, в которой они могли бы скомбинировать свои пристрастия (   Читать дальше...   )Список альбомов:
+1992 - Land Of Broken Hearts
+1993 - Clown In The Mirror
+1995 - Moving Target(   Читать дальше...   )Жанр: Melodic Metal, Progressive MetalПродолжительность: 29:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CDAA78BD7DBC94416718E88A4164CFABC7382B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968370   (157018) от 23.12.2015
+
+The Radio Sun - Heaven Or Heartbreak (2015) [MP3|320 кб/с] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caught Between Heaven And Heartbreak
+02. Tell Me What You Want
+03. Dying Without Your Love
+04. Science Fiction Make Believe(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF4F9F1378BFE9C68930EF0899FC37B2BDC9A8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968222   (157023) от 23.12.2015
+
+Gates of Ishtar - At Dusk and Forever (1998) Japanese Ed. [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Wounds
+02.The Nightfall
+03.At Dusk and Forever
+04.Battles to Come(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D11CBFB2A09A012B7390F5C0690ED65F149CB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194303   (157078) от 24.12.2017
+
+Black Sabbath - The End (2017) Live, 3CD, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wizard
+02. Wicked World
+03. Sweet Leaf
+04. Tomorrow's Dream(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 02:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3006676C8DC5A4AC8FC28F7ADFFB8FB5199319
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433513   (157114) от 21.12.2020
 
 Высота 277 - Мальчиши (2020) EP [MP3|320 Kbps] <Heavy Metal>
@@ -317,390 +696,6 @@ Lothloryen - Principles Of A Past Tomorrow (2015) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91BE839380D4CFFB54428900E4F6EB7B3ADFFEB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588275   (157355) от 13.12.2012
-
-Chevelle - Stray Arrows - A Collection Of Favorites (2012) [MP3|320 kbps] <Alternative Rock / Rock / Alternative / Hard Rock / Alternative Metal >
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jars (2012 Remastered Version) (03:22)
-02. Same Old Trip (2012 Remastered Version) (03:11)
-03. Vitamin R (Leading Us Along) (2012 Remastered Version) (03:44)
-04. The Red (2012 Remastered Version) (03:59)
-05. I Get It (2012 Remastered Version) (03:57)
-06. Face To The Floor (2012 Remastered Version) (03:39)
-07. Send The Pain Below (2012 Remastered Version) (04:12)
-08. Sleep Apnea (2012 Remastered Version) (03:51)
-09. The Clincher (2012 Remastered Version) (03:44)
-10. Hats Off To The Bull (2012 Remastered Version) (03:56)(   Читать дальше...   )Жанр: Alternative Rock / Rock / Alternative / Hard Rock / Alternative MetalПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBE5F1F5F6ABE83FEC3E7FBB026928F18EFF40B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433452   (157362) от 21.12.2020
-
-Riot - Rock World-Rare & Unreleased 87-95 (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockworld Theme (1:17)
-02. Bloodstreets (Alternative Version) (4:43)
-03. Buried Alive - Tell Tale heart (Alternative Version) (7:25)
-04. Runaway (Instrumental Early Idea Demo) (5:05)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4490000CE44A862981EFE0CD5FE1338E18B63B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194410   (157405) от 24.12.2017
-
-ZveroБой (Зверобой) - Война за мир (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Голос мой 4:36
-02 Чистое небо 4:19
-03 Птиченька 3:55
-04 Донбасс 4:19(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB34B86EB059EED8CDD188776CF18EFE8EE9456
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194290   (157441) от 24.12.2017
-
-The Matrixx - Здравствуй (2017) [FLAC|Lossless|tracks + .cue] <Neo-Post-Gothic, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157441.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Звезда
-2. Дружок
-3. Дурачок
-4. From Hell(   Читать дальше...   )Жанр: Neo-Post-Gothic, AlternativeПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:015E881A6D238A811E75B6BBCA31BCC95BFE7709
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676576   (157442) от 13.11.2023
-
-Jef Bek - Distant Starlight (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Distant Starlight
-02 - Momentary Champion
-03 - Riptide
-04 - What One Has(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560ACD35333D88EC22AF832A0E4FF68E18E73095
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194273   (157452) от 24.12.2017
-
-Калевала - Говори со Мной (2014) Караоке альбом [MP3|320 Kbps] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ярило (вокальный минус) 5:25
-02 Доху Я Купила (вокальный минус) 3:10
-03 Горсти Талого Снега (вокальный минус) 4:11
-04 Улетай на Крыльях Ветра (вокальный минус) 4:23(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC2EB4F9A5E3102E1F448812AFE55F728888B5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518161   (157465) от 18.12.2021
-
-Красная Плесень - Союз платиновых пародий (2021) 4 альбома [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Губки срантиком
-02. География
-03. Часы
-04. С размаху на грабли(   Читать дальше...   )Жанр: Punk RockПродолжительность: 02:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6590195E4A62D0F2E752676412FAA565E0DAB168
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676355   (157529) от 13.11.2023
-
-Arrogant Destruktor - Written In Blood From The Blade (2023) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dirt And Ruin
-02 - Bestial Ritual
-03 - The Call Of The Dead
-04 - The Brand(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DC92D6B5757B83CBE7F28E63D7675A37129AAF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676518   (157541) от 13.11.2023
-
-Foghat - Sonic Mojo (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's a Little Bit of Everything (02:58)
-02. I Don't Appreciate You (02:55)
-03. Mean Woman Blues (03:32)
-04. Drivin' On (03:33)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB092F576854262E2D8A7EDD453921D837EC6F12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600313   (157558) от 27.12.2022
-
-Rainbow - Rising (1976) Reissue, Remastered, 2014, Polydor [OGG Vorbis|480 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tarot Woman
-02. Run With The Wolf
-03. Starstruck
-04. Do You Close Your Eyes(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BEB0604816AA64300812F796E5E30CFC0BFD3D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676564   (157604) от 13.11.2023
-
-In This Moment - Godmode (2023) [FLAC|Lossless|image + .cue] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Godmode (4:01)
-02. The Purge (4:01)
-03. Army Of Me (3:10)
-04. Sacrifice (4:23)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60DA928EFB765673B1B43A93E185CA4E0E5D4F90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676424   (157667) от 13.11.2023
-
-Unheilig - Moderne Zeiten (2006) [FLAC|Lossless|image + .cue] <Industrial Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Das Uhrwerk
-02. Luftschiff
-03. Ich Will Alles
-04. Goldene Zeiten(   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 01:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968BE11B7A34D8FD911AD876689E6361C1C67B19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676428   (157674) от 13.11.2023
-
-Ignescent - Fight In Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monster You Made
-02. Unholy
-03. Fight In Me
-04. You're Not Alone(   Читать дальше...   )Жанр: Alt.Metal, Female VocalПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3BEB8069E59B2EA40686BDBA842F4FD0C66491E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676423   (157735) от 13.11.2023
-
-Unheilig - Zelluloid (2004) [FLAC|Lossless|image + .cue] <Industrial Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_157735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Filmrolle
-02. Zauberer
-03. Hort Mein Wort
-04. Willst Du Mich(   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 01:06:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742DC8FE85D289F5FF2ADE6DD157BA4AD1525902
 ```
 
 

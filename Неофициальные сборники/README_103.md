@@ -1,3 +1,30 @@
+###  Публикация: 1427000   (184454) от 27.11.2020
+
+VA - Tech House Electro Music Fest (2020) [MP3|320 Kbps] <EDM, Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184454.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Midtown Level - Pleasure Of The Tomato
+002. Darkvibe - Bullshit Overdose
+003. Master Clip - Nominate
+004. Armin Van Buuren - Mr. Navigator(   Читать дальше...   )Жанр: EDM, Techno, Tech HouseПродолжительность: 08:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40203EEB3E130AC0E90261570FEE77B3111B2A6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664668   (184569) от 27.09.2023
 
 VA - Music News vol.301 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -263,6 +290,33 @@ Amadeus Angelus - Collection (2021) [MP3|320 Kbps] <Euro-Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E011232BD847D4EECFCCC330A044A1C7F0B8C992
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426631   (186049) от 25.11.2020
+
+VA - Music News vol.51 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_186049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indira - На Краю Неба (03:28)
+ 02. Amelia - Mare Rosso (03:41)
+ 03. Andro - Любит Пироги (02:02)
+ 04. Angelica - L'ultimo Bicchiere (03:22)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629FAD7A0E1ACA8A9EA139D1C8C353E8001D8CEB
 ```
 
 
@@ -641,60 +695,6 @@ VA - Dance Hits of the outgoing year (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69A837AACD71BD86710CE21A52C9EA01C38EB4E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590512   (188650) от 14.11.2022
-
-VA - Super Mega Hits (2022) [MP3|320 Kbps] <Electropop, Dancehall, Synth-pop, Afrobeats>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lizzo - 2 Be Loved (Am I Ready)
-02. Ed Sheeran - 2step (feat. Lil Baby)
-03. Smyles - Running up That Hill (A Deal with God)
-04. Charlie Puth - Left and Right(   Читать дальше...   )Жанр: Electropop, Dancehall, Synth-pop, AfrobeatsПродолжительность: 02:51:03 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36B3A2F5B93589BCB160B42EC198C534FBED7A23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590395   (188745) от 14.11.2022
-
-Imazee - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_188745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running Away
-02. You Tell Me
-03. Me and You
-04. Only You(   Читать дальше...   )Жанр: Instrumental, ElectronicПродолжительность: 02:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:675E70D565B6EAB2DAB9DC110D785E8CA136CC51
 ```
 
 

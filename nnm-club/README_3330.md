@@ -1,3 +1,189 @@
+###  Публикация: 1738630   (106265) от 24.07.2024
+
+Epoch Ensemble - Blues In Every Shade (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Highway (3:49)
+02. A Broken Heart (4:22)
+03. Bottom of the Bottle (6:18)
+04. Road to Myself (4:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A86EE72CDB9A68C5BAA5F8854AA7F47A35536BF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738714   (106266) от 24.07.2024
+
+Chris Boudreaux - Beside Myself (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hunters In The Night
+02. My Window
+03. Missing You
+04. One Eyed Jack(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF68AE6BB62B0F6BE761B9CFD05C75E2862CDB1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738689   (106267) от 24.07.2024
+
+Photo Supreme 2024.2.2.6593 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Supreme — вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9F5C519C4A0A46792AE28226F6E6E3D1B51A12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738665   (106268) от 24.07.2024
+
+Ron Beer - Best Beer Ever (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malibu (3:45)
+02. Man of Mystery (2:13)
+03. Diamond in the Rough (1:28)
+04. Got a Lot of Loving to do (3:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24EBE7292C74CBF29B72FD5C3B4ACD73996F7730
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738641   (106269) от 24.07.2024
+
+Lara Price - Half & Half (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - We're Still Friends [04:33]
+02. - Evidence [03:52]
+03. - Fools Like Me [02:26]
+04. - Things Ain't Everything [04:32](   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9AC8AA10562D5577AB0FA617F81DA82A58F421E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738626   (106270) от 24.07.2024
+
+BuddyRo and the 'Lanes - I'm Through with Trouble (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Good  (4:20)
+02. Through with Trouble  (3:35)
+03. Really Had It Coming  (3:45)
+04. Trail of Love  (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0728C0761887F4092CCCBDAE33DF9DC99528A7AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738666   (106271) от 24.07.2024
+
+The Bad Day - The Irish Goodbye (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartbeat (3:58)
+02. Welcome To The Show (3:09)
+03. Mr Regret (3:33)
+04. No Love For Sale (3:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749CDE4B5858969442C9AA44C52F50E21FF21434
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738529   (106272) от 23.07.2024
 
 Mine Road - Tomorrow's Sky (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -490,195 +676,6 @@ The Swing Bot - Tournedisc (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B874759BF1E000B0374333B91FF83A86CD6DC766
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738522   (106291) от 23.07.2024
-
-Chris Cain - Good Intentions Gone Bad (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Little Too Late (3:30)
-02. Fear Is My New Roommate (3:33)
-03. Good Intentions (3:15)
-04. Waiting For The Sun To Rise (4:31)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8894148B57AC445797F68D95B7FAB4DCE48D9CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738520   (106292) от 23.07.2024
-
-5th Avenue Park Project - Attractive Soul (Lo-Fi Version) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is Excluded (3:00)
-02. Shadow Two (2:13)
-03. Inclusion (3:00)
-04. Snuff (2:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FACCE593AA77367234565ACD060222D602B4DE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738530   (106293) от 23.07.2024
-
-Neko to Ongaku (Cats & Music) - Swing Tails ~Cats Jazz Band~ (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night Flight/夜間飛行 (5:00)
-02. The Moon and Six Tails/月と6本のしっぽ (4:22)
-03. Majical 6 Paws/まほうのおてて (4:33)
-04. A little lonliness/ひとひらの孤独 (3:56)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:09:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5726024DF8C10D3C8AF0E60E22FF47041A0C9CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738401   (106294) от 23.07.2024
-
-Saxtribution - Relaxing Smooth Saxophone Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Between the Sheets (4:01)
-02. Have You Seen Her (4:38)
-03. Just The Two Of Us (3:52)
-04. Free (2:54)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B4A941F04E21680E3D5D1018049F39BF997ABC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738525   (106295) от 23.07.2024
-
-Historia - Echoes Of The Will (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walkers In The Castle (03:39)
-02. Liotru (05:01)
-03. Lycanthropy (04:24)
-04. Son Of A Deity (05:15)(   Читать дальше...   )Жанр: Symphonic, Progressive MetalПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46DBB46A5BCEB69D5A8C86AE5D59C01731E13FE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738399   (106296) от 23.07.2024
-
-Saxtribution - Refreshing Soothing Saxophone Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smooth Operator (4:18)
-02. Come in From the Cold (4:12)
-03. By Your Side (4:34)
-04. In Your Eyes (3:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DF1526EA4B818E53013DF29D6B19C36B1205BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738238   (106297) от 23.07.2024
-
-The Fault Lines - 60 Cycle (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_106297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fear and Desire (4:26)
-02. The Cheat (4:15)
-03. Caught in a Knot (4:04)
-04. Punches (5:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0BD99B827198EDE8001902FEB7DFEAD1AE50061
 ```
 
 

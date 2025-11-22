@@ -1,3 +1,198 @@
+###  Публикация: 481924   (99429) от 12.04.2012
+
+Одесса-сентиментальное путешествие (2004) DVDRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как, вы не были в Одессе! Смотрите фильм Леонида Якубовича об Одессе, ее истории, архитектуре, легендах и,конечно, о людях - современных и знаменитыхЖанр: Авторское киноРежиссер: Леонид ЯкубовичПродолжительность: 01:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C7123F3A89AAF9942C134D7DCC8FD6C7C36539
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481952   (99430) от 12.04.2012
+
+Alcohol 52% 2.0.2 Build 3929 [Мульти, есть русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alcohol 52% - широко известная программа для эмуляции CD/DVD приводов, которая позволяет создавать точные копии дисков и загружать их в виртуальные накопители. Бесплатная версия приложения позволяет создать 6 виртуальных накопителей, каждый из которых может работать с образами дисков на скорости 200x. Поддерживается большое количество разнообразных форматов образов дисков: MDS, CCD, BIN, CUE, ISO, NRG, CDI, BWT и другие, возможна регистрация пользовательских расширений файлов-образов. Программа будет полезна всем, кому часто приходится вставлять и вынимать различные CD/DVD диски. С её помощью можно разместить все часто используемые носители в виде образов на жёстком диске вашего компьютера.Название программы: Alcohol 52%Язык интерфейса: Мульти, есть русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481624   (99431) от 12.04.2012
+
+Даниэль Пеннак | Собака Пес [2010] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99431.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом мире, где несчастных собак постоянно подстерегают опасности: падающие холодильники, ревущие автомобили, ловцы бродячих животных и просто злые люди, выжить - уже большое дело. Но просто выжить – этого мало. У каждой настоящей собаки есть в жизни главная цель. Маленький пес, герой этой книги, пройдет долгий путь от свалки под Ниццей до парижской квартиры, прежде чем достигнет этой цели – воспитает себе настоящего друга. Об этом – фантастическая и одновременно правдивая история, рассказанная французским писателем Даниэлем Пеннаком. Одно из наиболее значимых произведений современной франкоязычной литературы для детей, повесть "Собака Пес" рекомендована для чтения в школе Министерствами образования Франции, Швейцарии, Бельгии и Канады.Жанр: Сказка
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7D7BF076B342ED3FF46328A0ED3446E5E53ABB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481714   (99433) от 12.04.2012
+
+VA - Mojo Presents - Sticky Soul Fingers - A Rolling Stones Tribute (2012) [MP3|320 кб/с]<Funk, Soul, Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice Russell – Brown Sugar
+02. Black Joe Lewis & the Honeybears – Sway
+03. Sharon Jones & the Dap-Kings – Wild Horses
+04. The Bamboos – Can’t You Hear Me Knocking
+05. Naomi Shelton & the Gospel Queens- You Gotta Move
+06. The Sugarman 3 – Bitch
+07. Aloe Blacc & Joel Van Dijk – I Got the Blues
+08. Ren Harvieu – Sister Morphine
+09. Anthony Joseph & the Spasm Band – Dead Flowers
+10. Lee Fields – Moonlight Mile(   Читать дальше...   )Жанр: Funk, Soul, RockПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C6684C36819FF5126D26E89844DD7C01BC4299
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481522   (99435) от 12.04.2012
+
+Чуткий сон / Light Sleeper (1992) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший наркоман Джон ЛеТур уже три года как завязал, но продолжает работать наркокурьером на предприимчивую дамочку. Однако встреча с бывшей женой Марианной заставляет Джона пересмотреть свой образ жизни, и ЛеТур, руководствуясь этим неясным знаком судьбы, совершает отчаянную попытку выбраться со дна.Производство: СШАЖанр: Драма, криминалПеревод: Профессиональный (многоголосный, закадровый)Субтитры: РусскиеФормат: DVD9Продолжительность: 01:38:42
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481774   (99436) от 12.04.2012
+
+Carmen Maria Vega - Du Chaos Naissent Les Etoiles (2012) [MP3|320 кб/с]<French Chanson, French Pop, Female Vocal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - La marquise
+02 - On s'en fout
+03 - Sans rien
+04 - Le soldat
+05 - Nan nan
+06 - Country
+07 - Miiaou
+08 - Au mariage de Christine
+09 - Invite chez moi
+10 - Singe savant(   Читать дальше...   )Жанр: French Chanson, French Pop, Female VocalПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA233DC01781FD3FBDDE0AC1B46B634CCFE841A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481905   (99439) от 12.04.2012
+
+HostsMan 4.0.84 Beta5 & Portable [ENG]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание:
+Небольшая программа для редактирования и настройки конфигурационного файла hosts.
+HostsMan позволяет производить следующие действия с этим файлом:
+- обновление через интернет и автоматическое обновление;
+- включать и отключать использование этого файла;
+- совмещать два файла hosts;
+- редактировать;
+- сканировать файл на ошибки, одинаковые записи;
+- отображать количество записей;
+- создавать шифрованную резервную копию файла;(   Читать дальше...   )Название программы: HostsManЯзык интерфейса: ENG
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481701   (99444) от 12.04.2012
 
 Florence + The Machine - MTV Unplugged (2012) [m4a|~276  кб/с]<Acoustic, Indie-Pop>
@@ -513,220 +708,6 @@ magnet:?xt=urn:btih:1DA6B8FF9EDAD852F29BD1DEC825B758C7C2C1A6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72ED6EFC203C01ADF00E1A5C77911BCF8D1D6B8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482550   (99476) от 13.04.2012
-
-Derelict - Perpetuation (2012) [MP3|~295 кб/с]<Technical Progressive Death>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perpetuation 3:05
- 02. Spoils Of War 3:37
- 03. Expiry 2:55
- 04. Digital Birthright 3:25
- 05. Intricate Decay 4:38
- 06. Olympic 3:26
- 07. Ergogenic 3:32
- 08. Recreated 3:06
- 09. Yours To Surpass 2:34
- 10. Shackles Of Indoctrination 4:48(   Читать дальше...   )2012Жанр: Technical Progressive DeathПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E182DD163A8DBAA74A81BC0736B98A107DA8F60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481989   (99480) от 13.04.2012
-
-Jeff Hughell (ex-Brain Drill) - I Came To Hate [EP] (2009) [MP3|320 кб/с]<Technical Instrumental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Came To Hate
- 02. Elbowed Back To Life
- 03. Fuck You All
- 04. Classicaly
- 05. Black Label Bongo Thrash2009Жанр: Technical InstrumentalПродолжительность: 00:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:498971FAC13080EF6ACEF2D0839969C2A376225C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482682   (99483) от 13.04.2012
-
-[Wallpapers] HD Wallpapers №10
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99483.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers №10
-Название: HD Wallpapers №10
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200/1680x1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49978FCF3B11DFB99CA646FA9F2F098880C80D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482758   (99486) от 13.04.2012
-
-VA - Trance Maniacs Party: Trancefer Wave #96 (13.04.2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99486.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Solesystem presents Mel-O-Maniacs - A Little Big Planet (Basil O'Glue Remix)
-002. Santerna - Aquamarine
-003. Radion 6 - B U Tiful (Original Mix)
-004. Patric la Funk - Baltic (Original Mix)
-005. Ralphie B - Bullfrog (Original Mix)
-006. Veracocha - Carte Blanche (Dabruck & Klein Remix)
-007. Marcel Woods - Champagne Dreams (W&W Remix)
-008. Ummet Ozcan - Cocoon (Original Mix)
-009. Matt Bowdidge - Crossing North (Original Mix)
-010. Mark Burton - Delusion (Original Mix)(   Читать дальше...   )13.04.2012Жанр: Trance, Uplifting TranceПродолжительность: 03:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D9BAB52FF711E9861F50BF0B9E5287973EE9D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482164   (99488) от 13.04.2012
-
-VA - MAXI. Популярные новинки Раdio Плюс (2012) [MP3|256-320 kbps]<Pop | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bahh Tee - Я Наверное
-02. Frisco Disco ft. Ski - One Way Ticket (Original Club Mix)
-03. Lia Love feat. Chaddi - Down Down (Kriss Raize Radio Edit)
-04. T1One feat. U'Lee (44) - Всё Будет Как Прежде
-05. Макsим - Небо-самолёты
-06. A-VIA & Extasy Project - Мама-Любовь
-07. Katy Perry - Wide Awake
-08. Spencer & Hill feat. Ari - Surrender (Radio Edit)
-09. Людмила Соколова - Дарю Тебе Счастье
-10. Оксана Почепа - Стаи птиц (DJ Audiophil Remix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73ACAADD045E4568220F6E9A18C07F96FA6423A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481590   (99489) от 13.04.2012
-
-220v - Overcharged (2008) [FLAC|Lossless]<Psychedelic / Full-On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_99489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 220v - Overcharged [08:17]
- 02. 220v - Friday [06:49]
- 03. 220v - Insane To The Brain [07:22]
- 04. 220v - Keeping The Music Real [08:10]
- 05. 220v - Swinguin Beat [07:54]
- 06. Eskimo - Every single sound (220V Remix) [07:54]
- 07. 220v - Kizuna [08:12]
- 08. 220v - The Future Shock [07:22]
- 09. 220v - Turn The Beat Back [06:44]2008Жанр: Psychedelic / Full-OnПродолжительность: 01:08:42
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480892   (99490) от 13.04.2012
-
-Trifixion - A Utopia For The Damned (2011) [MP3|~245 кб/с (V0)]<Brutal Technical Death>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_99490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Human Construct (Intro) (01:53)
- 02. Fucked In Gutteral Vortex (03:56)
- 03. Delta 9 Messiah (04:10)
- 04. In Nomine Patris (03:56)Жанр: Brutal Technical DeathПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F2FB8ED4C0014EF8E33E529D47E0FCF30BD3CC
 ```
 
 

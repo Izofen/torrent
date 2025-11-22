@@ -1,700 +1,701 @@
-###  Публикация: 1144837   (238355) от 30.04.2022
+###  Публикация: 1640596   (236104) от 18.06.2023
 
-David Gilmour - In Concert (2002) Unofficial Release [WavPack 2.0|44,1/24|image+.cue|Audio-DVD-Rip] <Acoustic, Prog Rock, Classic Rock>
+Danzig - Studio Albums (9 releases) (1994-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal with Doom Metal influences>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238355.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236104.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Robert Wyatt's Meltdown Concert
-=========================
-01. Shine On You Crazy Diamond
-02. Terrapin(   Читать дальше...   )Жанр: Acoustic, Prog Rock, Classic RockПродолжительность: 02:08:04
+Danzig — американская метал-группа, смешивающая мрачную лирику и образы с блюз-роковыми веяниями.1994 - Danzig 4
+1996 - Blackacidevil
+1999 - 6.66 Satan's Child
+2002 - I LuciferiЖанр: Heavy Metal with Doom Metal influencesПродолжительность: 08:38:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E05AA20ED15F99C04BEC6D8EA5D95BF8E8C0DB3D
+magnet:?xt=urn:btih:9DECC7B09715B5ECA90511A43FA253427D4391FE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629095   (238357) от 26.04.2023
+###  Публикация: 1640413   (236312) от 17.06.2023
 
-Visage - The Anvil (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave, Synth-pop>
+Darkseed - Studio Albums (8 releases) (1996-2010) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238357.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_236312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 The Damned Don't Cry
-A2 Anvil (Night Club School)
-A3 Move Up
-A4 Night Train(   Читать дальше...   )Жанр: New Wave, Synth-popПродолжительность: 00:42:11
+Darkseed — немецкая готик-метал-группа, образованная в 1992 году.1996 - Midnight Solemnly Dance
+1997 - Spellcraft
+1998 - Romantic Tales
+1999 - Give Me LightЖанр: Gothic MetalПродолжительность: 07:57:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75C1ACC1E694F5BFBD2943833B8C5503D0B77769
+magnet:?xt=urn:btih:40F1C6AC053FEA983DB4813116F75EE2F2ABA434
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141810   (238371) от 30.04.2022
+###  Публикация: 1629913   (236395) от 28.04.2023
 
-Miguel Ramos/Мигель Рамос - Organo Hammond/Орган Хаммонд (1976,1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
+Underworld - Change The Weather (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236395.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Урожай
-A2 Снова Один
-A3 Тема Любви
-A4 Сын Моего Отца(   Читать дальше...   )Жанр: Jazz, Pop
+A1 Change The Weather
+A2 Stand Up
+A3 Fever
+A4 Original Song(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D93D07164B63F6BE4D6F61FF25AC285031D7E03
+magnet:?xt=urn:btih:B2623DCC96EA8789D4F7D9C132CC461ED1AFC7B5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122142   (238389) от 30.04.2022
+###  Публикация: 1630815   (236410) от 04.05.2023
 
-VA - Мелодии экрана, 17 серия (1968) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Soundtrack, Retro>
+Depeche Mode - Playing The Angel (2005)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236410.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Оркестр - Мелодия (из к.ф. ''Три тополя на Плющихе'')
-02. Марк Бернес - С чего начинается Родина (из к.ф. ''Щит и меч'')
-03. З. Харабадзе и И. Мясников - Всё потому (из к.ф. ''У себя дома'')
-04. Оркестр - Лимба (из к.ф. ''Ещё раз про любовь'')(   Читать дальше...   )Жанр: Soundtrack, RetroПродолжительность: 00:25:42
+A1. A Pain That I'm Used To (4:11)
+A2. John The Revelator (3:43)
+A3. Suffer Well (3:49)
+B1. The Sinner In Me (4:56)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:53:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F1847AC70BDA4AAAE0EF665A615F953436BB96C
+magnet:?xt=urn:btih:AE6A86AAFF7E3EB1C8F7E43049BAAEE7137C8110
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140831   (238397) от 30.04.2022
+###  Публикация: 1630590   (236921) от 01.05.2023
 
-Elton John - The New Collection vol. I - vol. II (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
+Manfred Mann's Earth Band - Ансамбль Мэнфреда Мэнна (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock, Classic Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Your Song
-A2 Benny And The Jets
-A3 Harmony
-A4 Take Me To The Pilot(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:44:43
+A1 Круги · Circles
+A2 Тонущий На Суше · Drowning On Dry Land · Рыбный Суп · Fish Soup
+A3 Институт В Чикаго · Chicago Institute
+A4 Калифорния · California(   Читать дальше...   )Жанр: Prog Rock, Classic RockПродолжительность: 00:39:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B6A5C76EDC4B147114E5666F003D6092DE7319A
+magnet:?xt=urn:btih:69F279370E9CF47C9306638DA9D8875246BF9FF0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141505   (238403) от 30.04.2022
+###  Публикация: 1628032   (236992) от 21.04.2023
 
-VA - RETROспектива часть XXI. Зарубежные исполнители V (1950-1962) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Pop, Retro>
+Rupert Hine - Immunity (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238403.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_236992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Сорина Дан и Николае Ницеску (Румыния)- Мои мысли с тобой
-02. Жижи Марга (Румыния) - С песней по полям
-03. Мозез Ля Мар (США) - Когда-нибудь
-04. Мозез Ля Мар (США) - Бал в негритянском районе(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:58:13
+A1 I Hang On To My Vertigo 4:40
+A2 Misplaced Love 4:14
+A3 Samsara 5:15
+A4 Surface Tension 4:19(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:42:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02AF04C9BF7A7499A0397B6A9426AA131106CF9D
+magnet:?xt=urn:btih:31C82911D4C441BCDED9C1FAAD2743E07BB5F002
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628719   (238422) от 24.04.2023
+###  Публикация: 1630326   (237126) от 30.04.2023
 
-Дискоклуб 4 - Ансамбль Мелодия/VA - Популярная Зарубежная Мозаика / Популярные Русские Песни и Романсы (1982) 2 LPs [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Folk, Easy Listening>
+Т. Николаева/Л. Брук и М. Тайманов - И. Стравинский/Ф. Пуленк - Каприччио/Концерт для двух ф-но с оркестром (1964) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-LP1
-Мелодия – С 60—17297-98
-00:37:26
-Популярная Зарубежная Мозаика(   Читать дальше...   )Жанр: Jazz, Folk, Easy Listening
+Каприччио Для Ф-но С Оркестром
+A1 Presto
+A2 Andante Rapsodico
+A3 Allegro Capriccioso Ma Non Giusto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:36:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C24632EB75B7B83B40E4204A830CFA1C6EBE7EE
+magnet:?xt=urn:btih:1D2E61958C216378831928B25235310246FEA534
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137826   (238423) от 30.04.2022
+###  Публикация: 1630226   (237159) от 30.04.2023
 
-VA (Юрий Антонов, Александр Серов, Александр Градский) - Снегири (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
+Gorillaz - Cracker Island (2023) [DSD128 2.0|tracks|Vinyl-Rip] <Electronic, Hip Hop, Rock, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Юрий Антонов - Снегири
-A2 Александр Серов - Признание
-B  Александр Градский - Памяти Джордано Бруно
-=================================(   Читать дальше...   )Жанр: PopПродолжительность: 00:11:37
+01. Cracker Island (3:33)
+ 02. Oil (3:50)
+ 03. The Tired Influencer (3:31)
+ 04. Tarantula (3:32)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 00:37:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87FB0F582AB4026A874A9029F2DF0EF5D2CE59C2
+magnet:?xt=urn:btih:CC458EC151F24CA9F2FCC5F22DBF416BD57AF0BB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639148   (238458) от 12.06.2023
+###  Публикация: 1208569   (237196) от 05.05.2022
 
-Shakra - Studio Albums (13 releases) (1998-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
+VA - Superstars (1974) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_238458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237196.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Shakra — швейцарская рок-группа, основанная в конце 1990-х годов.1998 - Shakra
-1999 - Moving Force
-2001 - Power Ride
-2003 - RisingЖанр: Hard RockПродолжительность: 11:20:24
+01. Tom Jones - Little Lonely One
+02. Gerry Dorsey - The Sentimental Joker
+03. Gilbert O'Sullivan - I Wish I Could Cry
+04. ''The Nocturnes'' - Why (Am I Treated So Bad)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:31:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:817EAB28176C895D92D157F58724122BEE6215DD
+magnet:?xt=urn:btih:7B88A65B6D3FB6F93DC3C9DF6881B15B37930543
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628701   (238489) от 24.04.2023
+###  Публикация: 1630340   (237198) от 30.04.2023
 
-Amon Amarth - Studio Albums (13 releases) (1996-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal>
+Орк. Большого театра СССР, дир. А. Жюрайтис - Р. Щедрин - Сюита № 2 из балета «Конек-горбунок» (1963) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Classical>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Amon Amarth — шведская метал-группа, играющая в жанре мелодичный дэт-метал. Название группы значит «Роковая гора» на синдарине, эльфийском языке, и отсылает к горе Ородруин из романа Дж. Р. Р. Толкина «Властелина Колец». Основной тематикой группы является германо-скандинавская мифология. Музыку Amon Amarth составляет сочетание гроулинга с «тяжелыми» мелодиями и эпическими (   Читать дальше...   )1996 - Sorrow Throughout The Nine Worlds
-1998 - Once Sent From The Golden Hall
-1999 - The Avenger
-2001 - The CrusherЖанр: Melodic Death MetalПродолжительность: 10:30:41
+Р. ЩЕДРИН (р. 1932)
+2-я сюита из балета "Конек-Горбунок"
+01. Танец с балалайками
+02. Братья в ночном дозоре(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:45:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5951C6CF42EB48D5DADE0E5EF44A5514BEAC3E60
+magnet:?xt=urn:btih:45283206E50DD258C2C51C4AD0FF3D051359274C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628957   (238506) от 25.04.2023
+###  Публикация: 1208010   (237201) от 05.05.2022
 
-Duran Duran - Notorious (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock>
+Tom Jones/Том Джонс - Лучшие песни из репертуара... (1981) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237201.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Notorious
-A2 American Science
-A3 Skin Trade
-A4 A Matter Of Feeling(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:08
+I сторона:
+01. Дочь тьмы - Daughter Of Darkness
+02. Если... - If
+03. Брат, одолжи десять центов - Brother Can You Spare A Dime(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:54:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B18B0B3CA005E4E029B8627AEA5DB9DBB3F4830C
+magnet:?xt=urn:btih:6BD36A13677BAA06E0BDA2F5F8379532C236A6EE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636742   (238726) от 01.06.2023
+###  Публикация: 1208554   (237215) от 05.05.2022
 
-Royal Hunt - Studio Albums (17 releases) (1992-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Progressive Metal>
+VA - San Remo '88 (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237215.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Royal Hunt — англоязычная рок-группа из Дании, основанная в 1989 году.1992 - Land Of Broken Hearts
-1994 - Clown In The Mirror
-1995 - Moving Target
-1997 - ParadoxЖанр: Melodic Progressive MetalПродолжительность: 15:38:20
+01. Massimo Ranieri - Perdere l’amore
+02. Fiordaliso - Per Noi
+03. Toto Cutugno - Emozioni
+04. Marcella - Dopo La Tempesta(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:45:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0B0B5087FB0EB57093151DDDB49017BE5EA1041
+magnet:?xt=urn:btih:B7D837C629D012790A1BF5CFBB82BAB33E73DE73
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628145   (238861) от 22.04.2023
+###  Публикация: 1197473   (237227) от 05.05.2022
 
-Оркестр Поля Мориа (Paul Mauriat) - Под музыку Вивальди (1980) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Instrumental>
+Kenichi Sonoda & His Dixie Kings - Russian Album (1971) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Dixielend>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238861.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1
-
-1. Под музыку Вивальди · Sur Un Air Du Vivaldi 3:02
-2. Pulstar 3:29(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:42:26
+01. Очи чёрные
+02. Вот мчится тройка удалая
+03. Огонёк
+04. Вечерняя песня(   Читать дальше...   )Жанр: Jazz, DixielendПродолжительность: 00:41:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B19C1FCFBBC3002FDEF648B93FA5516B968A9E22
+magnet:?xt=urn:btih:D36EB545F9F47FB3827664FB49B2429A3BE0DE0A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087724   (238862) от 27.04.2022
+###  Публикация: 1208575   (237241) от 05.05.2022
 
-Блестящие - Новое и лучшее (1999) [FLAC 2.0|44,1/16|tracks|MC-Rip] <Europop>
+Raffaella Carra/Рафаэлла Карра - Поёт Рафаэлла Карра (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Чао, Бамбино!
-02. Милый рулевой (RMX)
-03. Новый год
-04. Неоткрытое письмо(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:14:16
+01. Чак-Чак (Ciak) Malgioglio - Castellari
+02. Вернись Ко Мне (Torna Da Me) Belfiore - Boncompagni - Bracardi
+03. Несчастная Любовь (Povero Amore) Boncompagni - Bracardi
+04. На Словах (A Parole) Belfiore - Boncompagni - Bracardi(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:30:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81AE1EECB178B2C91858083605D08BE16C8DEBA4
+magnet:?xt=urn:btih:6722F60B27957CA21FA8379CC569E108A153B068
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628540   (238933) от 23.04.2023
+###  Публикация: 1208517   (237259) от 05.05.2022
 
-Kraftwerk - Computerwelt (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
+VA - Italian Hit-Parade 2 (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rips] <Italo Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238933.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Computerwelt 5:05
-A2 Taschenrechner 5:00
-A3 Nummern 3:00
-(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:34:11
+01. Dori Ghezzi - Margherita on so la
+02. Stefano Sani - Complimenti
+03. Rosanna Fratello - …Se t’amo t’amo
+04. Adriano Celentano - Atmosfera(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:37:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:185DAB655B3FD287507241D596DE1DB6D312785A
+magnet:?xt=urn:btih:CE2B6A4FF241262493C72047E6B61C7F9BBF6E93
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572611   (238954) от 27.08.2022
+###  Публикация: 1630459   (237261) от 01.05.2023
 
-Europe - Дискография (14 albums) (1983-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Heavy Metal, Glam Metal>
+Sentenced - Studio Albums (12 releases) (1990-2005) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death/Gothic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_238954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Europe — шведская рок-группа, основанная вокалистом Джоуи Темпестом и гитаристом Джоном Норумом. В первый период существования группа относилась к жанру глэм-метал, но после возрождения перешла на современные хард-рок и хэви-метал.1983 - Europe
-1984 - Wings of Tomorrow
-1986 - The Final Countdown
-1988 - Out of This World(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Glam MetalПродолжительность: 12:58:25
+Sentenced — финская англоязычная метал-группа, сменившая с момента основания в 1989 году до момента распада в 2005 несколько различных метал-стилей.1991 - Shadows Of The Past
+1993 - North From Here
+1995 - Amok
+1996 - DownЖанр: Melodic Death/Gothic MetalПродолжительность: 09:02:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E1E4070308C69FA7EA93A66BD1ACB0DBB28783E
+magnet:?xt=urn:btih:3E6F8C1601CBCD2593A55A89E50F59ED4A3AB2CE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638659   (238977) от 09.06.2023
+###  Публикация: 1640695   (237289) от 18.06.2023
 
-Beseech - Studio Albums (6 releases) (1998-2016) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic Metal>
+INXS - Kick (1987) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238977.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237289.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Beseech — шведская готик-метал-группа из города Бурос, основанная в 1992 году, прекратившая существование в 2006 году и воссоединившаяся в конце 2013-го.1998 - ...From A Bleeding Heart
-2000 - Black Emotions
-2002 - Souls Highway
-2004 - DramaЖанр: Gothic MetalПродолжительность: 04:36:17
+A1 Guns In The Sky 2:20
+A2 New Sensation 3:39
+A3 Devil Inside 5:11
+A4 Need You Tonight 3:04(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:211078102857C9AF767475658DA88269C087CCFF
+magnet:?xt=urn:btih:627804D2529AD31D1B074DDBD732F69B3E7B325E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063727   (239353) от 25.04.2022
+###  Публикация: 848648   (237318) от 05.05.2022
 
-Tom Jones - Tom Jones Sings She's A Lady (1971) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
+The International Pop Orchectra & Chorus - At Last 26 Non-Stop Hits For Dancing (1972) [FLAC 2.0|192/24|Vinyl Rip]<Jazz, Latin, Pop, Classical>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239353.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 She's A Lady
-A2 Do What You Gotta Do
-A3 In Dreams
-A4 Nothing Rhymed(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:15
+01. Have Nagila
+02. Kalinka
+03. Wenn Ich Komm (Wooden Heart)
+04. Oh! Happy Day(   Читать дальше...   )Жанр: Jazz, Latin, Pop, ClassicalПродолжительность: 00:34:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1AF7D07A4FF897612C46534F2AF3883BE931A0B
+magnet:?xt=urn:btih:6CFB31D2F76A796152E51685451FA51826BA5BE2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627866   (239544) от 20.04.2023
+###  Публикация: 1208540   (237374) от 05.05.2022
 
-Yello - One Second (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
+VA - Le Canzoni D'Oggi (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 La Habanera 5:10
-A2 Moon On Ice 4:12
-A3 Call It Love 5:05
-A4 Le Secret Farida 3:17(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:49:08
+01. Al Bano & Romina Power – Sempre, Sempre
+02. Loretta Goggi – Io Nascero
+03. Adriano Celentano – Lunedi
+04. Marcella Bella – La Verita(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:44:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A20B056CFF437D1DA437C695FAF5CAB9CAD60C8
+magnet:?xt=urn:btih:972872B0AA114045CC6429CD3E72B909A66CB422
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059810   (239608) от 24.04.2022
+###  Публикация: 1640300   (237412) от 17.06.2023
 
-Пикник - Иероглиф (1987) Repress 1988 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Goth Rock>
+Helloween - Легенды Зарубежного Рока (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239608.jpg" />
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_237412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Остров
-02. Иероглиф
-03. Праздник
-04. Ты вся Из огня(   Читать дальше...   )Жанр: Goth RockПродолжительность: 00:38:49
+Side A:
+01. Dr. Stein
+02. Number One
+03. Steel Tormentor(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:36:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FDF8CAFA6CD121221CCDD1C4DF82D6354C657EF4
+magnet:?xt=urn:btih:0F81B2C9C5C16D8A44EF9E081F5B9B67361A40AB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590239   (239802) от 17.04.2023
+###  Публикация: 1630238   (237451) от 30.04.2023
 
-Thunder - Studio Albums (15 releases) (1990 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
+Dee D. Jackson - Cosmic Curves (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_237451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Thunder — английская рок-группа из Лондона. Основана в 1989 году бывшими участниками Terraplane Дэнни Боузом (вокал), Люком Морли (гитара, бэк-вокал) и Гэри Джеймсом (ударные), а также вторым гитаристом и клавишником Беном Мэтьюзом и басистом Марком Лакхерстом.1990 - Laughing On Judgement Day
-1992 - Laughing On Judgement Day
-1994 - Behind Closed Doors
-1996 - The Thrill Of It All(   Читать дальше...   )Жанр: Hard RockПродолжительность: 19:09:36
+A1 Automatic Lover 4:08
+A2 Red Flight 4:10
+A3 Galaxy Of Love 4:48
+A4 Meteor Man 4:47(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:37:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BD5E3292C062BACC5A1B5441B74A76E40B3DF74
+magnet:?xt=urn:btih:C7C57E8EC626A14CA1AD3EF1767C7F9A56EA7A12
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635324   (239834) от 25.05.2023
+###  Публикация: 1630250   (237534) от 30.04.2023
 
-И. Кальман - Принцесса цирка. Фрагменты из оперетты, запись 1952 г. (1982) [FLAC 1.0|192/24|tracks|Vinyl-Rip] <Classical, Operetta>
+Dee D. Jackson - Thunder & Lightning (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239834.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237534.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сторона 1:
-Увертюра. I действие
-Сцена и дуэт Лизы и Тони. Ария Мистера Икс. Ария Сюзанны
-Сцена и дуэт Сюзанны и Мистера Икс(   Читать дальше...   )Жанр: Classical, OperettaПродолжительность: 00:44:27
+A1		S.O.S. (Love To The Rescue)	4:21
+A2		Which Way Is Up	4:26
+A3		Living In A Dream	4:56
+A4		Teach You How To Dance	5:31(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:41:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD16EB57D724FF98A3C033448138801106671ACD
+magnet:?xt=urn:btih:8C5254D9BB5A34611EB66977C6F87B0DCBA08C3C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635254   (239913) от 25.05.2023
+###  Публикация: 1630201   (237599) от 30.04.2023
 
-Heretic - Studio Albums (4 releases) (1986-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Thrash Metal>
+Красные Маки - Если Не Расстанемся... (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237599.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Heretic - американская пауэр-метал группа из Лос-Анджелеса, образованная в 1986 году.1986(2013) - Torture Knows No Boundary (EP)
-1988 - Breaking Point
-2012 - A Time Of Crisis
-2017 - A Game You Cannot WinЖанр: Heavy/Power/Thrash MetalПродолжительность: 02:50:08
+А1 Встречай Меня
+А2 Если Не Расстанемся
+А3 Скажет Девчонка
+А4 Давай Попробуем Вернуть(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:800744C29636105CC849E27C2B23158D2EF05028
+magnet:?xt=urn:btih:8E6CDF7484CFC3EF2251AAEFB65F308B95B16B3D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635275   (239937) от 25.05.2023
+###  Публикация: 1630078   (237690) от 29.04.2023
 
-VA - Русская Балалайка (1968) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Folk, Instrumental>
+Holy Moses (& Temple Of The Absurd) - Studio Albums (16 releases) (1986-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Speed/Thrash Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 П. Нечепоренко - Час Да По Часу
-A2 П. Нечепоренко - Олынка
-A3 П. Нечепоренко - Цвели, Цвели Цветики
-A4 П. Нечепоренко - Наигрыш Владимирских Рожечников(   Читать дальше...   )Жанр: Folk, InstrumentalПродолжительность: 00:45:53
+Holy Moses — немецкая трэш-метал-группа, одна из первых групп на немецкой трэш-метал-сцене.
+Лидер группы — вокалистка Сабина Классен.1986 - Queen Of Siam - Walpurgisnight Demo
+1987 - Finished With The Dogs
+1989 - The New Machine Of Liechtenstein
+1990 - World ChaosЖанр: Speed/Thrash MetalПродолжительность: 13:02:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11E5CF22E869351C78A846E76F1C8C0586F1413C
+magnet:?xt=urn:btih:541FD872CC3ABEE3863ADF7EE3741935A22B6904
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626980   (239947) от 16.04.2023
+###  Публикация: 1548519   (237707) от 03.05.2022
 
-Yello - Stella (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+Poets of the Fall - Дискография (12 releases) (2005 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative/Soft/Indie Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237707.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Desire 3:47
-A2 Vicious Games 4:18
-A3 Oh Yeah 3:05
-A4 Desert Inn 3:30(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:41:06
+Poets of the Fall (с англ. — «Поэты Осени») — финская рок-группа, записывающаяся на собственном лейбле «Insomniac». Образовалась в Хельсинки 25 апреля 2003 года из дуэта старых друзей: вокалиста Марко Сааресто и гитариста Олли Тукиайнена, а также клавишника и продюсера Маркуса "Капитана" Каарлонена. Концертный состав «Poets of the Fall» включает (   Читать дальше...   )2005 - Signs of Life
+2006 - Carnival of Rust
+2008 - Revolution Roulette
+2010 - Twilight Theater(   Читать дальше...   )Жанр: Alternative/Soft/Indie RockПродолжительность: 10:57:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:145DCD8D2CBA70C79D0C6A55D926360B6B106E64
+magnet:?xt=urn:btih:83A0D503523CFEB6F1CB88310E877900D4AECB00
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627339   (239963) от 18.04.2023
+###  Публикация: 1171308   (237749) от 03.05.2022
 
-Thomas Anders - Whispers (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
+VA - XXXL Европейский 5 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Electronic, Eurobeat>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239963.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_237749.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 The Sweet Hello, The Sad Goodbye 4:32
-A2 Whispers Of Love 5:05
-A3 The Echo Of My Heart 4:27
-A4 Maybe I'm Dreaming 4:23(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:45:25
+Side A:
+01. Modern Talking - Win The Race
+02. Modjo - Chillin'
+03. Billy More - Come On And Do It(   Читать дальше...   )Жанр: Electronic, EurobeatПродолжительность: 01:18:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D8A61895B0FC82BA45E281A48A90FCF017F2724
+magnet:?xt=urn:btih:13452A78F5566CADF54DF1ED2A537EA91F320E4E
 ```
 
 

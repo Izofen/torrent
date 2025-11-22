@@ -1,3 +1,57 @@
+###  Публикация: 1809277   (64760) от 29.07.2025
+
+Paramore - All We Know Is Falling (2005) Deluxe Edition, 2025, Fueled By Ramen [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All We Know [00:03:13]
+02. Pressure [00:03:05]
+03. Emergency [00:04:00]
+04. Brighter [00:03:43](   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F9BD1074CB06498EE1F0AFF9CA1BA2EF14DEA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809269   (64761) от 29.07.2025
+
+Gloombound - Dreaming Delusion (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Atmospheric Doom / Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At the Precipice to Longinquity [00:09:13]
+02. An Eternity of Complete Acquiescence [00:09:38]
+03. Salvation [00:02:03]
+04. Luminary Dissolution [00:07:06](   Читать дальше...   )Жанр: Atmospheric Doom / Death MetalПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0ED1B717D7296FB5B764937EB9AAEA7FB04581F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809091   (64762) от 28.07.2025
 
 Валерий Новицкий, Сергей Карелин | Научный маг (Книга 3). Воитель (2025) [MP3, Егор Браун]
@@ -592,57 +646,6 @@ Buddy Reed & Th' Rip It Ups - Tough Enough (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB6F7A45CB3723D970B3A238C035AA84174F4820
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808995   (64786) от 27.07.2025
-
-Военная тайна с Игорем Прокопенко (26.07.2025) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64786.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0913A0EC2CFD2616A8E674A0A5FE8AB0038BFB5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808999   (64787) от 27.07.2025
-
-In Theory - Retribution (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Retribution (04:08)
- 02 - Stain On My Soul (03:38)
- 03 - The River (04:09)
- 04 - Get Me Higher (feat. Vinny Appice) (04:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9464F0BA57984C70D91F754EB865833B387F3FF1
 ```
 
 

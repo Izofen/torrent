@@ -1,3 +1,55 @@
+###  Публикация: 1780534   (70454) от 18.02.2025
+
+VA - Smooth Jazz Romance (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Boney James - Stop, Look, Listen (To Your Heart) (4:56)
+02.  Kenny G - Ritmo y Romance (7:11)
+03.  Peter White - Always, Forever (Album Version) (5:08)
+04.  Gerald Albright - Because Of You (5:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:10:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61656C5E7A2A0D271A1D9A12B03A93A8B4273659
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780399   (70455) от 18.02.2025
+
+Журнал | Монокль №8 (1376) (17-23 февраля 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Деловой журнал «Монокль» – новое и старое издание одновременно. С 16 октября 2023 года его издает команда журналистов, которая в течение 28 лет делала журнал «Эксперт».
+В «Монокле» вы найдете макроэкономический анализ, прогнозы, обзоры конъюнктурных рынков и отраслей – от природного газа до изготовления манекенов, анализ финансовых рынков и новости финансовой политики (   Читать дальше...   )Жанр: Деловой журналИздательство: Александр ПопцовФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6859987716000C5A6A64E505D92335B550A6797
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780546   (70456) от 18.02.2025
 
 VA - Velvet Dreams the Smooth Lounge Sounds of Romance (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
@@ -595,60 +647,6 @@ Sunny Bleau And The Moons - Passion & Regrets (2025) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:530B3510CA20935C42BC8AA530866CE4D0FA7932
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780228   (70480) от 17.02.2025
-
-R.J. Archer & The Painful Memories - The Cost of Loving Crisis (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Get It Together (2:39)
-02.  Barbara (4:01)
-03.  A Heart in Winter (3:33)
-04.  Out of Line (2:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12B5D819231878E35BDB2935023981705DA4CC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780176   (70481) от 17.02.2025
-
-Leo Benmass - Origins (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_70481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Origins (5:14)
-02.  Let Me love you baby (3:38)
-03.  Voodoo Child (13:18)
-04.  Riders on the storm (4:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923395256A189CD35830C79E58E427A321AF1789
 ```
 
 

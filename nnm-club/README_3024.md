@@ -1,3 +1,202 @@
+###  Публикация: 453831   (93848) от 19.02.2012
+
+Voices From The Lake Feat. Donato Dozzy & Neel - Voices from the Lake (Album) (2012) [MP3|320 kbps]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iyo 9:53
+02. Vega 4:13
+03. Manuvex 4:56
+04. Circe 4:30
+05. S.T. (VFTL Rework) 8:17
+06. Meikyu 9:09
+07. In Giova 7:25
+08. Twins In Virgo 5:14
+09. Twins In Virgo (Reprise) 4:04
+10. Mika 5:51(   Читать дальше...   )2012Жанр: Techno, Ambient, Deep TechПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF95E2DBC7B80389EC059CCD0F90EDBD9655091
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455074   (93853) от 19.02.2012
+
+Little G Weevil - The Teaser (2011) [MP3|320 kbps]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Men Don`t Dance (03:23)
+02. The Teaser (03:42)
+03. Big City Life (04:40)
+04. Back Porch (03:44)
+05. Highway 78 (05:11)
+06. Apple Picker (04:45)
+07. Dad`s Story (02:34)
+08. 8. 47 (04:41)
+09. Liquor Store (02:40)
+10. She Used To Call Me Sugar (04:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1121A71E490833139AEBE184E8E13CEB3741D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454742   (93859) от 19.02.2012
+
+Semargl - Satanic Pop Metal (2012) [MP3|256 kbps]<Melodic Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Hunger (03:24)
+02. Sweet Suicide (03:24)
+03. Drag Me to Hell (03:31)
+04. God Is Not Love (03:29)
+05. Tak, Kurwa (03:53)
+06. Suck My Dick (02:47)
+07. Labyrinth (03:22)
+08. Join in Fire (02:43)
+09. I Hate You (03:26)
+10. Opium (04:01)(   Читать дальше...   )2012Жанр: Melodic Industrial MetalПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2FB02F09F02D864A302E04FD7FB4498750E6B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454987   (93872) от 19.02.2012
+
+Игорь Гаврилов | Стальной арбитр [2012] [FB2,epub,rtf]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот мир очень похож на наш. В нем те же материки и те же народы, но у него совсем другая история, творимая не только мечом, но и магией…
+Еще в Средние века европейские страны объединились и образовали Континентальный Имперский Союз, или просто - Империю. Но даже в этой Империи нет мира. Чудовищная и непостижимая эпидемия мгновенно превращает заболевшего человека в зловещего монстра, именуемого эаром. Монстров расплодилось так много, что люди вынуждены начать против них войну. Один из виднейших сановников Империи, герцог Александр Стил, он же Стальной Арбитр, проникает в главную тайну эаров - их создают рнайхи, пришельцы, уже не первый раз пытающиеся захватить Землю. В схватке с рнайхами герцог погибает, но битва еще не проиграна. Совершенно неожиданно для себя Стальным Арбитром становится Юрий Кириллов - россиянин, живущий в нашем времени и в нашем мире…2012Формат: FB2,epub,rtf
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500F2206BBF3D732E947B4ADBE5305DCF8E6C817
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454753   (93873) от 19.02.2012
+
+Пяточка - Ах, какая шаурма! [Single] (2012) [MP3|320 kbps]<Electro-Punk, Steb, Rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Леопардовые трусы (04:18)
+02. Шаурма (03:30)
+03. Завязал (Crank version) (03:12)
+04. Завязал (Punk version) (03:01)2012Жанр: Electro-Punk, Steb, RapПродолжительность: 00:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB3E83ACCEF25489CF75622E8C4F017319D36E51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454745   (93880) от 19.02.2012
+
+Журнал | Selber Machen [февраль 2012] [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Selber Machen - немецкий журнал для домашних мастеров: советы по ведению домашнего хозяйства, создание изделий из дерева для дома и сада своими руками, обустройство приусадебного участка, навыки обращения с рабочим инструментом, мелкий ремонт, идеи по оформлению интерьерафевраль 2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B8484A705827BDD2E424FEE5B0F464BB0B04D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454822   (93892) от 19.02.2012
+
+Большое разочарование / The Big Chill (1983) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_93892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жили-были в Южной Каролине восемь друзей детства. Разъехались в разные края и стали профи каждый в своём деле: журналюга Майкл, вояка Ник, звезда телеэкрана Сэм и влюбленная в него Кэрин, молодые супруги Хэролд и Сара, а также Мег и заводила компании Алекс. Последний, кстати, умер. Точнее — покончил с собой. Именно похороны и стали причиной встречи этой семёрки и (   Читать дальше...   )Производство: СШАЖанр: Драма, КомедияРежиссер: Лоуренс КэзданАктеры: Том Беренджер, Гленн Клоуз, Джефф Голдблюм, Уильям Херт, Кевин Клайн, Мэри Кэй Плэйс, Мег Тилли, ДжоБет Уильямс, Дон Гэллоуэй, Джеймс Гиллис, Джон Кэсдан, Мюриэль Мур, Патриция ГолПеревод: Профессиональный многоголосыйПродолжительность: 01:40:00
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454957   (93904) от 19.02.2012
 
 Прожекторперисхилтон. Сезон 4. Выпуск 18(118) (17.02.2012) DVBRip
@@ -557,219 +756,6 @@ VA - Minimal Art v.9 (17.02.2012) [MP3|320 kbps]<Minimal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41C9E3BF5BF53918349DE66079E0DEB9A40E73D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454996   (93989) от 21.02.2012
-
-VA - Minimal Art v.7 (15.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adelmo - Angela (Oscar And Chester Remix) (7:08)
- 02. Anton Ishutin - April 12 (Original Mix) (7:17)
- 03. Damolh33 - Sweep (Original Mix) (6:27)
- 04. David Temessi – De Ja Vu (Zareh Kan Remix) (7:05)
- 05. Dich - Erza Fire (Dub Dummies Remix) (8:21)
- 06. Droplex - Descript (Mr. Wise Remix) (6:30)
- 07. Edoardo Spolaore - Hope (Original Mix) (7:10)
- 08. Emrah Celik - Let's Get Dangerous (Gokhan Guney, Emrah Celik Remix) (6:08)
- 09. Gianni Ruocco – Caribean Week (Original Mix) (6:45)
- 10. Marcel Knopf - Blood Smell (Dapayk Remix) (7:19)(   Читать дальше...   )15.02.2012Жанр: MinimalПродолжительность: 02:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD329286EA85C203B56C73047C2CC297A937952E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455256   (93994) от 21.02.2012
-
-[Wallpapers] Обои для рабочего стола.
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_93994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола,на любой вкус(280 шт.)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB3B6219028615B61FCF322DBDB04046C682A70C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455910   (93995) от 21.02.2012
-
-Julian Sas - Bound To Roll (2012) [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_93995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life On The Line (5:01)
-02. Mercy (4:00)
-03. Bound To Roll (3:59)
-04. How Could Iґve Been So Blind (4:36)
-05. Shadow Play (4:40)
-06. Swamplands (4:14)
-07. 30 Days In The Hole (3:25)
-08. The Blues Wonґt Stay (4:19)
-09. Tear It Up (3:08)
-10. Burninґ Brides (5:15)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455058   (94011) от 21.02.2012
-
-Dapayk & Padberg - Sweet nothings (2012) [MP3|192-320 kbps]<Tech-house>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94011.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Too Lazy (6:01)
-2. Play (5:51)
-3. Sweet Nothings (4:55)
-4. Fluffy Cloud (8:13)
-5. Endless Games (3:31)
-6. The Sun Come Up (7:16)
-7. Razorskit (1:52)
-8. Berlin Summer Nights (5:56)
-9. Take These Scissors (5:42)
-10. Backyard (4:33)(   Читать дальше...   )2012Жанр: Tech-houseПродолжительность: 01:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E27F3783B872DDD843A259EFBB4CB252A45308
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455849   (94013) от 21.02.2012
-
-Журнал | Автомир [Россия] №8 [февраль 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94013.jpg" />
-</div>
-
-
-###  Подробнее
-
-АвтоМир — единственный в России еженедельный автомобильный журнал. Самые свежие новости из мира автомобилей. Сравнительные тест-драйвы автомобилей-одноклассников. В каждом номере представляем: автомобиль недели — лидер российских продаж. Концепт-кар — авто будущего. Российские и международные автомобильные выставки и автогонки. Лучшие московские автосалоны и официальные (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5FCC00BC2B565461922FEE79D18AC4109366421
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455992   (94037) от 21.02.2012
-
-Albert King & Otis Rush - Door To Door (1998) [FLAC|Lossless]<General Electric Blues>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_94037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albert King - Searchin' For A Woman (2:49)
-02. Albert King - Bad Luck (3:06)
-03. Otis Rush - So Close (3:03)
-04. Albert King - Callin' For My Darlin' (2:47)
-05. Otis Rush - I Can't Stop (3:06)
-06. Albert King - Won't Be Hangin' Around (2:17)
-07. Otis Rush - I'm Satisfied (2:57)
-08. Otis Rush - All Your Love (2:26)
-09. Otis Rush - You Know My Love (2:56)
-10. Albert King - Merry Way (2:43)(   Читать дальше...   )1998Жанр: General Electric BluesПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455673   (94058) от 21.02.2012
-
-VA - Four Seasons: Winter mixed by Paul Oakenfold (2012) [MP3|320 kbps]<Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_94058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dmitry Globa - La Aurora Boreal
-02. John '00' Flemming - The Astrophysical Nebula
-03. Paul Oakenfold & Robert Vadney - Pop Star (Yahel Remix)
-04. Matisse & Sadko - Amulet
-05. Limbo - Paradox
-06. Solarstone feat. Alex Karweit - Breakaway (Solarstone's Phuture Mix)
-07. Talpa - The Moon (Flegma & Nerso Remix)
-08. Aggresivnes - Futurasia (Blazer Remix)
-09. Oakenfold feat. Tamra Keenan - Maybe It's Over (Organ Donors Perfecto Mix)
-10. Tim Jirgenson - Get Ready(   Читать дальше...   )2012Жанр: Trance, Progressive TranceПродолжительность: 01:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4E271988E3CAE84491EA5A7A22F6FB84B6494C
 ```
 
 

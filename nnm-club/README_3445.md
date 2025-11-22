@@ -1,3 +1,192 @@
+###  Публикация: 1724291   (109255) от 19.05.2024
+
+Gjenferd - Gjenferd (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, , Psych, Stoner, 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Octane [00:03:51]
+02. Starless [00:07:17]
+03. Burning Soil [00:04:43]
+04. Restless Nights [00:05:07](   Читать дальше...   )Жанр: Hard Rock, , Psych, Stoner, 70'sПродолжительность: 00:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27D7C432D505EF835E189CF0219A47DB2E69C79D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724225   (109256) от 19.05.2024
+
+Сто к одному (19.05.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109256.jpg" />
+</div>
+
+
+###  Подробнее
+
+"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
+Потому что сколько людей, столько и мнений.
+
+А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Театр без сцены" против команды "Театр без границ"Язык озвучки: РусскийПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:993D86163543BDA19EFABD4ADB3AD463B83437EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724364   (109257) от 19.05.2024
+
+Matthew Rotker-Lynn - Introducing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thermo (5:33)
+02. All Or Nothing At All (7:56)
+03. Edda (4:24)
+04. Oblivion (4:31)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409158A8FAD047ED7752A90C17DDB308771D1291
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724319   (109258) от 19.05.2024
+
+Agusa - Noir (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Psychedelic Rock, Prog Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tunnelseende
+02. Skottet i parken
+03. Ljusglimtar
+04. Den forsvunne brevbararen(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic Rock, Prog FolkПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D253509790458ED5AE0B96371C84D98800FCEF7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723956   (109259) от 19.05.2024
+
+Combichrist - History of Madness (Live at Complex, L.A.) (2016) [MP3|320kbps] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Brain Bypass (Live at Complex, L.A.) [00:05:01]
+02 - Adult Content (Live at Complex, L.A.) [00:05:48]
+03 - Winteryear (Live at Complex, L.A.) [00:03:41]
+04 - Without Emotions (Live at Complex, L.A.) [00:04:38](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 01:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E053E275C60E410FEA036BC9FF6BB90A7968E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724363   (109260) от 19.05.2024
+
+Johan Rudebjer trio - Sandkorn (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandkorn (4:51)
+02. Flärken (4:19)
+03. Fred (2:39)
+04. Jazz eller hockey? (4:17)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B6E3D57362640AC68DD4E720C9A406E9535934
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724367   (109261) от 19.05.2024
+
+Monsieur MALA - Monsieur MALA (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storyteller (7:10)
+02. al Fayhaa (3:45)
+03. Ai De Mim (3:21)
+04. Fly Fly (3:05)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2482948EAC1C24116CCBFBF8897F66D789AE4FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724238   (109262) от 19.05.2024
 
 Alan Broadbent - Jazz Funk (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Funk>
@@ -499,190 +688,6 @@ Galantis - Rx (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance-Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2458631C704163AE6070D49AAD2C9A245553F07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724256   (109281) от 19.05.2024
-
-Relaxing Instrumental Music - French Breakfast Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parisian Bistro Piano (3:15)
-02. French Morning (2:58)
-03. Dinner French Style (3:35)
-04. Jazz Manouche (3:04)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3E755EB7BB557D94EEEEA405CB952BAAA23D6CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724355   (109282) от 19.05.2024
-
-Военная тайна с Игорем Прокопенко (18.05.2024) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109282.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E594C3458DC4DC4D2F20B014A7804FE613F16478
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724298   (109283) от 19.05.2024
-
-Crooked Ways - No Design (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Hard Rock, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Function: Intro) [00:00:25]
-02. Lightning in a Body [00:03:28]
-03. izzit [00:03:38]
-04. 151 [00:03:49](   Читать дальше...   )Жанр: Alternative Metal, Hard Rock, MetalcoreПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E665718D0B0C29FDAC206036085557C27FB93D83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724255   (109284) от 19.05.2024
-
-Relax Time Zone, Jazz Acústico - Slow Day with Jazz (Instrumental Relaxing Music 2024) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nu Jazz Nook (3:55)
-02. Harmonic Homecoming (3:55)
-03. Revolution in Repose (4:50)
-04. Crossover Calm (3:38)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13D66D4613A2D74EBC5E6479B2CA52652ABBEA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724181   (109285) от 19.05.2024
-
-VA - Electronica Confessions, Vol. 4 (2014) [FLAC|Lossless|WEB-DL|tracks] <Electro, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tony S - Not the Droids You're Looking For (6:40)
-02. DGL.Co. - Music.Life.Solutons (5:20)
-03. J Dovy - Once Upon a Night (7:24)
-04. Makvillian - Luciano's Dream (5:19)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 03:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E043357CD8EEF904042818036E96745CDD9875
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724302   (109286) от 19.05.2024
-
-Первая передача на НТВ. Автомобильная передача (19.05.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109286.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Санкт-Петербурге автобус рухнул в реку, 7 человек не смогли выбраться из салона. Спастись удалось лишь одному пассажиру и водителю. Насколько вообще эффективны системы эвакуации в общественном транспорте?
- Как выбрать автомастерскую, которой можно доверять?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A2DCF618D87F88770FDA2D307B9E8FAD3FC4268
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724121   (109287) от 19.05.2024
-
-Rapsody - Please Don't Cry (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - She's Expecting You (00:01:08)
-02 - Marlanna (00:02:33)
-03 - Asteroids (00:02:35)
-04 - Look What You've Done (00:04:20)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1704FA9E2C682F71D15657477E3F0E7759DB6DDA
 ```
 
 

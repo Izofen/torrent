@@ -1,3 +1,27 @@
+###  Публикация: 1814420   (6213) от 24.08.2025
+
+Firehawk FPV: Drone Warfare Simulator (2025) [Ru/Multi] (build 19708406) Repack AIexandro
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firehawk - это тактический симулятор FPV-дронов. Поднимитесь в небо с арсеналом оружия против бесконечных врагов с реальной физикой и управлением дронов. В Firehawk вы - сила природы. Проскальзывайте сквозь огонь, овладейте воздушным боем и несите разрушение сверху в этом высокорисковом FPV дрон roguelike шутере. Пилотируйте продвинутые боевые дроны через интенсивные (   Читать дальше...   )Тип издания: RepackРазработчик: TruePlayersЖанр: Симулятор, Полёты, ШутерЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990A7E8EAA3625592D3AEC55FE53906051ABC8C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804021   (6214) от 24.08.2025
 
 Folder Player Pro v5.35 b352 Paid [Ru/Multi]
@@ -601,33 +625,6 @@ magnet:?xt=urn:btih:DCBECBED3A0EEC3DD9736654724F177FCA205A83
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:074EB4603335D0EBF9D23E0BB82EF872C98BA617
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814287   (6239) от 23.08.2025
-
-Heidarlegur - Time Machine to Travel Back to Childhood (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_6239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Time Machine to Travel Back to Childhood (2:11)
-02.  Dandelion Wine (2:03)
-03.  Girl in a Green Dress (2:43)
-04.  I Stole These Flowers for You. (From the Bottom of My Heart) (2:51)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:21:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:314B3F987DDAB0A506634A4012C26FF3955C8A03
 ```
 
 

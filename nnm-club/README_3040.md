@@ -1,3 +1,228 @@
+###  Публикация: 462883   (95580) от 05.03.2012
+
+VA - Fresh, Sharp & Sweet (1996) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Miles Davis - Milestones (5:45)
+02.Sarah Vaughan - Wave (3:29)
+03.George Benson - Jumpin' With Simphony Sid (6:35)
+04.Weather Report - Birdland (6:01)
+05.Charlie Parker - A Night In Tunisia (4:45)
+06.Stan Getz - Diamond Pin (Diaper Pin) (2:42)
+07.Louis Armstrong - C'est Si Bon (3:32)
+08.Art Blakey - Carol's Interlude (5:36)
+09.Carmen McRae - Sometimes I'm Happy (3:27)
+10.Gerry Mulligan - Bernie's Tune (8:04)(   Читать дальше...   )1996Жанр: JazzПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462912   (95588) от 05.03.2012
+
+Hot Club Zagreb - Hot Club Zagreb (2003) [FLAC|Lossless]<Swing, Gypsy>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Sandman (2:37)
+02. Dark Eyes (3:47)
+03. Django's Tiger (2:24)
+04. Tears (4:18)
+05. Sweet Georgia Brown (2:19)
+06. Limehouse Blues (2:51)
+07. September Song (3:24)
+08. Sheik Of Araby (2:12)
+09. Dinah (2:32)
+10. Swing 41 (3:28)(   Читать дальше...   )2003Жанр: Swing, GypsyПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462725   (95599) от 05.03.2012
+
+El Suerte & Friends - Cafe Latino (2002) [FLAC|Lossless]<Easy Listening>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Rio De La Pasiуn
+02. Songuara
+03. Nothern Light
+04. Colour Festival
+05. Solola
+06. Garifuna Rhythm
+07. Rice & Beans
+08. Orange Walk
+09. Catalina
+10. Esperanza(   Читать дальше...   )2002Жанр: Easy ListeningПродолжительность: 01:13:18
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462911   (95603) от 05.03.2012
+
+Alice Coltrane - Universal Consciousness & Lord Of Lords (2011) [FLAC|Lossless]<Jazz, Modern Composition>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Universal Consciousness (5:06)
+02. Battle At Armageddon (7:21)
+03. Oh Allah (4:55)
+04. Hare Krishna (8:16)
+05. Sita Ram (4:47)
+06. The Ankh Of Amen-Ra (6:13)
+07. Andromeda's Suffering (9:04)
+08. Sri Rama Ohnedaruth (6:12)
+09. Excerpts From The Firebird (5:43)
+10. Lord Of Lords (11:18)(   Читать дальше...   )2011Жанр: Jazz, Modern CompositionПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462823   (95604) от 05.03.2012
+
+VA - Seashore Desire #23 (2012) [MP3|320 kbps] <Uplifting Trance, Dream Trance, Progressive Trance, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solesystem presents Mel-O-Maniacs - A Little Big Planet (Basil O'Glue Remix) [07:20]
+ 02. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix) [08:28]
+ 03. Orjan Nilsen - Atchoo! (Original) [07:16]
+ 04. M.I.K.E. - Back In Time (Orjan Nilsen Refix) [07:44](   Читать дальше...   )Жанр: Uplifting Trance, Dream Trance, Progressive Trance, Trance
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2E0B25A7C1C6BA98DC3EA132AFDE5726A0CFB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462905   (95613) от 05.03.2012
+
+Steve Weingart & Renee Jones - Dialogue (2011) [FLAC|Lossless]<Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Village (5:32)
+02. Restless (4:59)
+03. Back Down (5:37)
+04. Eethray (5:27)
+05. Lighthouse (5:04)
+06. Busy Day (5:39)
+07. Empty Chair (3:05)
+08. Spider Web (5:29)
+09. Tell Tales (4:59)
+10. Do Note Move (5:45)(   Читать дальше...   )2011Жанр: Jazz, FusionПродолжительность: 00:57:02
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 462897   (95619) от 05.03.2012
+
+Roy Roberts - Deeper Shade Of Blue (1999) [FLAC|Lossless]<Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Help You Tonight (3:52)
+02. Blues Get Off My Shoulder (3:19)
+03. Tonight Your Love Belongs To Me (3:47)
+04. Mr. D.J. (3:26)
+05. I Tried (5:29)
+06. I Can't Go On (3:47)
+07. I'll Chase Your Blues Away (6:17)
+08. Learning To Love You Again (3:24)
+09. My Shades Of Blue (5:29)
+10. I've Been Makin' Love (4:10)(   Читать дальше...   )1999Жанр: Modern Electric BluesПродолжительность: 00:5200
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 462856   (95621) от 05.03.2012
 
 Водная жизнь (1 серия из 26) / Water Life (2007) BDRip[720p]
@@ -514,228 +739,6 @@ magnet:?xt=urn:btih:68E38813168A267D520B2FB5E0D6CA30EAA0AA16
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE8B3AA855AC665F4548F48A0269B9BBAC7EDA54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463053   (95721) от 05.03.2012
-
-[EN] Возмездие Эрпа / Wyatt Earp's Revenge (2012) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на реальной истории легендарного юриста, который рассказывает как собирал лучших со всего Запада, чтобы отомстить за жестокое убийство своей любимой Доры. Вместе со знаменитыми Батом Мастерсоном, Чарли Бассетом, Биллом Тилгменом и Доком Холидэем Эрп преследует братьев Кенеди, которые занимаются убийствами на территории от Додж-сити до Мексики. Защищенные своим влиятельным отцом безжалостные братья знают, что законы написаны не для них, но они недооценили Эрпа и его отряд. Звездный актерский состав фильма- Шоун Робертс, Трейс Адкинс, Мэтт Даллас и Вэл Килмер.Жанр: ДрамаРежиссер: Майкл ФейферАктеры: Вэл Килмер, Шоун Робертс, Мэтт Даллас, Дэниэл Буко, Скотт УайтПеревод: ОтсутствуетПродолжительность: 01:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AF9B53793F1F23B192A6C44E0E48ED2F837DB84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461138   (95725) от 06.03.2012
-
-Double B - Мы Любим Власть (2012) [MP3|320 кб/с]<Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. SM1 ft. KAP1 & GAV - Координаты
-03. Free Blaze - Правильные Люди
-04. KAP1 - Привет Из Ада
-05. Дима (скит)
-06. GAV - Я Против
-07. Ramon & ReD - Джихад
-08. Rebus - Какая То Статья
-09. Magic MC - Dust City (при уч. Kap1)
-10. Серенада (скит)(   Читать дальше...   )2012Жанр: RapПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C1FDC2AC4D6D7CDBAAC97015BE1DE352D81A84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462558   (95726) от 06.03.2012
-
-VA - The Technosopher's Stone [WEB] (2011) [FLAC|Lossless]<Psychedelic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xenoscapes - The Fern Dimension (8:00)
- 02. Brujo's Bowl - Techno Trousers (9:04)
- 03. Psilocybe Vibe - Rhododendron (5:58)
- 04. Dharana - The Pit (9:50)
- 05. Radioactive.Cake - Human Body Part Industry (8:50)
- 06. Loagsta - Delivery (7:41)
- 07. Carnivorous Vuduist - Nebel Des Krieges (8:00)
- 08. Nikroma - Forest Freq (8:12)
- 09. Sporangia - Endospore (6:48)
- 10. Zeitgeist - Technokrates (8:49)(   Читать дальше...   )2011Жанр: PsychedelicПродолжительность: 01:39:44
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461713   (95730) от 06.03.2012
-
-Yori Swart - Yori Swart (2012) [MP3|320 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rest Your Eyes
-02. I Say Nothing
-03. Secretly Sleeping
-04. Make Me Stay
-05. Complacency
-06. Oh Lord
-07. Give You All
-08. Feathers
-09. Weeping Willows
-10. Come On Over2012Жанр: PopПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462894   (95738) от 06.03.2012
-
-Earl Carter - My Paradise (2007) [FLAC|Lossless]<Smooth Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acid Intro (Prelude) (0:59)
-02. Jammin' At The Alley (4:09)
-03. My Paradise (4:31)
-04. Latin Fever (3:24)
-05. My Boo (4:12)
-06. Happy Anniversary (3:53)
-07. Indian Summers (3:41)
-08. Come With Me (Interlude) (2:10)
-09. The Head Bobber (3:23)
-10. In Your Mind (4:40)(   Читать дальше...   )2007Жанр: Smooth JazzПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463545   (95740) от 06.03.2012
-
-VA - Timegate 2012 (2011) [MP3|~254 кб/с (V0)]<Psy-Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect Stranger - A Mosquito Bit My Leg [11:35]
- 02. Electrypnose & Psyberpunk - Indian Sun (Argonaute Rmx) [08:22]
- 03. Principles Of Flight - Hammering Diamond Walls [06:54]
- 04. Cyklones - Blaspheme [07:09]
- 05. Aslak - Tumulus [07:33]
- 06. Sybarite - The Growler [07:38]
- 07. Psyberpunk - Fritz The Cat [06:52]
- 08. E-Clip - Asia Tribe [07:17]
- 09. D_Root - Grain [07:05]
- 10. Mnnsk - Behin-Db-Rain [05:57]2011Жанр: Psy-ProgressiveПродолжительность: 01:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36F2E25555F2211C4E4EBBE667B76E1B5920A36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463353   (95749) от 06.03.2012
-
-VA - Trance. Vocal Fascination 14 (06.03.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95749.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marco V - Unprepared (Recharged Original Mix)
-002. MaRLo feat. Jano - The Island
-003. Khoa & Martin Pres Khoma feat. Alisha Nauth - Over Soon (Train) (Original Mix)
-004. Kris Mclachlan & Costa Pantazis - Patience
-005. Majai - Motion Flash (Elevation Big Room Remix)
-006. Marcia Juell - Calling (5aint's Airplay Extended Mix)
-007. Mark Otten - Libertine
-008. Markus Voorn - Emotional Dreams (Original Mix)
-009. Max Graham feat. Neev Kennedy - So Caught Up (Original Mix)
-010. Jonas Stenberg - I Will Find You (Paul Ercossa Remix)(   Читать дальше...   )06.03.2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 03:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E09C4AC6EFF38F0C1E4EE6C256BFEBB8CF268C
 ```
 
 

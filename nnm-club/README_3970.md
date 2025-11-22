@@ -1,3 +1,184 @@
+###  Публикация: 1691877   (122905) от 14.01.2024
+
+Александр Король | Нелюбовь (Книга 1) (2023) [MP3, Дмитрий Филимонов]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122905.jpg" />
+</div>
+
+
+###  Подробнее
+
+«…в двух томах я стараюсь разжевать людям… то… из чего состоит человек… как он устроен… что у человека есть ум… который состоит из 7 деталей… а точнее, из 7 животных инстинктов… а точнее, из 7 грехов… и также… я рассказываю о том… из чего состоит душа… что она тоже из 7 деталей… из 7 добродетелей.
+Любовь – это одна из добродетелей… любовь – это принятие всего вокруг… (   Читать дальше...   )Жанр: ПсихологияИздательство: ЭксмоПродолжительность: 16:20:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9857D53F2040D2FA2F01418E4D82FB48235BD40
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691932   (122906) от 14.01.2024
+
+Cocteau Twins - Four-Calendar Cafe (1993) Remastered, 2024, 4AD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock, Ethereal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Know Who You Are At Every Age (3:38)
+02. Evangeline (4:29)
+03. Bluebeard (3:53)
+04. Theft, And Wandering Around Lost (4:30)(   Читать дальше...   )Жанр: Alternative & Indie Rock, EtherealПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167A0EC352332212A41769DB1448B0342B32A129
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691979   (122907) от 14.01.2024
+
+MacPilot 15 v.15.0.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лёгкое включение и отключение скрытых функций Mac OS X, оптимизация и ремонт вашей системы, выполнение множества рутинных процедур по обслуживанию системы путём простого нажатия на кнопку.
+Независимо от того, профессионал вы или начинающий пользователь, теперь вы сможете повысить производительность компьютера несколькими кликами мыши. В приложении предусмотрено выполнение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.12.2023Разработчик: © 2023 Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEB3D30BE98879ACE0A2A30D3DE65305F68849EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691929   (122908) от 14.01.2024
+
+Эксмо | Духовный цветник оптинских старцев. Утешение, покой и радость (2022) [PDF, FB2, EPUB, MOBI, TXT]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122908.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эту книгу вошли дорогие для души и сердца наставления самых известных и наиболее почитаемых оптинских старцев с их краткими жизнеописаниями. Даже по прошествии столетий наследие оптинских старцев оберегает нас и направляет на верный путь.Жанр: ПравославиеИздательство: ЭксмоФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F279190889FEF8F774B1F58962B2E8075C31437
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691987   (122909) от 14.01.2024
+
+Weather Widget Live Full for Mac 5.1.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всегда будьте в курсе погоды со стильным погодным виджетом на рабочем столе. Подборка привлекательных дизайнов виджетов на выбор.
+Используйте виджет, чтобы получить обзор погоды, или для получения более подробного прогноза вы можете открыть подробное окно погоды.
+Значок приложения Weather Widget также дает вам краткий прогноз или обзор текущих условий как в Dock, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 2024 Voros InnovationПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85131ADD8B2BC9A97106B4F771DBB572C43A8155
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691912   (122910) от 14.01.2024
+
+Temple Balls - Avalanche (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Night Long (3:45)
+02. Trap (3:53)
+03. Lonely Stranger (3:37)
+04. Stand Up And Fight (3:21)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:709CC1DB964D881668CF8BAE7B29EB2AAC901B61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691944   (122911) от 14.01.2024
+
+Железный Альянс - Железный Альянс (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Огонь И Свобода (00:04:56)
+02 - Рёв Мотора (00:03:22)
+03 - Выбор Твой (00:04:40)
+04 - К Чёрту Все (00:03:59)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B42841A2FE6B19016A5CB8E7EF0D42BB05CA11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692043   (122912) от 14.01.2024
 
 Dead Fish - Labirinto da Memória (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -484,195 +665,6 @@ magnet:?xt=urn:btih:7EFE2AC17F53C3C1E83CF8C08966022E29CD7C9C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4147753A723E1A2935FBA1A3F0BE1273D587753B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691846   (122931) от 14.01.2024
-
-These Days & Those Days - Eminent Pleasurment – Fucked Into Sextasy (2024) [MP3|320 Kbps] <beatdown, death metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intranal Indignity [00:01:34]
-02 - Born for Porn [00:02:31]
-03 - Spitters Are Quitters [00:02:48]
-04 - Fuckwaste [00:02:08](   Читать дальше...   )Жанр: beatdown, death metalПродолжительность: 00:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255D9B530535BDB884D412C9DC1F4EB3484F8D9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691868   (122932) от 14.01.2024
-
-Chris Rea - God's Great Banana Skin (1992) [OGG Vorbis|480 Kbps] <Blues Rock, Country Rock, Soft Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Nothing To Fear
-02.  Miles Is A Cigarette
-03.  God's Great Banana Skin
-04.  90's Blues(   Читать дальше...   )Жанр: Blues Rock, Country Rock, Soft RockПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F36BD2B09F8E266F55EBA199D9E98A1E3B990486
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691946   (122933) от 14.01.2024
-
-Мумий Тролль - Меамуры (2002) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В рейс
-02. На удачу
-03. Это по любви
-04. Глубже(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2F6142A6611BB2EC48F46D0101FA5BC77BD5BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692029   (122934) от 14.01.2024
-
-The Tiger Lillies - Onepenny Opera (2022) [MP3|320 Kbps] <Indie Rock, Dark Cabaret>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 King Of The Cut-throats [00:03:32]
-02 Macky Is A Swine [00:03:44]
-03 Down With The Poor [00:02:20]
-04 Married [00:02:47](   Читать дальше...   )Жанр: Indie Rock, Dark CabaretПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36324C6671FF9912E07756C6243977C228013EE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691953   (122935) от 14.01.2024
-
-Александр Жданов - 259 (1995) [FLAC|Lossless|tracks + .cue] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зубрите феню
-02. Пиво
-03. Беспредел
-04. Наган(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4B488EF1310501172891DD45F019209C854A3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691895   (122936) от 14.01.2024
-
-Frozen Rain - One Mile From Heartsville (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Mile From Heartsville (5:54)
-02. Move On (5:18)
-03. Fire (5:10)
-04. She's The One (5:39)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 01:08:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB236B2E07BE47E284F5E671710C1AC073241B81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692034   (122937) от 14.01.2024
-
-Hex - From Dust To Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_122937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark moon [00:03:39]
-02. Void [00:03:23]
-03. Power Of An Angel [00:03:38]
-04. Monsters [00:03:53](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:613B4A8AF48F1E90E30A5572CF3D2BEFDEB84061
 ```
 
 

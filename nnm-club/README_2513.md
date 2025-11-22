@@ -1,3 +1,54 @@
+###  Публикация: 1802082   (66086) от 15.06.2025
+
+Van Morrison & The Chieftains - Irish Heartbeat (1988) CD, Album [FLAC|Lossless|tracks] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star of the County Down    [0:02:42.15]
+02. Irish Heartbeat    [0:03:51.65]
+03. Tá Mo Chleamhnas Déanta    [0:03:31.35]
+04. Raglan Road    [0:04:56.25](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2689FFC7BFC786A5832CCD905593CE567ED7490E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802280   (66087) от 15.06.2025
+
+Каппадокия: полет на воздушном шаре, подземный город, сырное печенье и турецкая лазанья | «Поедем, поедим!» (14.06.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди в Каппадокии взмыл под облака на воздушном шаре, спустился в подземный город, погулял в музее под открытым небом, посетил пещерный монастырь, а еще полакомился традиционным десертом с сырным печеньем и острым перцем и научился готовить мини-манты и турецкую лазаньюТелекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DCAFCA729593EE19177B104EAD49A7276BC35A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802242   (66088) от 15.06.2025
 
 Larry McCray - Heartbreak City (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -612,59 +663,6 @@ Johnny de City - Mashup Avenue 027 (2025-05-30) [MP3|320 Kbps] <Dance, Electro P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B78D249CE4DFAE394C925A114CC04FC80F0F2EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802034   (66112) от 14.06.2025
-
-slo/tide - The Blur (2025) [MP3|320 Kbps] <Synthpop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neck High (3:49)
-02. Crazy (3:04)
-03. Lay Low (3:07)
-04. Blood Hungry (3:14)(   Читать дальше...   )Жанр: Synthpop, Pop-RockПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0089E996EFECE66D25A679E0B94F567ACFD8808
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802054   (66113) от 14.06.2025
-
-Sean Tyas - Lift (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Lift (Original Mix) 8:25
-02 Lift (Sean Tyas Rework) 8:25
-03 Lift (Bryan Kearney Edit) 8:25Жанр: TranceПродолжительность: 00:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06FE79DAD38C5D2CFC53E728DD77EE803D248099
 ```
 
 

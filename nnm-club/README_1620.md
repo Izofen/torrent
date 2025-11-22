@@ -1,3 +1,51 @@
+###  Публикация: 1751372   (42475) от 25.09.2024
+
+Заработал Telegram-бот для жалоб на поисковые запросы с незаконным контентом
+
+>>След.
+>>Новости
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42475.jpg" />
+</div>
+
+
+###  Подробнее
+
+В России заработал официальный Telegram-бот, которому можно пожаловаться на поисковые запросы, приводящие на группы или каналы с незаконным контентом. Разработчики мессенджера рассказали, как это работает, зачем нужно, и что теперь будет с теми, кто распространяет «запрещёнку».Бот доступен по адресу @SearchReport и создан не для жалоб на каналы, группы или посты (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751484   (42476) от 25.09.2024
+
+Teenage Mutant Ninja Turtles: Shredder's Revenge (2022) [Multi] (1.0.0.349/dlc) Scene Rune
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Teenage Mutant Ninja Turtles: Shredder's Revenge - экшен, в котором пользователя ждут классические механики боя в стилистике 80-х годов прошлого века. Здесь все герои, объекты, предметы, средства передвижения вдохновленные одноименным телешоу 1987 года, где присутствуют также элементы захватывающих приключений и доля юмора. Игра обладает яркой пиксельной графикой, (   Читать дальше...   )Тип издания: RepackРазработчик: Tribute Games Inc.Жанр: Action, Arcade, 2DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB12F1BA264AFCFEDADF4FB0165719B432EF387
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751425   (42477) от 25.09.2024
 
 Супершпион Гай Мэнли / Guy Manley - A Real Movie (2024) WEB-DLRip [H.264/1080p] [MVO] [AD]
@@ -578,60 +626,6 @@ Side A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D0F36879A531718713E27E67859907AE1A8D5E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751279   (42501) от 24.09.2024
-
-VA - Calm Horizons 2: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pier-O - Coral Reef (5:44)
-02. Dellasollounge - Son of Ulysses (2:14)
-03. Fake and True - Sleep Therapy 2 (11:57)
-04. Matt Sour - The Green Lady (2:43)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50DF85C9ADB0A52DA84E0938D0AF40845C1B9B7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751334   (42502) от 24.09.2024
-
-VA - Powermix Vol. 3 (1989) [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_42502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beathoven - Intro
-02. Sylvester - Do you wanna funk
-03. Miquel Brown - So many men so little time
-04. Buckbeats - Daydream(   Читать дальше...   )Жанр: Electronic, Italo-Disco, DiscoПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6D17B862170852CE2BB0B0D680E79CD469FD92D
 ```
 
 

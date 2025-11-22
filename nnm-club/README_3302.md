@@ -1,3 +1,190 @@
+###  Публикация: 1742434   (105537) от 12.08.2024
+
+DJ Love (Sherwin Tuna) - Budots World (Reloaded) (2024) [FLAC|Lossless|WEB-DL|tracks] <edm, electronic, philippines, budots, club, dance, filipino>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TiwTiw [00:03:48]
+02. Sabak Sa DJ Basuri [00:02:53]
+03. Mura Kag Erfs [00:03:46]
+04. Y Que Fue Bomb DJ [00:04:26](   Читать дальше...   )Жанр: edm, electronic, philippines, budots, club, dance, filipinoПродолжительность: 00:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CCAD071D195C95DBE7A9B80F633D100993D4179
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742697   (105538) от 12.08.2024
+
+Bill Wyman - Drive My Car (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Билл Уайман (Rolling Stones) выпустил свой девятый сольный альбом "Drive My Car" 9-го августа. "Drive My Car", представляющий собой мастерскую смесь его уникального англо-американского ритм-энд-блюза, является первым альбомом Уаймена с 2015 года, который будет доступен в цифровом формате, на CD и виниловых пластинках.01. Thunder on the Mountain (3:13)
+02. Drive My Car (3:23)
+03. Bad News (3:24)
+04. Storm Warning (3:44)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F43A5A99974023497E1772A6D5E5C08E2E7DE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742485   (105539) от 12.08.2024
+
+Ann Wilson & Tripsitter - Live in Concert (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blues Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Even It Up (Live) [00:07:57]
+02. Ruler of the Night (Live) [00:04:21]
+03. Love Alive (Live) [00:05:39]
+04. Isolation (Live) [00:03:04](   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Hard RockПродолжительность: 01:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E294144061A3E16AA3D495C1FE738C96CF778566
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742638   (105540) от 12.08.2024
+
+Newman - Colour In Sound (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Godspeed
+02. In Euphoria
+03. Wake Of The Wanderlust
+04. Afterglow(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE13B4EB73BE2ADB7A8FE646D76872C782F2CB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742497   (105541) от 12.08.2024
+
+Nathan Haines - Notes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, soul, analog, jazz, saxophone>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love You More [00:06:58]
+02. Night Moves [00:05:47]
+03. Just Holdin' On [00:03:48]
+04. Journey To The Peak [00:07:05](   Читать дальше...   )Жанр: House, soul, analog, jazz, saxophoneПродолжительность: 01:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9B0EB321FDF6310EFA95EBFF043298E2BCAE56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742581   (105542) от 12.08.2024
+
+Фёдор Сологуб | Красногубая гостья (2011) [MP3, Вадим Яковлев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Проза Серебряного Века.
+Фёдор Кузьмич Сологуб (1863–1927) – русский поэт, писатель, драматург, публицист. Один из виднейших представителей символизма.
+В сборник вошли рассказы одного из ярких представителей «Серебряного Века» Федора Сологуба в исполнении Вадима Яковлева.Жанр: Русская литература, классика, рассказИздательство: Вира-М (аудио)Продолжительность: 01:22:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F13DAB86E80E6C55376FEE31F16AF0C8AEC625F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742580   (105543) от 12.08.2024
+
+Фёдор Сологуб | Творимая легенда (Книга 2). Королева Ортруда (2013) [MP3, Аркадий Бухмин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Фёдор Кузьмич Сологуб (1863–1927) – русский поэт, писатель, драматург, публицист. Один из виднейших представителей символизма.
+В романе Фёдор Сологуб выразил свои философско-художественные идеи, обозначенные им ранее в статьях и эссе. Изначально, задуманный им цикл романов назывался «Навьи чары», и первая часть называлась «Творимая легенда» (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: МедиаКнигаПродолжительность: 12:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:277BEC826D651044FCFB48303AE889173C60D668
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742526   (105544) от 12.08.2024
 
 Phineas Newborn, Jr. - Look Out - Phineas Is Back (1976) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
@@ -497,192 +684,6 @@ Princesa Alba - Como Si Fuese Real (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06C0A651A9FA89CDC1F024BEEEDAAEF703F07EE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741775   (105563) от 11.08.2024
-
-VA - Nahawand: Best of Vocal Trance (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Zimmer & Lorraine Gray - Underwater (Original Mix) [7:47]
-02. Ciro Parcheri & Hidden Tigress - Heaven (Derek Palmer Remix) [7:20]
-03. Alex Shevchenko & iThur & Hidden Tigress - Fill The Sky (Original Mix) [6:07]
-04. Peitora & Ciro Parcheri feat. Rebuild - Live For (Original Mix) [5:06](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A326F21AC908A70923FF8500EE0720480BA834
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742321   (105564) от 11.08.2024
-
-Ирина Фуфаева | Как называются женщины (2020) [MP3, Ирина Фуфаева]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиокнига лингвиста Ирины Фуфаевой «Как называются женщины. Феминитивы: история, устройство, конкуренция» появилась как нельзя вовремя: в СМИ, и в первую очередь, в интернете, не стихают споры насчет «авторок» и «блогерок», «специалисток» и «редакторок», а сторонники и противники новых словообразований, регулярно скрещивают мечи и ломают копья, пытаясь отстоять (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига АСТПродолжительность: 08:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7351172847660B1132392C3F81AA78A3B312B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742240   (105565) от 11.08.2024
-
-Areal Kollen - 4 Albums (2023-2024) [MP3|320kbps|tracks] <EBM, Industrial, Aggrotech>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2023 - Vampirism Kingdom Part 1
-2024 - Late Night Dreams
-2024 - The Grey Disc(   Читать дальше...   )Жанр: EBM, Industrial, Aggrotech, ectПродолжительность: 4 CD, 04:08:12,
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8043DBDEBE198516DEEA90F414E1FEF7944E806
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741764   (105566) от 11.08.2024
-
-VA - Top June 2024 Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JJ Garcia - Sounds From Istar B (Intro Mix) [3:37]
-02. Elgfrothi - Believe (Vocal Mix) [5:36]
-03. D.J.G. & M.I.K! vs. DJ MacX - Indian Spring (Original Mix) [6:25]
-04. Alphacube - Morning Glow (Shouga Remix) [7:26](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8187474C026B0BDE114869EC9295539640F0CA81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741797   (105567) от 11.08.2024
-
-VA - Summer Collection 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invisible Signs - Astrasia (Original Mix) [8:42]
-02. ppdee & Asida Aya - Bubbles (Extended Mix) [7:57]
-03. Vaim - Dreaming (Original Mix) [4:42]
-04. Sasha Sound - Deliverance (Original Mix) [6:33](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F20778EF50DAE98542FACE0E482E88878DE27EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742448   (105568) от 11.08.2024
-
-Braille - Triple Transit (2024) [FLAC|Lossless|WEB-DL|tracks] <experimental, electronic, house, idm>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cost Of Living [00:03:43]
-02. Suntime [00:03:08]
-03. Summer Sizzle [00:03:10]
-04. Ups [00:05:05](   Читать дальше...   )Жанр: experimental, electronic, house, idmПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC161401495B5149BF8C9CF0AE6131915DB49DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741777   (105569) от 11.08.2024
-
-VA - Nahawand: Best of Progressive Trance (2024) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Henry Caster - Showroom (Original Mix) [5:20]
-02. DJ Geri - Turn The Volume Down (Original Mix) [5:38]
-03. Votchik - Furious Rate (Original Mix) [5:35]
-04. Peitora & Ciro Parcheri feat. Rebuild - Live For (Original Mix) [5:06](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC46F46630AA529244551FBCDD15915CF4C09F61
 ```
 
 

@@ -1,3 +1,189 @@
+###  Публикация: 1687877   (125427) от 27.12.2023
+
+Ухаживания пещерного человек / A Cave Man Wooing (1912) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125427.jpg" />
+</div>
+
+
+###  Подробнее
+
+И опять - фильму больше ста лет, а тема очень современна и актуальна. Некий молодой человек ухаживает за барышней. Но есть соперник. И этот соперник уверенный в себе, энергичный, да и физически покрепче нашего героя. А герой скромный, интеллигентный, можно сказать робкий. Но ведь общеизвестно - хорошим девочкам нравятся плохие парни. Нужно быть сильным, самоуверенным, (   Читать дальше...   )Производство: США, Independent Moving Pictures Co. of America (IMP)Жанр: короткометражный, мелодрама, комедия, немое киноРежиссер: Отис ТернерАктеры: Кинг Баггот, Виолет Хорнер, Уильям Роберт Дэйли, Уильям Е. Шэй, Джейн ФернлиПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F537AD2B047307E4CB8EE81FA85B86D5E932FE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687380   (125428) от 27.12.2023
+
+VA - Smooth Easy Going Relax Lounge Luxury Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Mellifluous (4:27)
+02. Kool&Klean - Scent of Spring (4:52)
+03. Chillaxing Jazz Kollektion - Blue Water (4:00)
+04. Kool&Klean - Stellar Nights (4:14)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:23:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159939337089C2A1AD83BB44DC4E283A617CEBAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687886   (125429) от 27.12.2023
+
+Позавчера - Счастливого Нового года! (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Против ветра [00:01:34]
+02. Отстань противный [00:03:36]
+03. Скоро Новый год! [00:00:17]
+04. Зимняя [00:04:27](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2667415722609A86899F580CF76841BD830D7769
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687930   (125430) от 27.12.2023
+
+Gods of Gaia - As Daylight Dies (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:26]
+02. Bow to Me [00:04:09]
+03. I Want Out [00:04:17]
+04. As Daylight Dies [00:03:15](   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31222425CFD084D48FEC2A9D6DEF623B79D58F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687132   (125431) от 27.12.2023
+
+Набережная Космонавтов - Les Slowed Monologues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Лицо на стене (00:04:57)
+02 - Огни ночных подъездов (00:05:50)
+03 - Все умрут (00:04:48)
+04 - Красное и белое (00:04:45)(   Читать дальше...   )Жанр: Post-RockПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01869508AA43B42F96103500A16A517D0111FEE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687933   (125432) от 27.12.2023
+
+Eutectica - [In]human (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warpath
+02. Prozium
+03. A Filth Called Lie
+04. SinЖанр: Melodic Death MetalПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751E09AADC2A244EFFD1890CDFBD018E728C7848
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687931   (125433) от 27.12.2023
+
+Souls Of Steel - Songs of Steel (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Eternal One
+03. Burning Love
+04. No Man's Land(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905D1F94B8929AF11422E91DC9C755A4A57CC6A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687830   (125434) от 27.12.2023
 
 Demon - Breakout (1987) Japanese Edition, Reissue, Remastered, 2020, Rubicon Music [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -475,190 +661,6 @@ magnet:?xt=urn:btih:D2CBAACB2BA0B8149E81C2D57772A97A95906316
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A744733FA6975874C65EE97AE64893B65B044F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687364   (125453) от 27.12.2023
-
-Chris Rea - Wired To The Moon (1984) Reissue, 1990 [OGG Vorbis|480 Kbps] <Soft Rock, Rock, Pop Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bombollini
-02.  Touche D'Amour
-03.  Shine, Shine, Shine
-04.  Wired To The Moon(   Читать дальше...   )Жанр: Soft Rock, Rock, Pop RockПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8119DB80797B25615A38320171AA6CD6D400E595
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687783   (125454) от 27.12.2023
-
-Журнал | Квантик №11 (ноябрь 2023) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125454.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
-В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FC8B4DDC090D91DDD9D24937B588BC201CA7FD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687206   (125455) от 27.12.2023
-
-VA - All New Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Day - Dilemma (3:18)
-02. John Coffey - If you want fear now is the right time (3:40)
-03. Geddy Lee - Gone (4:15)
-04. The Band CAMINO - Novocaine (2:54)(   Читать дальше...   )Жанр: RockПродолжительность: 02:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C667B774FD53E7A4B3E34CF510B8B879F92461
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687395   (125456) от 27.12.2023
-
-Chris Rea - Shamrock Diaries (1985) Reissue, 1991 [OGG Vorbis|480 Kbps] <Soft Rock, Rock, Pop Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Steel River
-02.  Stainsby Girls
-03.  Chisel Hill
-04.  Josephine(   Читать дальше...   )Жанр: Soft Rock, Rock, Pop RockПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B721120EDD6A508183996E7F3CC65F8686EC038
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687774   (125457) от 27.12.2023
-
-Frank Sinatra & Bing Crosby - Christmas Sing With Frank And Bing (1945 -1971) 1996, LaserLight [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jingle Bells [1:20]
-02. Mistletoe & Holly [1:50]
-03. Round & Round the Christmas Tree [2:12]
-04. Medley [6:57](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E4FDF7CA3151ECF0FA68C055E60472B7C08D2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687696   (125458) от 27.12.2023
-
-Майкл Олдстоун | Вирусы и эпидемии в истории мира [ (2021) [MP3, Игорь Ломакин]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125458.jpg" />
-</div>
-
-
-###  Подробнее
-
-С самого возникновения цивилизации человечество сосуществует с невидимыми и смертоносными врагами – вирусами. Оспа унесла больше жизней, чем все техногенные катастрофы и кровопролитнейшие войны XX века; желтая лихорадка не позволила Наполеону создать колониальную империю и едва не помешала строительству Панамского канала.
-Ученый-вирусолог, профессор Майкл Олдстоун, (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига АСТПродолжительность: 19:20:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A34AEE00A48EA7BF185A9D38CCC02BC7B555FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687458   (125459) от 27.12.2023
-
-Dissection - Studio Albums (3 releases) (1993-2006) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_125459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dissection — шведская мелодик-блэк-дэт-метал-группа, основанная вокалистом и гитаристом Йоном Нёдтвейдтом в Стрёмстаде в 1989 году.1993 - The Somberlain
-1995 - Storm of the Light's Bane
-2006 - ReinkaosЖанр: Melodic Black Metal, Melodic Death MetalПродолжительность: 02:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1893713EB2807D5E00F0CD097C709DE67DACF8E2
 ```
 
 

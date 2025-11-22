@@ -1,3 +1,55 @@
+###  Публикация: 1744343   (46089) от 21.08.2024
+
+Энтони Фурнье | Death Stranding Хидео Кодзимы. Философия гениальной игры (2024) [MP3, Александр Хошабаев]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46089.jpg" />
+</div>
+
+
+###  Подробнее
+
+История возрождения легендарного гейм-дизайнера – от актера дубляжа Death Stranding Александра Хошабаева, озвучившего главного героя, Сэма Портера Бриджеса.
+После десятков лет пребывания в плену успешной саги Metal Gear Solid Кодзима уволился из Konami и основал собственную студию Kojima Productions, чтобы наконец-то создать игру своей мечты. Death Stranding потребовала (   Читать дальше...   )Жанр: IT-технологииИздательство: БОМБОРАПродолжительность: 11:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E409A39A8172205657FDD8D866D7AB64E8957C91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744424   (46090) от 21.08.2024
+
+Powerwolf - Wake Up The Wicked (2024) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46090.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Wake Up the Wicked:
+01. Bless 'Em With The Blade
+02. Sinners Of The Seven Seas
+03. Kyrie Klitorem(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C71723BCC97CB12951F99B7F7DE47F35A2BA81A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744368   (46091) от 21.08.2024
 
 VA - Jazz & Blues Smooth Mix for Warm Summer Nights (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Blues>
@@ -599,57 +651,6 @@ magnet:?xt=urn:btih:FAE9FDE8760348E78BF090D9B9DFB35A80F0E83C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D7514E5FA1BB349B6ACE9881E5320B607872538
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744352   (46115) от 21.08.2024
-
-Журнал | Linux Format №319 (2024) [PDF][EN]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Linux Format — первый ежемесячный журнал, целиком посвященный операционной системе Linux. Редакционная политика — своевременное и полноценное информирование читательской аудитории о современном состоянии индустрии программного обеспечения с Открытым кодом, публикация обзоров о технологических новинках и обучающих программах, новости и интервью. Информационное наполнение (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Future Publishing LimitedФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0CCCE447A0C3B3AA15384BBA4F77BECCCE50A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744240   (46116) от 21.08.2024
-
-John Mayall & The Bluesbreakers - Up Close And Personal (Live In Texas) (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Line Fever (Live In Texas) [00:05:19]
-02. Nature's Disappearing (Live In Texas) [00:05:56]
-03. My Country Girl (Live In Texas) [00:08:00]
-04. Congo Square (Live In Texas) [00:08:21](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89BC3469E03E03B262EA9BC5748955F882A8EDCE
 ```
 
 

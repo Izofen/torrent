@@ -1,3 +1,54 @@
+###  Публикация: 1808410   (64994) от 24.07.2025
+
+Big Martin - Sucker Punch Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  What It Is That You Do (3:21)
+02.  I'm Hurting Too (3:16)
+03.  Looking for the Blues (3:39)
+04.  Don’t Do no Good to Pray (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A31F4DF08041E2B906BEB6D0CF8E3054DD656F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808409   (64995) от 24.07.2025
+
+Ночь мщения / Слепое правосудие / Haevnens Nat / Blind Justice (1916) WEBRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_64995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цирковой силач Джон Сайкс, обвиненный в жестоком убийстве, бежит из-под стражи, выкрадывает из сиротского приюта своего грудного сына, и, ища убежища, прячется на чердаке богатого особняка, обитатели которого приготовились к празднеству по случаю Нового Года. Доверившись одной из гостьей, молодой девушке Энн, Джон попадает в засаду, устроенную вооруженными гостями. (   Читать дальше...   )Производство: Дания / Dansk Biograf CompagniЖанр: триллер, драма, криминал, немое киноРежиссер: Беньямин КристенсенАктеры: Беньямин Кристенсен, Карен Касперсен, Петер Фьельструп, Йон Иверсен, Фритс Лампрехт, Йорген Лунд, Оэ Шмидт, Матильде Нильсен, Элит Пио, Освалль Хельмут, Рагнхилль Санном, Тильда ФёнсПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 01:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F838F90CB7E4967E8C88B19D4F2CC0ABB828B9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808433   (64996) от 24.07.2025
 
 Mekiel Reuben - Something Like That (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -615,60 +666,6 @@ Sculptured - The Liminal Phase (2021) [MP3|320 Kbps] <Progressive, Melodic Death
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C757AFF97BF4E1DB3B1D8204946DF11DFCD9A56D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808080   (65020) от 22.07.2025
-
-Bleeding Hands - Lost Integrity (2015) [FLAC|Lossless|image + .cue] <Melodic Thrash, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Believe What You Know
-02 - Grim Reaper
-03 - Like A Freakshow
-04 - Discipline Haunts Me(   Читать дальше...   )Жанр: Melodic Thrash, Groove MetalПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C50A842C2D3E67AC84F90316AA6EED5C1FC6C7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808129   (65021) от 22.07.2025
-
-Evan Arview - Deeper Still (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Movin' (3:13)
-02.  Learning How To Say Goodbye (Album Version) (5:03)
-03.  Nothing To Fear (4:39)
-04.  True (4:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8161FCB23BB0EABF199B00A0E82C4FFB6F7BC51A
 ```
 
 

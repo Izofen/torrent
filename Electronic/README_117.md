@@ -1,3 +1,57 @@
+###  Публикация: 1427348   (183290) от 28.11.2020
+
+VA - Deep Sleep Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Estación Del Mar - A La Sombra De Un Roble (4:24)
+02. Finland & Aaskoven - Beauty and the Abyss (5:39)
+03. La Estación Del Mar - Descalzo Sobre La Hierba (4:32)
+04. Peter Pearson - Always in My Dream - Original Mix (5:40)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E99B87C245C22A52D17864E852E9B3D4E14942
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427551   (183360) от 28.11.2020
+
+VA - House Clubhits 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_183360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ninetoes - Bonita - Original Mix (7:03)
+02. JANA - Somebody - Original Mix (5:54)
+03. Giorgio Gee - Mad Donna (2:04)
+04. Mathy - Dolla - Original Mix (5:48)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D4EFD9CB7917B66309338E84B4BEA73772C271
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427424   (183390) от 28.11.2020
 
 VA - A State Of Trance - Future Favorite - Best Of 2020 - (Extended Versions) (2020) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -638,60 +692,6 @@ Blondie - американская группа, пионеры новой во�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBB6A8C1AF86F5DCEF666A4BF11830869E3BF187
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664206   (185972) от 25.09.2023
-
-Helena Hauff - fabric presents Helena Hauff (Mixed) (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno, Industrial, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_185972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn Your Sights Inward (Mixed) [00:02:36]
-02. Sunken Park (Mixed) [00:04:02]
-03. Data Transfer (Mixed) [00:05:09]
-04. Machine Conflict (Mixed) [00:03:59](   Читать дальше...   )Жанр: Electro, Techno, Industrial, HouseПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2134F425FF7BA0EFF9DC42D58E7119880EC541A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664120   (186239) от 24.09.2023
-
-Blank & Jones feat. Mick Roach - Christian (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chill out, Downtempo, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_186239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christian
-02. Magnolia
-03. Nothing's Happening By The Sea
-04. (You're Gonna Look) Good in Blues (Radio Edit)Жанр: Electronic, Chill out, Downtempo, LoungeПродолжительность: 00:14:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9D593D1274CC89DDA7099671BC70CAA64CB7D8
 ```
 
 

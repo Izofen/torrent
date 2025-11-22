@@ -1,3 +1,57 @@
+###  Публикация: 1775355   (71442) от 26.01.2025
+
+Горячие головы (Hotheads) - 2 Albums (2003, 2005) Remastered, 2025, Creative Media [FLAC 24/48|Lossless|WEB-DL|tracks] <Russian pop, Euro House, Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вверх-вниз! (Remastered 2025) [00:03:32]
+02. Алла Пугачева (Remastered 2025) [00:03:46]
+03. Самая лучшая! (Remastered 2025) [00:03:46]
+04. Ням-ням-ням (Remastered 2025) [00:03:28](   Читать дальше...   )Жанр: Russian pop, Euro House, EuropopПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D5750D7AAA5F5118F9C1106C040A23EE268AC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775434   (71443) от 26.01.2025
+
+Joel Corry - Tomorrowland Friendship Mix (2025-01-23) [MP3|320 Kbps] <Tech House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joel Corry - Tears On My Piano
+02. Joel Corry - Hey DJ
+03. Nathan Dawe & Joel Corry & Ella Henderson - 0800 HEAVEN (Joel Corry VIP Mix)
+04. Peggy Gou - (It Goes Like) Nanana (Maddix Remix)(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1EF43EE225EE8FC90B30777B10E5F343DC55011
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775393   (71444) от 26.01.2025
 
 Чудо техники с Сергеем Малозёмовым (26.01.2025) WEBRip [H.264/720p]
@@ -605,60 +659,6 @@ VA - Blue Notes, Vol.1: Milestones Of Jazz Legends (1950 - 1962) 10CD, 2022, The
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:046AF1F3E8C93FAF65B07FCD1D631A819687CB82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775264   (71468) от 25.01.2025
-
-Obsidian Path - Ignite the Fire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fuel the Flame (3:00)
-02.  Racing the Storm (3:24)
-03.  Turn It Up (3:35)
-04.  Phoenix Rising (3:16)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEAE09E2D6A6C5DE854469660D1AEAFE7EA6F6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775106   (71469) от 25.01.2025
-
-Eric Prydz - Live @ 20 Years Of Pryda, HISTORY Toronto, Canada (2025-01-18) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pryda - Annexet
-02. Pryda - Bergen
-03. Eric Prydz - Liberate (Eric Prydz 2017 Remix)
-04. Pryda - The Hoax(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC54E05C836B1D53A4C4E75377783CC02E156CA5
 ```
 
 

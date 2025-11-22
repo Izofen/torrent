@@ -1,3 +1,190 @@
+###  Публикация: 1748585   (104549) от 10.09.2024
+
+Ruby Braff & Scott Hamilton - A Sailboat In The Moonlight (1986) Concord Jazz [APE|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sailboat in the Moonlight [5:36]
+02. Lover Come Back to Me [5:21]
+03. Where Are You? [4:26]
+04. 'Deed I Do [6:03](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90CC7E19BA011DAB0F71B092F66AF94DC8BC000
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748580   (104550) от 10.09.2024
+
+Carmeria - Tragedie D'amour (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Forth My Sorrow (4:57)
+02. A Thousand Winter Rains (4:19)
+03. Thorns (3:44)
+04. Leading the Lyre (3:40)(   Читать дальше...   )Жанр: Symphonic Metal, Melodic Power MetalПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0322E4ADCEC7AD3C0F488DA6BF02CDAFCABC74E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748553   (104551) от 10.09.2024
+
+Lenny Kravitz - Human (Remixes Edits) (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Pop, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Human (LF SYSTEM Remix Edit) [2:35]
+02 - Human (Paul Woolford Edit) [3:36]
+03 - Human (Paul Woolford Classic Edit) [3:37]
+04 - Human (Dave Audé Remix edit) [3:53](   Читать дальше...   )Жанр: Electronic, Pop, DanceПродолжительность: 00:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A7BA068A9E3E596B34FC9808CA586DA6B213C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748549   (104552) от 10.09.2024
+
+Lenny Kravitz - Human (Paul Woolford Remix) (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Pop, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Human (Paul Woolford Edit) [3:36]
+02 - Human (Paul Woolford Classic Edit) [3:37]
+03 - Human (Paul Woolford Remix) [6:36]
+04 - Human (Paul Woolford Classic Club Mix) [5:35](   Читать дальше...   )Жанр: Electronic, Pop, DanceПродолжительность: 00:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD753CF5629CAAD78702502EDBE5323445361831
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748550   (104553) от 10.09.2024
+
+Aircoach - Prism (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can’t Find A Place (4:19)
+02. Dear Conrad (5:01)
+03. The Man Who Walked Softly (5:24)
+04. Wake Up (4:47)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDD6402B5B3A1280839AB92FCAB9172EB032091
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748529   (104554) от 10.09.2024
+
+Obscene - Agony & Wounds (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cloverland Panopticon 03:29
+02. Watch Me When I Kill 02:25
+03. Breathe the Decay 04:15
+04. Noxious Expulsion 03:33(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:708CE23097DDCE8DA84C542D626289415C7757E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748613   (104555) от 10.09.2024
+
+Любовь находит путь / Love Finds the Way (1912) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этель влюблена в Джека, одного из сотрудников ее отца. Джека увольняет отец Этель, потому что он хочет, чтобы Этель вышла замуж за богатого банкира. Что же делать этой парочке? Они сделали то, что всегда делают в такой ситуации дураки-влюбленные, они сбежали...
+В фильме играет Лотти Пикфорд, младшая сестра великолепной "Малышки Мэри" - Мэри Пикфорд.Производство: США / Vitagraph Company of AmericaЖанр: короткометражный, драма, мелодрама, немое киноРежиссер: Тэффт ДжонсонАктеры: Лео Делани, Лотти Пикфорд, Уильям Р. Данн, Тэффт ДжонсонПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907FA999DB3B7952F55EE86F41E14BCAC3B2D75B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748435   (104556) от 09.09.2024
 
 Герберт Уэллс | Человек-невидимка. Волшебная лавка (Аудиоспектакль) (2006) [MP3, Евгений Весник, Александр Леньков и др.]
@@ -497,190 +684,6 @@ VA - Urban Nightlife Sounds (Downtempo Funk Soul Jazz) (2024) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C775E6A69466CBC70CE012825C6F97D18A76022
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748206   (104575) от 08.09.2024
-
-MotoGP. Этап 13 из 20. Гран-при Сан-Марино. Гонка (08.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104575.jpg" />
-</div>
-
-
-###  Подробнее
-
-8 сентября 2024, воскресенье. 15:00 МСК. Этап 13 Мизано-Адриатико. Гран-при Сан-Марино. Гонка (27 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400539E1AAF53A17C30171F8CE3600B1E7AF6423
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748128   (104576) от 08.09.2024
-
-VA - Seductive Divine Easy Listening Relaxation Chilly Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Chasing Rainbows (4:45)
-02. Chillaxing Jazz Kollektion - On the Ocean Shore (3:59)
-03. Konstantin Klashtorni - Stylish Walk (4:44)
-04. eJazz Artistry - No Rhyme, No Reason (3:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570C906A29FA8C99AC0B94AD4E4CDDDA3E56EBE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748124   (104577) от 08.09.2024
-
-VA - Magical Chilly Relaxing Tunes for Calm and Quiet Vacation Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Kissed by the Sun (4:11)
-02. Chillaxing Jazz Kollektion - Midsummer Dreamin' (4:19)
-03. Chillaxonic - Aurora (5:13)
-04. eJazz Artistry - Always Be My Baby (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615FE35915D39D97E68B4617C316FFEAF787E421
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748118   (104578) от 08.09.2024
-
-VA - Aperitivo Acid Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulstance - Spiritual Session (5:24)
-02. Gazzara - Just Some Philly Sound (5:57)
-03. Bebo Best - The Breaks (Top 10 Inc. 80 Mix) (3:14)
-04. Bossa Nostra - The Message From A Soul Sister (5:30)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EABE925255A2C1E86AC49B400FE25017B1F1CCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748119   (104579) от 08.09.2024
-
-VA - Divine Seductive Easy Listening Relaxation Chill Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Sunset Silhouettes (4:20)
-02. Chillaxonic - Morningstar (3:37)
-03. Konstantin Klashtorni - Let's Chill (5:29)
-04. Kool&Klean - Corals & Reefs (4:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E572FFEF045F1B4F2739B0F6ECCC2086E0FF5D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748089   (104580) от 08.09.2024
-
-Scherer, Batten - BattleZone (2017) 2xCD, Reissue, Remastered, 2024, MelodicRock Classics [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc One:
-01. Crazy Love (4:24)
-02. Rough Diamond (4:07)
-03. What Do You Really Think (4:17)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3390D716B2FD0292682BE82D3DAAEBE5B243ADFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748153   (104581) от 08.09.2024
-
-Первая передача на НТВ. Автомобильная передача (08.09.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_104581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив на придворовой парковке: подмосковный автовладелец по осколкам винной бутылки, обнаруженным около своей машины, восстановил, кто, когда и как повредил его автомобиль.
- Автотрип по Калининградской области на ретроуниверсале: что попробовать и куда лучше не заезжать?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB9A030C261F78BE6C8DF802F9E2228667EE0E4
 ```
 
 

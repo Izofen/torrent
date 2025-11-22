@@ -1,3 +1,211 @@
+###  Публикация: 476158   (98140) от 31.03.2012
+
+[Wallpapers] Best Wallpapers Pack 12
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98140.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Best Wallpapers Pack 12
+Название: Best Wallpapers Pack 12
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 3504х2190
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E23F25A925691A0D58CB2B61716382C69B80E10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475996   (98141) от 31.03.2012
+
+VA - Зажигательная Дискотека Non-Stop №15 (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98141.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 DJs From Mars & Fragma - Insane (In da brain)
+002 Митя Фомин - Хорошая Песня (Жизнь Одна, Хочется Жить)
+003 Bryce feat. J-Malik - Nothing can hold us back
+004 Каникулы В Мексике - Мексикана-Мама (Radio Version)
+005 Dev - In the dark
+006 Дядя Жора - Губки Уточкой
+007 DJ Bobo - Everybodys gonna dance (Bryce remix edit)
+008 Vshoke - Весна
+009 David Guetta - Without you (feat. Usher)
+010 Лавика - В Городе Весна (DJ Melloffon Remix)2012Жанр: Pop,DanceПродолжительность: 05:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6E91B896C42385395BB7AB5351DAEE3C213ACF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475936   (98143) от 31.03.2012
+
+[Wallpapers] Best HD Wallpapers Pack (31.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A815480EC3DFDE6BDE107FA77121D46448308EC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473100   (98144) от 31.03.2012
+
+VA - Against Humanity (2011) [MP3|~249 кб/с (V0)]<Psy-Prog, Full On>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Generic - Atmosphere 07:24
+02. Faders vs Audiotec - Voices (original mix) 07:00
+03. Hi Profile - Against Humanity 08:06
+04. Neelix - 7th Grade 06:03
+05. Erotic Dream - She Wants A Wash Machine 06:30
+06. Ticon - Balkan Tourist (Paul Thomas And Myke Smith remix) 06:06
+07. Ital - Conimi 07:16
+08. Shinouda - Hamy Influences 07:14
+09. Orion Signs vs Pyro - Light For The Blind 07:26
+10. Kularis - Foxtrott Lessons (original mix) 06:45(   Читать дальше...   )2011Жанр: Psy-Prog, Full OnПродолжительность: 02:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D8B565300B3D7B8C8F6D47F8E055F77473F96A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475782   (98145) от 31.03.2012
+
+Фактор Производства - Фабрика Андеграунда (2012) [MP3|128/320 кб/с]<Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро (XadJo prod.)
+02. Пусси (Sweet Love Beatz prod.)
+03. Фабрика Андеграунда (27 prod.)
+04. Снежная баба (Veggah prod.)
+05. АндерФильм при уч.ZKMN (Андеграунд Кома) (27 prod.)
+06. Скальпелем (Veggah prod.)
+07. Джазовый фарш при уч.Златый Базар (Veggah prod.)
+08. Сказка (Sweet Love Beatz x Pavel Ku prod.)
+09. Гангстерская (XadJo prod.)
+10. Под водку (Veggah prod.)(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B41D6059B7B2537B27627D67909D601CF5E9049F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475937   (98149) от 31.03.2012
+
+[Wallpapers] HQ Wallpapers by KSV (31.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:545C96F06B3CDDF8FF5224D70ED4290FD844BB56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476441   (98150) от 31.03.2012
+
+VA - Жаркие Танцы (2012) [MP3|160-256 kbps]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MiXi - Виртуальная Любовь (DJ VAL remix)
+02. DJ Smash feat. Maury - Rendez-vous (Melloffon extended remix)
+03. Mixi Feat. Young Zeke - Текила (Alex Neo Remix)
+04. Inna - Endless (Speak One Reworked Radio Edit)
+05. Vadim Koks - Uranus (original mix)
+06. Dj Cosmo & Пачуля - Прости (Original Radio Version)
+07. Alexey Romeo & Plage feat. Alateya - Summer Night (Dabruck & Klein remix)
+07. DJ Satellit Karina - Потанцуй Со Мной (Tonada Radio Mix)
+09. Cosmic Gate feat. Tiff Lacey - Open Your Heart (Yuri Kane remix)
+10. Lolita Jolie - La Premiere Fois (Ti-Mo Remix Edit)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 08:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB17E265E07F8049F41264838B883CABCC7ED3F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475716   (98151) от 31.03.2012
 
 Torchbearer - Death Meditations (2011) [WavPack|Lossless]<Melodic Death Metal/Black Metal>
@@ -568,214 +776,6 @@ magnet:?xt=urn:btih:35C00ACD33D3358AA6A410EEAF07F6363646BB8D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AFFD12B9D60CC570A519C225DAD0A492F034493
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475662   (98175) от 31.03.2012
-
-Ektomorf - The Acoustic (2012) [FLAC|Lossless]<Acoustic/Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Know Them (4:39)
-02. I'm In Hate (3:46)
-03. Be Free (3:26)
-04. Redemption (3:37)
-05. Simple Man (5:01)
-06. To Smoulder (3:17)
-07. Folsom Prison Blues (3:10)
-08. Again (4:07)
-09. Through Your Eyes (3:22)
-10. Fate (2:07)(   Читать дальше...   )Жанр: Acoustic/Groove MetalПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475401   (98177) от 31.03.2012
-
-Юджин Пеппероу | Попытка к бегству [1991] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юджин Пеппероу (1991Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297F68FADD9A7937D9A901D562781E1279D8DCFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476146   (98178) от 31.03.2012
-
-VA - Energy Super Dance Vol.6 (2012) [MP3|320 кб/с]<Electro-House, Trance, Dance, Club, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond - Sun & Moon ( A-Peace Remix ) (6:07)
-02. Adele - Set Fire To The Rain (House Hunters Remix) (5:59)
-03. Afrojack & Shermanology - Can't Stop Me (MADEin82 Remix) (6:33)
-04. Avicii - Levels (Massive DJ's Bootleg Remix 2012) (6:03)
-05. Azealia Banks feat. Lazy Jay - 212 (Tommie Sunshine & Disco Fries Edit) (5:52)
-06. Beat Service - Fortuna (5:24)
-07. Carl Kennedy feat. Cheyenne - Once Upon A Time (Original Mix) (7:30)
-08. Childish Gambino - Heartbeat (Proper Villains Remix) (4:15)
-09. Cliffhanger - Dont Look Behind You (Original Mix) (3:23)
- 10. Clockwork & Loreen - The Nox Euphoria (Mart's Mashup)2012Жанр: Electro-House, Trance, Dance, Club, DubstepПродолжительность: 04:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B760A4EFB5AB00D8BD24FFE829A2560B83FF0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475693   (98180) от 31.03.2012
-
-Eivissa Salinas - Dear Father (2012) [MP3|320 кб/с]<Chillout, Lounge>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emotions Time (Radio Edit) (3:50)
-02. Between Two Rocks (6:55)
-03. Life is Dancing (3:41)
-04. Raining Day (3:49)
-05. Spring Miles Flower (5:16)
-06. All These Years (5:03)
-07. Past to Present (6:24)
-08. Midnight Jazzy Moon (3:36)
-09. Emotions Time (Cartage Mix) (3:38)
-10. Dear Father (3:56)(   Читать дальше...   )2012Жанр: Chillout, LoungeПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5EE4D1E74E942EFCCBEAE4D3C381BF45B09B4D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475965   (98182) от 31.03.2012
-
-[Wallpapers] Nature HD Wallpapers Pack 8
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98182.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature HD Wallpapers Pack 8 
-Название:  Nature HD Wallpapers Pack 8 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2974х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA43E34BF5FA4D76805F2A00435041EBAA7758F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475397   (98183) от 31.03.2012
-
-Юджин Пеппероу | Пока жива любовь [1991] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юджин Пеппероу (1991Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832BA098D56B57380D811CA12CF56CC1BE5BDB1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473019   (98184) от 31.03.2012
-
-Before Their Eyes - Redemption (2012) [MP3|320 кб/с]<Post-Hardcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98184.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Lies
-3. Dream (feat. Breathe Carolina)
-4. Find
-5. Everything
-6. Redemption
-7. Revenge
-8. Revival
-9. Surrender
-10. Backstabber(   Читать дальше...   )2012Жанр: Post-HardcoreПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4306838ABECF0985F62477629CD28220D9E13BEB
 ```
 
 

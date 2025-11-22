@@ -1,3 +1,54 @@
+###  Публикация: 1785774   (69154) от 17.03.2025
+
+MotoGP. Этап 02 из 22. Гран-при Аргентины. Гонка (16.03.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69154.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 марта 2025, воскресенье. 21:00 МСК, Этап 2. Автодром Термас-де-Рио Ондо. Гран-при Аргентины. Гонка (24 круга)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1601842C921346B1EEB9158FB27F8C04C7119F09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785766   (69155) от 17.03.2025
+
+VA - Groove Paradise (The Deep-House Collection), Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fonetica - I Need Your Love (Carlos Hdez Remix) [06:50]
+02. Steen Thottrup & Denver Knoesen - Another Day (Another Remix) [05:07]
+03. DJ Enne - Stand Up (Original Mix) [07:12]
+04. Mutehead - Wardenclyffe [02:49](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72EC34F418B7F4E9200AB905B3AC10A1889E19E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785734   (69156) от 17.03.2025
 
 Шрифты - Creative Market - CS Wilona Drawn - 290798539 [OTF, TTF, WOFF, WOFF2]
@@ -610,58 +661,6 @@ magnet:?xt=urn:btih:7851E136BC8B3FB7069657B1BCF9D1E86AD75FE3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6F19F503ACC95F386F87A4E79343E38A8235221
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785746   (69180) от 17.03.2025
-
-Шрифты - Andriy Dykun - MyFonts - Voguer Sans [ TTF, WOFF, WOFF2, EOT]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт c кириллицей.
-Разработчик: Andriy DykunФормат: TTF, WOFF, WOFF2, EOT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95453046A9C800B07B4A05FF6E7978FAC96CB074
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785816   (69181) от 17.03.2025
-
-Helloween - Unarmed - Best Of 25th Anniversary (2009) Japanese Edition, Limited Edition [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Stein 3:59
-02. Future World 4:13
-03. If I Could Fly 3:28
-04. Where The Rain Grows 5:09(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB3CE77286D2F616FE9C16D060548E224F1CA628
 ```
 
 

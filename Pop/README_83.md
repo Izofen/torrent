@@ -1,3 +1,194 @@
+###  Публикация: 1658741   (189677) от 12.09.2023
+
+VA - Grand Prix 90's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rhythm Of The Night (New Extended Remix) - Corona
+02. Run To Me - Double You
+03. You & I (Classic Remix) - J.K.
+04. Life (Mission Control Mix) - Haddaway(   Читать дальше...   )Жанр: Electronic, Euro HouseПродолжительность: 02:22:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0029FD0301C352BB6D9A4999ABB67FF008AF930F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658900   (189713) от 12.09.2023
+
+Olivia Rodrigo - Guts (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. all-american bitch [00:02:45]
+02. bad idea right? [00:03:04]
+03. vampire [00:03:39]
+04. lacy [00:02:57](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF1A984580E5515A3E1B2175BF171A353688540
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660290   (189743) от 12.09.2023
+
+VA - KuschelRock 11 (1997) 2CD [FLAC|Lossless|tracks + .cue]<Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celine Dion - All By Myself
+02. Eros Ramazzotti - L'Aurora
+03. No Mercy - When I Die
+04. Jam & Spoon ( feat. Plavka ) - Kaleidoscope Skies(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:019A7E3D2E23A3D94CCD1EEBBF7B250A874F98EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659466   (189757) от 12.09.2023
+
+Romy - Mid Air (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance-Pop, Indie-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romy - Loveher (03:49)
+02. Romy - Weightless (04:29)
+03. Romy - The Sea (03:11)
+04. Romy - One Last Try (02:42)(   Читать дальше...   )Жанр: Dance-Pop, Indie-PopПродолжительность: 00:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1BEC6B79B9A170F81154A73B73730A576BD75D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659145   (190070) от 11.09.2023
+
+VA - Grand Prix 80's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Race - Yello
+02. Theme From S-Express - S-Express
+03. Dance With Me - Alphaville
+04. Love In The Shadows - E.G.Daily(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 02:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF18B17C4BABA02A153D55778D6342B835C6B00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589454   (190270) от 09.11.2022
+
+Genghis Khan - Greatest Hits (1980) Japanese Edition, Compilation, Reissue, 1992, Victor Musical Industries [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dschinghis Khan (с нем.«Чингисхан») — западногерманская диско-группа, созданная в 1979 году музыкальным продюсером Ральфом Зигелем в ФРГ, для участия в международном песенном конкурсе «Евровидение», где заняла четвёртое место. Наиболее известна исполнением таких песен, как «Dschinghis Khan», «Moskau», «Rocking son of Dschinghis Khan».
+
+Многие песни группы посвящены (   Читать дальше...   )01. Machu Picchu
+02. Hadschi Halef Omar
+03. Madagaskar
+04. Kaspar Hauser(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EECFDD5F4F096F55E4B93B66CC7DE3E93708789C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589459   (190282) от 09.11.2022
+
+The Laser Cowboys - Radioactivity (1986) Remastered, Unofficial Release, 2018, VR [OGG Vorbis|480 Kbps] <Electronic, Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture
+02. Radioactivity (From The Ucraine)
+03. Ultra Warp (Armaged Don Mix)
+04. Theme From Knight Rider(   Читать дальше...   )Жанр: Electronic, Disco, Italo-DiscoПродолжительность: 01:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AC3F93B9F2FC7818E92D82C7ADF7C0396F27E4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659041   (190436) от 10.09.2023
 
 Laid Back - Road To Fame (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening>
@@ -506,195 +697,6 @@ Blue System - Here I Am (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC240FA638920FF4361604266B41CEF3DA9C84AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587803   (192022) от 02.11.2022
-
-VA - NOW That's What I Call Music! 113 (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elton John, Britney Spears - Hold Me Closer
-02. Calvin Harris, Justin Timberlake, Halsey, Pharrell Williams - Stay With Me
-03. Joel Corry, Becky Hill - HISTORY
-04. Luude, Mattafix - Big City Life(   Читать дальше...   )Жанр: Pop, Rock, Dance |Продолжительность: 01:17:56 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:093F345EA1F6729C6345218EB4FA17F01C78052E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588008   (192125) от 02.11.2022
-
-VA - Keep It Disco Vol. 05 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Soulful, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.P.V. - Boogying (Original Mix)
-02. Vinny Terranova - I'm The Same Boy (Original Mix)
-03. DJ Patisso - Hold On (Original Mix)
-04. HP Vince - Funky Africa (Original Mix)(   Читать дальше...   )Жанр: Nu Disco, Funky, Soulful, DiscoПродолжительность: 02:05:27 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97D7FFC94C56C4FA5A55AE32340B524AD9069D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657609   (192247) от 05.09.2023
-
-Debbie Gibson - Body Mind Soul (1993) Deluxe Edition, 2023, Warner Music Group - X5 Music Group [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love or Money [00:04:06]
-02. Do You Have It in Your Heart? [00:04:45]
-03. Free Me [00:04:27]
-04. Shock Your Mama [00:04:07](   Читать дальше...   )Жанр: PopПродолжительность: 02:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F3C429014CC3A202F78FE14F521B19ACCF1196
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587669   (192307) от 01.11.2022
-
-VA - Sex Music (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snoop Dogg - I Wanna Fuck You (2:58)
-02. Tory Lanez - Say It (3:57)
-03. Julia Michaels - Heaven (3:11)
-04. Jeremih - Birthday Sex (3:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91821DE65E820D90B2223392DA745ABD760B7618
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587723   (192312) от 01.11.2022
-
-VA - Generation Rave Vol. 4 - 90s Dance Classics Only (2022) 2CD, Compilation [MP3|320 Kbps] <Euro-House, Italodance, Euro-NRG, Progressive>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suspicious - Lovewaves (Marusha Remix)
-02. Armin van Buuren - Communication (Radio Edit)
-03. Tillmann Uhrmacher - On The Run (Ocean To Shore Club Extended)
-04. Jens Lissat - The Future(   Читать дальше...   )Жанр: Euro-House, Italodance, Euro-NRG, ProgressiveПродолжительность: 03:14:53 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B25417CA473305221677D8A3F03D6BDD3EF1561
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587716   (192326) от 01.11.2022
-
-VA - Generation Rave - 90s Dance Classics Only (2020) CD, Compilation [MP3|320 Kbps] <Euro-House, Italodance, Euro-NRG, Progressive>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delerium feat. Sarah McLachlan - Silence (Tiesto's In Search Of Sunrise Radio Edit)
-02. Rank 1 - Airwave (Original Vocal Edit)
-03. Mauro Picotto - Komodo (Radio)
-04. Dune - Hardcore Vibes (Video Mix)(   Читать дальше...   )Жанр: Euro-House, Italodance, Euro-NRG, ProgressiveПродолжительность: 02:40:25 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43DAFFACE92E3815D5D2F1A284BBF76CE8D0A0A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587720   (192333) от 01.11.2022
-
-VA - Generation Rave Vol. 2 - 90s Dance Classics Only (2020) CD, Compilation [MP3|320 Kbps] <Euro-House, Italodance, Euro-NRG, Progressive>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_192333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gigi D'Agostino - L'amour Toujour (Original Mix)
-02. Robin S. - Show Me Love (StoneBridge Radio Edit)
-03. Fragma - Toca Me (Radio Cut)
-04. Mauro Picotto - Iguana (On Air Mix)(   Читать дальше...   )Жанр: Euro-House, Italodance, Euro-NRG, ProgressiveПродолжительность: 02:56:55 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B990DB4438F5156C797DABF33900C13A4A681830
 ```
 
 

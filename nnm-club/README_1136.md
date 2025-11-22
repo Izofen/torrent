@@ -1,3 +1,57 @@
+###  Публикация: 1775045   (29889) от 24.01.2025
+
+VA - Winter Car Music Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VOLB3X - Don't Leave Me (2:42)
+02. SEEAR - Hanuma (2:05)
+03. Hylost - Nomad (2:46)
+04. MIRAC SARI - Lost (2:37)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381752A302FDFFDF766C33980C95F125A7E597D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774897   (29890) от 24.01.2025
+
+VA - Italo Dance Classics Volume 3 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver Pozzoli - Step By Step
+02. Fun Fun - Happy Station
+03. Ken Laszlo - Hey Hey Guy
+04. Sabrina - Sexy Girl(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B61308A333060B19938652AC93FFAAF4AECF537
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774934   (29891) от 24.01.2025
 
 Вольный странник | Молитва всё исправит. Старцы Псково-Печерского монастыря о молитве (2019) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
@@ -612,57 +666,6 @@ VA - Music News For Forum vol.057 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD12F8E65CFB0A0F7CD143239FDE7A594F3E44F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775070   (29915) от 24.01.2025
-
-Gallery Plus: Photo Vault v2.3.37 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29915.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Вашем телефоне есть фото и видео, которые не предназначены для просмотра детьми, друзьями или другими людьми? Gallery plus поможет Вам в этом, защитив их от чужих глаз.Тип издания: PremiumРелиз состоялся: 10.10.2024Разработчик: The Lockdown TeamПоддерживаемая ОС: Android 4.4+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CEDFD80CDF4B83230E566FE89752B29FD687DCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774964   (29916) от 24.01.2025
-
-VA - Dream Dance Vol. 96 - The Annual (2025) [MP3|320 Kbps] <Trance, Dance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_29916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies & Bomfunk MC's - Freestyler (Rock The Microphone) (Extended Mix) (5:11)
-02. ATB & Dopamine - Don't Stop (I Wanna Know) (Extended Mix) (3:25)
-03. Armin van Buurenx VIZE x Leony - City Lights (Extended Mix) (4:36)
-04. Tiscore x 89ers - Together (Extended Mix) (3:22)(   Читать дальше...   )Жанр: Trance, DanceПродолжительность: 06:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDB0252314A5DD19A0FEDB431DA264C2452E6871
 ```
 
 

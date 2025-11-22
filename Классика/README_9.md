@@ -1,3 +1,107 @@
+###  Публикация: 1651137   (222976) от 05.08.2023
+
+Le Concert Des Nations, La Capella Nacional De Catalunya, Jordi Savall - Beethoven - Révolution Symphonies 6 à 9 (2021) 3 x CD [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_222976.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+[1]-[5] Symphony No.6 in F major, Op.68 'Pastoral'Жанр: ClassicalПродолжительность: 02:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BB2FD507BFEEAA7DF8E89F3AF4670A2C442EB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991943   (225025) от 01.12.2019
+
+Heinali - Sway, sway (2013) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Modern Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sway, sway (04:54)
+02. Little by Little (04:04)Жанр: Modern ClassicalПродолжительность: 00:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4073FD229DAD8C53B74E154D040914C0D5CE79A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341994   (225207) от 01.12.2019
+
+Rick Wakeman - Christmas Portraits (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL]<Classical, Piano, Instrumental>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225207.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - The First Noel [3:26]
+ 2 - In The Bleak Midwinter [3:36]
+ 3 - Deck The Halls  / Away In A Manger [3:29]
+ 4 - The Holly & The Ivy / Mary's Boy Child [3:25](   Читать дальше...   )Жанр: Classical, Piano, InstrumentalПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D78648C6F69A0D70C4392FF31D64FD91588E90A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341651   (225346) от 01.12.2019
+
+Rick Wakeman - Christmas Portraits (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_225346.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The First Noel (03:25)
+2. In The Bleak Midwinter (03:35)
+3. Deck The Halls / Away In A Manger (03:29)
+4. The Holly & The Ivy / Mary's Boy Child (03:24)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3589665E9A55670893D179D386DF713FF1282B4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268592   (226164) от 11.12.2018
 
 Andrea Bocelli - Si (2018) Terget Deluxe Edition [FLAC|Lossless|image + .cue] <Classical Crossover>
@@ -593,129 +697,6 @@ Johann Sebastian Bach, Bernard Foccroulle - Toccaten & Passacaglia (2008) Reissu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65088B1F1A337460445734F6BF09955F586B2456
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620194   (249458) от 19.03.2023
-
-Violina Petrychenko - Mrii: Ukrainian Hope (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reverie, Visions of the Past, op. 13 D Minor (4:56)
-02. Chant triste, op. Posth D Minor (3:34)
-03. Moderato – Allegro – Andante sostenuto – Alla Polacca – Moderato – Allegro (10:27)
-04. Mriya G Minor (3:09)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F4FD26D431D7B81E97551F3F4F65FF690849973
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494957   (251122) от 11.05.2012
-
-Svarrogh / Defile Des Ames / Arnica – South European Folk Compendium (2009) [FLAC|Lossless] <Dark Ambient, Neoclassical, Neofolk>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Défilé Des Âmes - The Banner of Vanity (15:05)
-02. Svarrogh - The Wheel of Dazhbog (07:33)
-03. Àrnica - Lligueu les Besties (05:36)
-04. Àrnica - Marxa dels Camperols (02:42)
-05. Svarrogh - Life Water Krynitsa (05:55)
-06. Àrnica - Dona que Plora (04:31)
-07. Àrnica - Falc en Alt (03:41)
-08. Svarrogh - Yarilo's Return (05:48)
-09. Défilé Des Âmes - Ordo ab Chao (05:06)
-10. Àrnica - Darrer Ale (04:05)2009Жанр: Dark Ambient, Neoclassical, NeofolkФормат: CDПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495107   (251123) от 11.05.2012
-
-Nebelkorona - 3 albums (2006-2010) [FLAC|Lossless] <Neoclassical, Ambient, Neofolk>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_251123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morgenstunden (05:58)
-02. Windstille (06:06)
-03. Sonnenhall (03:35)
-04. Dezemberabend (06:05)
-05. Baumgespenster (06:02)
-06. Waldzauber (06:55)
-07. Abschiedsfeuer (05:57)2006-2010Жанр: Neoclassical, Ambient, NeofolkПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495526   (251372) от 12.05.2012
-
-Kammer Sieben – Unfinished Movies (2007) [FLAC|Lossless] <Apocalyptic Folk, Neoclassical, Martial Industrial>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_251372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Amerika (04:05)
-02. Black Sun (04:25)
-03. Flamme Empor (03:05)
-04. Beinhaus (04:39)
-05. Pingo (03:49)
-06. Richards Lied (03:43)
-07. Them (04:15)
-08. Tripod (03:25)
-09. Dismembered Memories (06:09)
-10. Blood (04:45)(   Читать дальше...   )2007Жанр: Apocalyptic Folk, Neoclassical, Martial IndustrialФормат: CD, Album, Limited EditionПродолжительность: 01:11:53
-
-## Скачать торент
-```bash
-нет
 ```
 
 

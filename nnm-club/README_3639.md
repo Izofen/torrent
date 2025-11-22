@@ -1,3 +1,189 @@
+###  Публикация: 1704178   (114299) от 04.03.2024
+
+AC/DC - Powerage (1978) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock 'n' Roll Damnation
+02. Down Payment Blues
+03. Gimme a Bullet
+04. Riff Raff(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1900260B7544077A876F8BDC733B2192B28E76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704486   (114300) от 04.03.2024
+
+VA - Greatest Jazz Lounge Smooth Instrumentals to Chill (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Whispers (4:54)
+02. Chillaxonic - Oasis (4:58)
+03. Kool&Klean - The Sea (6:11)
+04. Chillaxing Jazz Kollektion - Blue Pacific (4:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8871E183FA740C2DFB889C8EAB384A087CA8B6F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704126   (114301) от 04.03.2024
+
+Odd Chap - Collaborations (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy out There (3:15)
+02. (Hey, Brother) What Have You Done? (2:59)
+03. Highway Romance (3:33)
+04. Take the Night (2:58)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE4FD84DC78B31A09B36485CD2989333661B7B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704443   (114302) от 04.03.2024
+
+StopTheMadness 40.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114302.jpg" />
+</div>
+
+
+###  Подробнее
+
+StopTheMadness — это расширение для браузеров Safari, Firefox, Google Chrome и Chromium, которое не позволяет веб-сайтам усложнять использование вашего браузера. И это защищает вашу конфиденциальность. StopTheMadness не является блокировщиком рекламы: он предлагает уникальные функции, недоступные в блокировщиках рекламы или любых других приложениях. StopTheMadness (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2024Разработчик: © 2018 Jeffrey JohnsonПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A47BC4797AF3D43F4B578BDAF9B0C2FE798349
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704468   (114303) от 04.03.2024
+
+SnapMotion Unlimited for Mac 5.2.1. [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114303.jpg" />
+</div>
+
+
+###  Подробнее
+
+SnapMotion - приложение, которое может извлекать изображения быстрым и простым способом из любого видео вручную в выбранное время или автоматически, каждые х секунд, в зависимости от настроек.
+SnapMotion имеет два режима:
+● Ручной режим, где вы можете извлекать изображения точно в установленное время.
+● Режим пакетной обработки, где вы можете извлечь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.03.2024Разработчик: © 2012-2020 Jérémy VizziniПоддерживаемая ОС: macOS 11.0.+Язык интерфейса: Английский, Немецки и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C075623129C89C1A50848FC4B9AF3B54EF911C28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704383   (114304) от 04.03.2024
+
+Van Morrison - The Legendary Bang Sessions (1994) Remaster, 2024, Charly Digital[FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brown Eyed Girl (Studio Alternate) (3:34)
+02. He Ain't Give You None (Studio Alternate) (5:50)
+03. T.B. Sheets (9:37)
+04. Spanish Rose (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F704F6B0B808A82309E4CCDA6A5E77AA02AEE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704156   (114305) от 04.03.2024
+
+Timo Lassy and Jukka Eskola - Nordic Stew (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Duke of Bayou (3:50)
+02. King Cake (4:28)
+03. Long Walk (4:32)
+04. Sweet Holler (2:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA79747BC86F474E38FD72C8090BCC2F81B9EA89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704145   (114306) от 04.03.2024
 
 Max Cruise - Nights at Sunset Beach (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -485,188 +671,6 @@ VA - Ultimate Chill Lounge Relaxing Soothing Tunes (2024) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C347856CC2F91D62409C626BF1BB853CC5528140
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704358   (114325) от 04.03.2024
-
-TunesKit AceMovi Video Editor 4.9.23 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114325.jpg" />
-</div>
-
-
-###  Подробнее
-
-TunesKit AceMovi Video Editor может отличаться от множества подобных приложений для редактирования видео на рынке, главным образом, благодаря простому и интуитивно понятному интерфейсу, а также множеству мощных функций. С помощью этого программного обеспечения вы можете легко создавать высококачественные видео на Mac, независимо от того, являетесь ли вы профессионалом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.02.2024Разработчик: © 2024 TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE3931C68FCE7224C7D40727A02E3AB5C07A368
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704200   (114326) от 04.03.2024
-
-Absolon - The Blood Seed (2024) [MP3|320kbps] <Power Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destroyer [00:05:09]
-02. Darkness Calls [00:04:27]
-03. My Shadow [00:04:27]
-04. Anger Unconfined [00:04:13](   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81B8BB55F5371F06505E97F2F99F489DF018C78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704502   (114327) от 04.03.2024
-
-VA - Rock Delights (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fall Out Boy - We Didn’t Start the Fire (3:36)
-02. Against The Current - jump (2:40)
-03. Disturbed - Who (4:47)
-04. illenium - Eyes Wide Shut (2:32)(   Читать дальше...   )Жанр: RockПродолжительность: 02:01:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CC014BAFCADEE8AE2F68767EA34118DED8190E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704498   (114328) от 04.03.2024
-
-VA - 2020s Rock Attitude (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Linkin Park - Fighting Myself (3:21)
-02. Paramore - Running Out of Time (3:12)
-03. Green Day - Bobby Sox (3:44)
-04. THE GOO GOO DOLLS - Who's Gonna Hear Their Wish? (2:57)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7875111D67BCDDDA8EE3CD1C47993D822A313A1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704139   (114329) от 04.03.2024
-
-Dixie Jazz Proyecto Divertido, Jazz Instrumental Music Academy - Dixie Swingtime: Timeless Instrumental Collection of Dixieland Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Swing>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birth Of The Dixieland Music (3:34)
-02. Happy Serenity (3:12)
-03. Break with Jazz (3:29)
-04. Timeless Vintage Coffee (3:35)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FB11EFCA4798DCB97043CD4DBF2572C8D921C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704514   (114330) от 04.03.2024
-
-Data Extractor 1.9.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Data Extractor позволяет извлекать данные, содержащиеся в текстовых документах, и собирать их во внутренней организованной таблице с полями и записями.
-Он может анализировать все указанные вами текстовые файлы. Проанализировав их, понять по текстовым тегам, что извлечь и куда это поместить. Data Extractor преобразует хаотические данные в один организованный элемент (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.03.2024Разработчик: © 2024 Roberto PanettaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CC152ACD137465788AB3AFA87B4A27E2D01474
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704365   (114331) от 04.03.2024
-
-Reader for Mac 5.8 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_114331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reader — это быстрая и минималистичная программа просмотра PDF с мощными элементами управления.
-Это полная версия Reader, которая включает в себя базовые аннотации, включая выделение и написание желтых заметок.Тип издания: macOS SoftwareРелиз состоялся: 26.02.2024Разработчик: © 2024 The Augmented Text Company LTDПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B9A6C313E8B0CC8D0740E702FB645F9B8F5433
 ```
 
 

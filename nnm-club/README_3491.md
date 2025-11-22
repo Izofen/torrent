@@ -1,3 +1,190 @@
+###  Публикация: 1719972   (110451) от 01.05.2024
+
+Amiensus - Reclamation (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blink of the Moment (5:28)
+02. Reverie (5:28)
+03. Senses Amplified (7:04)
+04. Sun and Moon (8:38)(   Читать дальше...   )Жанр: Progressive Black MetalПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F60C43600A1EF8829BAACF707693FA711C49CC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719822   (110452) от 01.05.2024
+
+Azaab - Summoning the Cataclysm (2022) [FLAC|Lossless|image + .cue] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pandemonium Twilight
+02. Carbon Plague
+03. A Hollow Pact
+04. Preachers Of Hate(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00: 38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B908286F4AE705FABE56FDBD493ECAD86145BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719834   (110453) от 01.05.2024
+
+Emitt Rhodes - The Emitt Rhodes Recordings 1969-1973 (2009) 2CD [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mother Earth (2:30)
+02. Pardon Me (2:46)
+03. Textile Factory (3:05)
+04. Someone Died (2:04)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 02:16:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78728AB803DBEA869A8CDA54D41DEC6F52CE9C46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719825   (110454) от 01.05.2024
+
+U.D.O. - Steelfactory (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110454.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Tongue Reaper
+A2 Make The Move
+A3 Keeper Of My Soul
+A4 In The Heat Of The Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177683999F4E23A3BBA4A2F864FB76812DEAF171
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720038   (110455) от 01.05.2024
+
+Thalia - The River Of Books (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The River Of Books
+02 - Vision Empire
+03 - AtmoSign
+04 - Body & Soul(   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D55259E27134564A9843C7A11C45346672B7AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719461   (110456) от 01.05.2024
+
+The Acid Machine - Mushrooms (2024) [MP3|320 Kbps] <doommetal, stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Sky Opened [00:05:42]
+02 - Acid Machine [00:05:23]
+03 - Mushrooms [00:05:36]
+04 - Wild Sap [00:03:49](   Читать дальше...   )Жанр: doommetal, stonerПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4587387D2585D9EC445E7AEFAF03E1F71BB494B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719889   (110457) от 01.05.2024
+
+Niels van Gogh - Rave All Night (2023) [FLAC|Lossless|tracks] <EDM, Future House, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niels van Gogh – Rave All Night (2:34)
+02. Niels van Gogh – Rave All Night (extended mix) (4:03)Жанр: EDM, Future House, Club HouseПродолжительность: 00:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CC455758498A88E776D05076A6F9FC97226D9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719620   (110458) от 01.05.2024
 
 Dave Brubeck - Blue Rondo: The 1987 Dave Brubeck Quartet (2000) Concord Jazz [FLAC|Lossless|tracks + .cue] <Cool>
@@ -492,188 +679,6 @@ Bobby Watson & Horizon - Post-Motown Bop (1991) Blue Note [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A5425FBE4D44D2DD6B8C864FE94CEEEBD04B51A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719535   (110477) от 01.05.2024
-
-The Sonic Tapestry - Into the Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora Awakens [00:02:21]
-02. New Beginning [00:11:19]
-03. System Failure [00:06:05]
-04. Edge of the Forest [00:04:11](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81BEB8A4360B705B7A22F697AB1DF6CC229A2310
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719852   (110478) от 01.05.2024
-
-Bobby Watson & Horizon - Horizon Reassembled (2004) Palmetto Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemoncello [7:13]
-02. Pere [7:51]
-03. The Love We Had Yesterday [5:53]
-04. Ginger Bread Boy [5:52](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53AE5CD30C5F3062EC4611EB0D8A4F42083E0BD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719999   (110479) от 01.05.2024
-
-Одиннадцатый час / The Eleventh Hour (1914) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110479.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Одиннадцатый час" это такая метафора в разговорной речи американцев. Означает "в самый последний момент". В этом фильме мы видим драматическую историю - главного героя обвиняют в преступлении, которое он не совершал, осуждают и приговаривают к смерти. Казнь невиновного вот-вот свершится... Успеет ли его невеста спасти своего любимого?
-В копии (   Читать дальше...   )Производство: США, Bison Motion PicturesЖанр: короткометражный, драма, немое киноРежиссер: Генри МакРэйАктеры: Уильям Клиффорд, Филлис Гордон, У.К. Уолтерс, Шерман Бейнбридж, Кларенс Бертон, Вэл Пол, Луле Уоррентон, Кларенс ХоджПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A091BFD76046345C6BC25BA5087A01C9793EB5ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719890   (110480) от 01.05.2024
-
-Niels van Gogh - Miami (2023) [FLAC|Lossless|tracks] <EDM, Club House, Dance-Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niels van Gogh – Miami (2:27)
-02. Niels van Gogh – Miami (extended mix) (3:32)Жанр: EDM, Club House, Dance-PopПродолжительность: 00:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1961573AA870C2D5969CE922688C445A6A47F06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719948   (110481) от 01.05.2024
-
-Судная ночь в Аркадии / Arcadian (2024) WEB-DLRip [H.264] [звук с TS] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земля пережила конец света, уничтоживший почти всех людей. Пол и его сыновья Томас и Джозеф - одни из немногих выживших, скрывшихся в отдаленном доме. Однако их жизнь все еще далека от спокойной: с каждым заходом солнца просыпаются свирепые и жестокие существа, которые уничтожают все живое на своем пути. Но однажды им придется выйти во тьму.Производство: Канада, США, Ирландия / Aperture Media Partners, Highland Film GroupЖанр: ужасы, боевик, триллерРежиссер: Бенжамин БрюэрАктеры: Николас Кейдж, Джейден Мартелл, Макс Дженкинс, Сэди Совералл, Саманта Кохлан, Джо Диксон, Джоэль Гильман, Дэйр МакмахонПеревод: Дублированный (Мосфильм-Мастер) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:34Реклама: Плавающий баннер
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719856   (110482) от 01.05.2024
-
-Dave Brubeck - Jazz Impressions Of Japan & Jazz Impressions Of New York (1960, 1964) 2001, Columbia [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tokio Traffic [5:54]
-02. Rising Sun [4:43]
-03. Toki's Theme [2:11]
-04. Fujiyama [5:06](   Читать дальше...   )Жанр: CoolПродолжительность: 01:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3156B56DB19C689EB4AA1D8DFDBAE037A0BE874C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719892   (110483) от 01.05.2024
-
-Moonsorrow - Studio Albums (8 releases) (2001-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk/Pagan/Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moonsorrow — финская фолк/викинг/блэк-метал-группа, основанная в 1995 году.2001 - Suden Uni
-2001 - Voimasta Ja Kunniasta
-2003 - Kivenkantaja
-2005 - VerisakeetЖанр: Folk/Pagan/Black MetalПродолжительность: 08:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4943BF7775ED7E8BBE971F7A3D7A92CA996D19FD
 ```
 
 

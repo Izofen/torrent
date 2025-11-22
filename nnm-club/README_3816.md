@@ -1,3 +1,189 @@
+###  Публикация: 1697364   (118901) от 06.02.2024
+
+Tyrants - Warlord (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Speed, Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Neath The Red Sun (00:05:10)
+02 - Fire Rain (00:04:28)
+03 - Squad 731 (00:02:48)
+04 - Tyrant's Reign (00:03:49)(   Читать дальше...   )Жанр: Speed, Thrash MetalПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7047F171D2FA4A188C45B883DED4118900F3121
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697452   (118902) от 06.02.2024
+
+Негромкий подвиг / The Courage of the Commonplace (1913) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Душещипательная история о том, как молодая девушка совершила подвиг. Не на войне, не в бушующем море, не в заоблачных высотах. А дома, в обыденной обстановке. Подвиг обыденности, негромкий подвиг. Как это? А вот так - очень ответственная и преданная своей семье девушка пожертвовала своей мечтой ради благополучия своих близких.
+Копии ч/б и колор.Производство: США, Vitagraph Company of AmericaЖанр: короткометражный, драма, немое киноРежиссер: Роллин С. СтарджонАктеры: Чарльз Беннетт, Мэри Чарлсон, Мертл Гонзалез, Эдвин Аугуст, Лойола О’КоннорПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30721BB898D9A16B281B262D71B7ECAFF6162430
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697414   (118903) от 06.02.2024
+
+Myrkur - Mausoleum (2016) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118903.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Vølvens Spådom
+A2 Jeg Er Guden, I Er Tjenerne
+A3 Skøgen Skulle Dø
+A4 Byssan Lull(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF39500BFC0B3C0B038E5EE2892A261311FD103
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697507   (118904) от 06.02.2024
+
+Siren - Financial Suicide (1989) Reissue, 2018, Blacksmith Productions [FLAC|Lossless|image + .cue] <Progressive Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kreator Of Dreams
+02. Unsung Hero
+03. Lines Of Steel
+04. This Machine (Runs-On-Hate)(   Читать дальше...   )Жанр: Progressive Heavy, Power MetalПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7277D47374CB59E0EDF0CEEAECCFF983F98D9660
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697367   (118905) от 06.02.2024
+
+Myrkur - M (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118905.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Skøgen Skulle Dø
+A2 Hævnen
+A3 Onde Børn
+A4 Vølvens Spådom(   Читать дальше...   )Жанр: Atmospheric Black Metal, FolkПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737582707B432ED1CE9E4C5C2F085355CCC02B2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697457   (118906) от 06.02.2024
+
+Энн Хогарт | Мафин и его весёлые друзья (2009) [MP3, Всеволод Соболев, Нина Шацкая и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Мелодия – детям.
+Ослик Мафии – один из любимых героев английских ребят. Родился он в кукольном театре Энн Хогарт и ее мужа Яна Бассела. Оттуда он перешагнул на экраны лондонского телевидения. С приключениями Мафина и его друзей – пингвина Перигрина, страуса Освальда, кенгуру Кэтти и других героев знакомит читателей эта книга.
+Вашему вниманию предлагается (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7097EAF9E53B16EE2190F33D1F4F0F2CE3868996
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697428   (118907) от 06.02.2024
+
+Shaytan - Chapter One (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shaytan (00:03:59)
+02 - Salting the Earth (00:05:10)
+03 - Speaking in Tongues (00:04:56)
+04 - Tabula Rasa (00:04:52)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE8AD7B416749EBF2AE6E16719DB7C06A7F7EAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697320   (118908) от 06.02.2024
 
 3rd Stone - Let Me Play My Song (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -498,187 +684,6 @@ Prediction of the Witch - Sworn into the Void (2024) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3B3635D5916635EDA529AD2C0A5F8974620C445
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697503   (118927) от 06.02.2024
-
-Skyscraper - Elevation (2014) [FLAC|Lossless|image + .cue] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sail Away
-02. Monday Morning
-03. Fay Wray
-04. Across The Barricades(   Читать дальше...   )Жанр: AORПродолжительность: 00:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A10FE289AA35741F7DEEA088BA90D47ADC84021
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697423   (118928) от 06.02.2024
-
-Vintage Lounge Orchestra - Ultimate Collection (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Lo-Fi, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams (feat. Laura Serra)
-02. I've Been Waiting for a Girl Like You (feat. Alessandro Pitoni)
-03. I Can See Clearly Now (feat. Daniele Vit)
-04. Georgy Porgy (feat. Wendy Lewis)(   Читать дальше...   )Жанр: Nu Jazz, Lo-Fi, Easy ListeningПродолжительность: 01:20:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30309CB7061886FBCCFEEC0E9EB3DD6025EAA52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697397   (118929) от 06.02.2024
-
-Laserdance - Technological Mind (1992) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Warriors
-02.  Dead Star
-03.  New Adventure
-04.  Sky Orbit(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C33DAAC8E9AE622427987DD24EEF4CFE79AA02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697360   (118930) от 06.02.2024
-
-Severed Soul - In the Depths of Mourning (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Distant Shores (00:07:16)
-02 - In the Depths of Mourning (00:08:15)
-03 - Bury the Past (00:06:56)
-04 - Twilight's Embrace (00:07:12)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4F07ABF2AED05F3720B7F9C4819527F1594A00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697310   (118931) от 06.02.2024
-
-Джейсон Шрейер | Нажми Reset (2021) [MP3, Петр Сальников]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще вчера вы работали над потрясающей игрой, в которую верила вся команда. А сегодня забираете вещи из офиса и оказываетесь безработным. Что же произошло? Ответ игрового обозревателя Bloomberg News и автора этой книги Джейсона Шрейера пугающе прост – в современной геймдев-индустрии сказкам места нет.
-Ежегодно по всему миру закрываются десятки игровых студий, разработчики (   Читать дальше...   )Жанр: Познавательная литератураИздательство: ЭксмоПродолжительность: 09:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0A4B477E41B8CBFECBECBAF015E85AD9590AC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697468   (118932) от 06.02.2024
-
-Sandboxie 5.67.9 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D09B9BC1FEEF50E8696D02280990100AC9E01C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697422   (118933) от 06.02.2024
-
-Журнал | Кухонька Михалыча №2 (222) (февраль 2024) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_118933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал кулинарных советов для всей семьи. Каждый номер посвящен определенной кулинарной теме или продукту. На страницах издания вы найдете новые и давно забытые рецепты, научитесь печь пироги, готовить вкусные супы и салаты, мясо и рыбу, найдете полезные блюда для детей.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDEDCD7F1BDCB62CE37C8429438837DA292A3E54
 ```
 
 

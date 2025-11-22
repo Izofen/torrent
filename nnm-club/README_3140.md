@@ -1,3 +1,189 @@
+###  Публикация: 1822418   (100746) от 06.10.2025
+
+Sophia Oster Quartet - Praise (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Praise / Strong Woman (9:35)
+02.  Freedom Song (4:54)
+03.  Woodstock / Go (7:48)
+04.  No Mind (6:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1137566A863DA2F584A29CB23FBBC3CBD3BC9DBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822416   (100747) от 06.10.2025
+
+Дополнения - Blender Addons Bundle 1 October 2025 [ZIP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет дополнений для Blender на 1 октября 2025 г.Формат: ZIP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:062E752B741A81597950CD1F3B7D93AF3E46900E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822414   (100748) от 06.10.2025
+
+Smokey Brights - Dashboard Heat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Northgate Way (4:05)
+02.  Never Hurts Never Mind (4:07)
+03.  All in Who You Know (3:32)
+04.  Peace Sign Pentagram (4:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E0F5D9504FF523A789B8519238CD47EFEE9DED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822412   (100749) от 06.10.2025
+
+Schlussakkord - Drehbuch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro (2:11)
+02.  Wir sind wieder da (3:34)
+03.  Kein Weg zu lang (3:03)
+04.  Für immer verbunden (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521A684D362C45934A71091E23E765450F85DB2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822409   (100750) от 06.10.2025
+
+Sam Siefert Ensemble Project - Realization (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mirrored (3:03)
+02.  Despite Everything (5:59)
+03.  Facing the Opposite (5:20)
+04.  March for Peace (8:26)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA8FEDD59FBE479B87A85B9269E6ACD31997FE07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822404   (100751) от 06.10.2025
+
+Riot Jazz Brass Band - Ginja (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ginja (3:00)
+02.  Paradox (3:43)
+03.  Frisky (3:00)
+04.  Soundwave (3:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE841E62C6303B2C511D7C99D1F6E6FFDBB887E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822399   (100752) от 06.10.2025
+
+Richard D. Johnson - Warm Embrace (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  East of the Sun (3:58)
+02.  Warm Embrace (4:45)
+03.  Moonlight In Vermont (4:28)
+04.  Ruby My Dear (7:07)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB161B0E6AD51560477C8D27927E832A7EACF83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822220   (100753) от 06.10.2025
 
 Звёзды в Джунглях (2025) WEB-DL [H.264/720p] (сезон 2, выпуск 1-2 из 15)
@@ -465,186 +651,6 @@ magnet:?xt=urn:btih:7A4F99EE3D0BFB4B5646ED939DF8F911808BC8F8
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45D373085B36BD548FEB6CEE8AD7BE7ED4E252D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822372   (100773) от 06.10.2025
-
-Danger Cobra - Danger Cobra (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  No Easy Way Out (4:27)
-02.  Danger Zone (3:30)
-03.  Rebel Yell (3:33)
-04.  Maniac (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73679C525BCABFB91C56237ADA73211C0E38FA1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822371   (100774) от 06.10.2025
-
-Промты - SevenUnited LLC - 437 Midjourney Creative Portrait Prompts: Vol 2 - 9146519 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это набор из 437 промтов Midjourney с примерами изображений для создания творческих портретов: часть 2.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1CAA92C280E932AF1DDFE475B09D1DFCA453CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822370   (100775) от 06.10.2025
-
-Canyon Lights - Breathe Easy (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Seventh Son (2:28)
-02.  Late to the Ball (3:22)
-03.  Song Behind Those Tears (3:35)
-04.  Let Me In (2:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC1C04BF22A61792CF02FB6665C3E07F7EF9E2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822369   (100776) от 06.10.2025
-
-Карнавал (1981) WEBRip [H.264/1080p] (2 серии)
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попав в столицу, провинциальная девчонка, мечтающая выучиться на артистку, быстро расстается с романтическим представлением о жизни как сплошном празднике. Зато начинает понимать, что в мире действительно стоит ценить и что вовсе не имеет цены.Производство: СССР / Киностудия им. М.ГорькогоЖанр: драма, комедия, музыкаРежиссер: Татьяна ЛиозноваАктеры: Ирина Муравьёва, Юрий Яковлев, Клара Лучко, Александр Абдулов, Вера Васильева, Алевтина Румянцева, Екатерина Жемчужная, Борис Морозов, Александр Михайлов, Лидия Смирнова и др.Продолжительность: 01:13:54 + 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9914F3ACCF6B3D68C9B839ECE3A6BB81E643E07E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822368   (100777) от 06.10.2025
-
-Шрифты - Hubert Jocham's 200 Fonts [OTF, TTF, PFM, PFB]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хуберт Йохам — один из самых продуктивных дизайнеров шрифтов Германии, создавший несколько самых известных логотипов страны. Его элегантные шрифты украшают страницы журналов по всему миру. Вот и тут набор его шрифтов для ваших творческих задач.Формат: OTF, TTF, PFM, PFBПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F0B98023449EE2512E36A7BB9C865531C369594
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822367   (100778) от 06.10.2025
-
-Balder Gernot - Towards The End (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rockabilly>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Run My Friend (4:06)
-02.  Here Is Your World (4:18)
-03.  Choose Your Path (3:14)
-04.  Thank You For Picking Me Up (3:36)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2914AC2CDF7FC15D671534943C6F758FDAD8F72D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822365   (100779) от 06.10.2025
-
-Amiya - Prosto do Gwiazd (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  To The Stars (4:35)
-02.  Poczuj nagrodę za wytrwałość (4:11)
-03.  Armor of Gold (2024 Session) (5:55)
-04.  Powiedz,czy warto (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07247E4F55C92F1879AC483D17A45654897E592E
 ```
 
 

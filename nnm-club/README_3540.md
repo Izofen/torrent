@@ -1,3 +1,190 @@
+###  Публикация: 1714513   (111725) от 09.04.2024
+
+The Drums - Jonny (2023) Deluxe, 2024, Anti - Epitaph [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want It All [00:04:55]
+02. Isolette [00:02:34]
+03. I'm Still Scared [00:02:13]
+04. Better [00:03:48](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 01:10:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9391EFD84344954720079A0F7F95DED4C4EED2D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714487   (111726) от 09.04.2024
+
+Астрид Линдгрен | Расмус-бродяга. Мы – на острове Сальткрока (Радиоспектакль) (2010) [MP3, Николай Литвинов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Audiobook. Из архива «Гостелерадиофонда».
+Астрид Линдгрен (1902–2002) – шведская писательница, автор всемирно известных книг для детей.
+В аудиокнигу известной детской писательницы из Швеции Астрид Линдгрен вошли два радиоспектакля по повести «Расмус-бродяга», и по книге «На острове Сальткрока».
+(   Читать дальше...   )Жанр: Зарубежная литература для детей, повестьИздательство: ИДДК, Бизнессофт, ГостелерадиофондПродолжительность: 02:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2E0C8EC92D4BA1E23B55F8D956F6BAA8E1E6C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714143   (111727) от 09.04.2024
+
+Modest Mouse - Good News For People Who Love Bad News: (2004) 20th Anniversary Expanded Edition, 2024, Epic - Legacy [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horn Intro [00:00:09]
+02. The World At Large [00:04:32]
+03. Float On [00:03:28]
+04. Ocean Breathes Salty [00:03:44](   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 01:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FC0D495339C63F838CF7FD78E2E1A88D870EC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714377   (111728) от 09.04.2024
+
+Kenny Burrell - Moon And Sand (1979) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Latin Jazz, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moon and Sand [6:30]
+02. My Ship [6:37]
+03. For Once in My Life [4:23]
+04. U.M.M.G. [3:01](   Читать дальше...   )Жанр: Latin Jazz, Mainstream Jazz, Guitar JazzПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C552D6D5FDA144C253CB795453A49C35C3C65E56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714341   (111729) от 09.04.2024
+
+Quinta Essentia - Evolution of Ethereal Wisdom (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akasha
+02. Dweller At The Threshold
+03. Ascended Masters
+04. The Lesser Keys(   Читать дальше...   )Жанр: Melodic Death, Black MetalПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE0305A7AC92DB439205E87A86310C613F59648
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714379   (111730) от 09.04.2024
+
+Pat Martino - We'll Be Together Again (1976) 1990, Breaktime [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Road (Olee, Variations and Song, Open Road) [16:00]
+02. Lament [5:04]
+03. We'll Be Together Again [5:05]
+04. You Don't Know What Love Is [4:46](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3638C1C4B0D8A7EB18BF3B7F933471C4B813F1B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714518   (111731) от 09.04.2024
+
+Хоккей. НХЛ 2023-2024. Питтсбург Пингвинз - Торонто Мэйпл Лифс (08.04.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111731.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 апреля 2024, суббота. 20:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 383 зрителя (98% при вместимости 18 673)
+Главный судья: Стив Козари (Пентиктон, Канада); Главный судья: Том Хмелевски (Колорадо-Спрингс, Канада); Линейный: Биван Миллс (Суррэй, Канада); Линейный: Кайл Флемингтон (Паркхилл, Канада)Телекомпания: SNPINЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E3B35B40E1222A4BD78C3CACB5CA9113E68981
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714371   (111732) от 09.04.2024
 
 МузЛофт-подкаст / МузLoft. Сборник (2024) WEBRip [H.264/1080p]
@@ -474,193 +661,6 @@ Lost In Grey - Odyssey into the Grey (2024) [FLAC|Lossless|WEB-DL|tracks] <Symph
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28ECF53FD2A3A153094D4B7CD91A9A0365DFEE0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714275   (111751) от 08.04.2024
-
-Samsara - Charon's Lullaby (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom, Melodic Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charon's Lullaby [00:17:40]
-02. Buried Love [00:03:02]
-03. Sleeping Beauty [00:14:24]
-04. Memories [00:04:11]Жанр: Atmospheric Doom, Melodic DeathПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4ACB481F2E931903C9B07116D48B8765807291E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714253   (111752) от 08.04.2024
-
-Рип Ван Винкль / Rip Van Winkle (1914) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип Ван Винкль неисправимый пьяница, врун и, что уж там таить, бездельник. Но человек он, по-существу, хороший, добрый, компанейский и очень любит свою дочь. И случилась с ним совершенно невероятная история...
-Фильм по мотивам известнейшего в узких кругах рассказа Вашингтона Ирвинга.Производство: США, Rolfe PhotoplaysЖанр: фэнтези, драма, немое киноРежиссер: нет сведенийАктеры: Томас Джеффресон, Clarette Clare, Гарри Блейкмор, Дэйзи Джеффресон, Уоллес Скотт, Уильям Кавано, Дж. Сабо, Уильям Чемберлен, Лоэль Стюарт, Морис СтюартПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DFC0079E7A25356FB4BFB8FEF6CC60D94214CD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713956   (111753) от 08.04.2024
-
-Arania - Whispering Embers (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Symphonic Metal, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forsaken [00:01:54]
-02. Open My Eyes [00:04:11]
-03. Come Find Me [00:05:33]
-04. Hubris [00:04:29](   Читать дальше...   )Жанр: Melodic Symphonic Metal, Female VocalsПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00B83247666D369650274C268FBCB1C89ACB54E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714109   (111754) от 08.04.2024
-
-Astral Magic - Strange Sensation (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. See You in Zone X [00:05:44]
-02. Haunted Mansion [00:04:13]
-03. You Can't Hear Me [00:04:52]
-04. Don't Lead Me On [00:06:02](   Читать дальше...   )Жанр: Psychedelic, Space Rock, Prog RockПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A4C5E5C2F0978A51B9CEA96E50BAB0E15C03AB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714234   (111755) от 08.04.2024
-
-Saracen - Red Sky (2003) [FLAC|Lossless|image + .cue] <AOR, Heavy Metal, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Have Arrived
-02. Red Sky
-03. Faith
-04. Horseman Of The Apocalypse(   Читать дальше...   )Жанр: AOR, Heavy Metal, Prog RockПродолжительность: 01:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D654446BFEF115676E41F0BF506797CD06644B91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713965   (111756) от 08.04.2024
-
-NeXuS - Primera Impresion - La Coleccion Esencial (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. En el Tercer Planeta [00:04:45]
-02. Despertar Dentro de un Sueño [00:09:22]
-03. Alma de Sombra [00:05:25]
-04. La Espiral [00:02:45](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 02:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384A25D1881309DCCB75336E6A7C7F4A489128F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714222   (111757) от 08.04.2024
-
-Ainigma - Diluvium (1973) 2006 Reissue, Garden Of Delights [FLAC|Lossless|image + .cue] <Prog Rock, Krautrock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prejudice (5:34)
-02. You Must Run (7:31)
-03. All Things Are Fading (5:12)
-04. Diluvium (17:50)(   Читать дальше...   )Жанр: Prog Rock, KrautrockПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11392501DAC3EE70B4F4E7A89CF6571238A3C41C
 ```
 
 

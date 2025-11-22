@@ -1,3 +1,216 @@
+###  Публикация: 468930   (96901) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 20
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96901.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 20 
+Название:  Desktop Wallpapers Pack 20 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8EEBFB3A4E349EC9016B0B5F0FDD392CD23044
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468644   (96904) от 17.03.2012
+
+Azaghal - Nemesis (2012) [FLAC|Lossless]<Black Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Masticatione Mortuorum (3:04)
+02. Pohjoisen Valkoinen Kuolema (4:10)
+03. Vihasta ja Veritoista (7:36)
+04. Hail the Whore (5:23)
+05. Ex Nihilo (7:30)
+06. In Deathlike Silence (4:25)
+07. Black Legions of Satan (4:19)
+08. Nemesis (4:42)
+09. The Pit of Shoggoths (6:16)
+10. Satanic Devotion (4:30)Жанр: Black MetalПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469576   (96905) от 17.03.2012
+
+[Wallpapers] Nature Pictures №29
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96905.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №29
+Название: Nature Pictures №29
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9D55A98260DF564CDA4E8BDCCA230D4B262ABEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469446   (96906) от 17.03.2012
+
+VA - TMP : Trance Harmony 062 (2012) [MP3|320kbps]<Trance, Uplifting Trance, Dream Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Vinitsky & Lo-Fi Sugar - All I Know Now (Paul Vinitsky Club Mix)
+02. Luke Bond feat. Emel - Amaze (Original Mix)
+03. Vast Vision - Black Shores (Original Mix)
+04. Vincent Voort - Driven
+05. Luca De Maas - E-Motions 2011 (original mix)
+06. Morgan Page feat. Sultan vs. Ned Shepard & BT - In The Air (Hardwell Remix)
+07. Mat Zo - Loop (The Essential Unreleased Mix)
+08. Up & Forward - Prestige (Den Rize pres. Blur8 Remix)
+09. Ummet Ozcan - Reboot (Original Mix)
+10. Ultimate - Wonderland (Original Mix)2012Жанр: Trance, Uplifting Trance, Dream TranceПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9F1E08B77EAE052BE181A24612F540DBD9F723E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467241   (96908) от 17.03.2012
+
+Stephane Grappelli - Pent Up House (1962/1998) [FLAC|Lossless]<Swing>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_96908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Django (4:58)
+02. Nuages (4:28)
+03. Alabamy Bound (3:34)
+04. You'd Better Go Now (2:55)
+05. Le Tien (3:24)
+06. Like Someone In Love (3:38)
+07. Minor Swing (4:04)
+08. Daphane (3:22)
+09. Soft Winds (3:43)
+10. Makin' Whooppee (3:33)(   Читать дальше...   )1962/1998Жанр: SwingПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469100   (96911) от 17.03.2012
+
+Scarlet Haze - One Bad Bitch (2012) [MP3|~245 кб/с (V0)]<Gothic Metal,Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blame It On You
+ 02. Can’t Get Enuff
+ 03. There’s The Door
+ 04. One Bad Bitch
+ 05. Hero
+ 06. Oxygen
+ 07. Reach Down (feat. Ron Thal of Guns N’ Roses)
+ 08. King of Loneliness
+ 09. Sorry
+ 10. Suffocating(   Читать дальше...   )2012Жанр: Gothic Metal,Progressive MetalПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30E187F0C70E4E663A959EDB9491C0D13B5CF0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469035   (96912) от 17.03.2012
+
+Эллери Квин | Трагедия Игрек [2009] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Друри Лейн
+Оригинальное название:2009Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D72AD143D1820431FA3607559E848D400D8FB26C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468727   (96913) от 17.03.2012
 
 VA - Последние новинки в мире музыки от Vanovlad 50/50 vol.13 (2012) [MP3|128-320 кб/с]<Pop, Dance>
@@ -508,206 +721,6 @@ VA - Avto Club March (2012) [MP3|320 кб/с]<Dance, House, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF5B03F1EC97B869AD073237D6BB734532574817
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469013   (96944) от 17.03.2012
-
-Эллери Квин | Застекленная деревня [2010] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальное название: The Glass Village 1954 год.
-Роман «Застекленная деревня» занимает особое место среди детективов, написанных Эллери Квином. По сути дела, это психологический роман с криминальной подоплекой, в котором описывается своеобразная жизнь традиционной американской глубинки. Главный герой здесь — не хорошо известный сыщик, а Джонни, племянник судьи Шинна — одного из жителей деревни Шинн-Корнерс. Убита известная жительница деревни, а в её смерти обвинён бродяга, на свою беду посетивший в этот момент Шинн-Корнерс.2010Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47CB14E66DBE7B3AFB1F4A52A6ADF05A07060F88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468769   (96945) от 17.03.2012
-
-Mortad - The Myth Of Purity (2012) [MP3|320 кб/с]<Melodic Death Metal / Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96945.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:53] 01 - All Thats Born Must Be Destroyed 
- [03:54] 02 - Waste Of My Rage 
- [05:14] 03 - The Heights 
- [05:17] 04 - Mirage 
- [04:36] 05 - Feels Like Suffocation 
- [04:48] 06 - The Myth Of Purity
- [03:08] 07 - Im Not Interested In Being Interesting 
- [04:11] 08 - By Default 
- [06:58] 09 - The Voice 
- [05:49] 10 - That Which Is Humane(   Читать дальше...   )2012Жанр: Melodic Death Metal / Thrash MetalПродолжительность: 00:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DBAFBFE10FF283E3F2DDC7822C035A57AB117A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469371   (96946) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 21
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96946.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 21 
-Название:  Desktop Wallpapers Pack 21 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D208573A179BA95C1FEE07C4CE2C34A6FA89AFD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468752   (96948) от 17.03.2012
-
-Свободная Стая (Маста Кэш и Женя Лир) - Кто я без тебя (2012) [MP3|320 кб/с]<Hip-Hop, Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мишель (интерлюдия)
-02. Мишель
-03. Приговор
-04. Скажи мне (интерлюдия)
-05. Скажи мне
-06. Танец с огнем
-07. 29 марта
-08. Кто я без тебя
-09. Yaroslavna
-10. Мишель (акустическая версия)Жанр: Hip-Hop, RockПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F5E170C1B9D4765DFE80CF3656F4A5B3B7B319
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469373   (96949) от 17.03.2012
-
-VA - Trance World Vol. 14 (Mixed by Shogun) (2012)  [MP3|320 кб/с]<Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96949.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Trance World Vol. 14 (Mixed by Shogun) (2012) 
-Год: 2012
-Жанр: Uplifting Trance
-Продолжительность: 04:41:00Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. John O'Callaghan ft Cathy Burton - Perfection (Shogun Remix)
-02. Kyau & Albert - Always A Fool (2011 Rework)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13B54018BAC4A2B2F95D5F4E966965B5144D7DB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469091   (96950) от 17.03.2012
-
-Росс МакДональд | Человек в Кадиллаке [1995] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл  Лью Арчер / Lew Archer
-Оригинальное название:1995Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2079B9D4C29D04540E0A2FCEC922A3501B7568
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469086   (96951) от 17.03.2012
-
-Росс МакДональд | Предсмертный взгляд [2002] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл  Лью Арчер / Lew Archer
-Оригинальное название:2002Жанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D9703F84F032A006E614CA87C3B33172FFBE1D
 ```
 
 

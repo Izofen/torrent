@@ -1,3 +1,189 @@
+###  Публикация: 488075   (100501) от 26.04.2012
+
+[Wallpapers] Sexy Girls Pack Wallpapers (26.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4368x2730
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAFB8C7A30DA1E864E6A3A031F65455D45891D1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488076   (100502) от 26.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (26.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4443x3520
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:406EEE17D9888DE0E256AFC4BC527528991DC5B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488479   (100503) от 26.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls (27.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 7200х5600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090574B70836FA8DAD83CE19F80AEF001BDE246D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488167   (100504) от 26.04.2012
+
+Phil Keaggy - Instrumental Anthology (1996 - 2008) [MP3|320 кб/с]<Instrumental Guitar, CCM>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100504.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 (00:45:58)
+
+01 Animal (1996)
+02 Highland (1996)
+03 Beyond This Day (1996)
+04 Lockdown (1999)
+05 Swing Low, Sweet Chariot (1996)
+06 Abide With Me (2002)
+07 Praise Dance (1997)
+08 Blue Room (2001)(   Читать дальше...   )1996 - 2008Жанр: Instrumental Guitar, CCMПродолжительность: 01:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B37BBBA59558DB465053C2A9009AD1DAAFB456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488304   (100505) от 26.04.2012
+
+Журнал | Копилка семейных советов №8 [апрель 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100505.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Копилка семейных советов» - полезные советы для дачников и огородников по дизайну и уходу за растениями, кулинарные рецепты, оздоровительные и юридические советы, советы по воспитанию детей, благоустройству дома, рукоделие, секреты жизни звезд и многое другое.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E578BA47F972E874CFE40CF72B85FDDA8DB84345
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487833   (100506) от 26.04.2012
+
+VA - Клубные Новинки Vol.64 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel & Jozhy K - Number One (Lessov Dub Remix)
+02. Mescis - Lately (Proper Heat Remix)
+03. Cosmic Gate & Arnej vs. Markus Schulz feat. Departure - Sometimes They Come Wthout You Near (Gabriel & Dresden Mashup)
+04. Vadim Koks - Exoskeleton (Original Mix)
+05. Titus1 feat. Terri B! - Let It Ring (Original Mix)
+06. South Ground - Let's Rock (Original Mix)
+07. Jeter Avio feat Vera Fisher - I Will Stay (M.O.O.N. Pro Remix)
+08. JoJo - Disaster (Baggi Begovic Remix)
+09. Ivan Demsoff, Burzhuy, LMD feat. Ira Champion - One Cup The Kaffein (Original Mix)
+10. Cedric Gervais & Cid - Playa (Original Mix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D66211B7FEC963573CCFEEE451FFB6524E621B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488291   (100507) от 26.04.2012
+
+[Wallpapers] Texture pack 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстурные обои(фоны) для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CE714BE502B03CB33A73FA30E3B0CB8C5AF529
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488289   (100510) от 26.04.2012
 
 [Wallpapers] Wallpaper Sexy Girls 0.12
@@ -503,191 +689,6 @@ Ronnie Baker Brooks - Blues In My DNA (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A477C2692F0E7AE579F8FC5A2031775251BC926
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770371   (100538) от 31.12.2024
-
-Константин Селезнёв - Anima Terrae (2017) [MP3|320 Kbps] <Heavy Metal, Modern Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стоит на страже батальон
-02. Я знаю
-03. Счастья миг
-04. Обещаю, будем жить(   Читать дальше...   )Жанр: Heavy Metal, Modern Melodic MetalПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB201D6784803089EC439044E25C8B21511D54D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770370   (100539) от 31.12.2024
-
-Tuff Luck - An Acoustic Afternoon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make You Mine (3:29)
-02. Tell Me (3:22)
-03. A50 Avenue (5:24)
-04. The Wool (2:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3F510B8456EE2E4FB16AFD2184A2A8FCFA1082
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770229   (100540) от 31.12.2024
-
-Лууле Виилма | Светлый источник любви (2011) [MP3, Елена Калабина]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лууле Виилма - специалист с многолетним опытом в области медицинских и духовных практик, рассказывает о разработанном ею учении. Суть его состоит в том, что, научившись правильно думать и прощать себя в самом широком смысле, человек обретает здоровье, счастье и душевный покой.
-"Лишь тот, кто понимает и любит себя, способен полюбить других."
-Лууле ВиилмаЖанр: Эзотерика, ПсихологияИздательство: Астрель, АудиокнигаПродолжительность: 11:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:548E544EC5D08C6137A9CA9FF776401AA12BE269
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770348   (100541) от 31.12.2024
-
-Наконец-то одни / Endelig alene (1914) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая забавная комедия. Молодожены только-только из-под венца. Ну, вот чего им хочется больше всего? Конечно же остаться наедине друг с другом. Им же надо многое обсудить, строить планы на будущее. Ну, и всякое такое. Ага? А обстоятельства складывются так, что им все время кто-то мешает, все время кто-то вторгается в их компанию. То попутчик, то родственники... (   Читать дальше...   )Производство: Дания /  Nordisk Film KompagniЖанр: короткометражный, комедия, немое киноРежиссер: Хольгер-МадсенАктеры: Расмус Кристиансен, Фредерик Якобсен, Питер Йоргенсен, Betzy Kofoed, Doris Langkilde, Торбен Мейер, Карл Шенстром, Мария Видаль, Charles WillumsenПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D6F3BA40D8CBFB6384A44887D793E26D1CC385
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770102   (100542) от 31.12.2024
-
-Dominum - The Dead Don't Die (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immortalis Dominum (Live at Graspop Metal Meeting 2024) [00:04:33]
-02. Danger Danger (Live at Graspop Metal Meeting 2024) [00:03:34]
-03. Half Alive (Live at Graspop Metal Meeting 2024) [00:04:17]
-04. Frankenstein (Live at Graspop Metal Meeting 2024) [00:03:57](   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 2 CD, 01:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E46E808E897BDD9F96C078614A7885D506CDA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770303   (100543) от 31.12.2024
-
-Breeze - Just Another Day (Breeze) (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Return To Valencia (4:44)
-02.  Just Another Day (6:08)
-03.  It's A Thing Called Love (3:53)
-04.  This Is Paradise (5:17)(   Читать дальше...   )Жанр: Smooth Jazz, Jazz FusionПродолжительность: 01:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D84570A65E90F5B38C4F2E38055A11508C7650D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770286   (100544) от 31.12.2024
-
-The Soulmate Project - Vinyl Flavour (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_100544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vero Nouk - Laisse-Toi Tomber (2:58)
-02.  Penny Maddox - Keep My Boots On (3:18)
-03.  Be Yourself (3:06)
-04.  Stormy Night (2:29)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F048E052B48F3976B2C757F9469CE55284BCEF
 ```
 
 

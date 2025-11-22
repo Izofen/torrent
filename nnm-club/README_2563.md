@@ -1,3 +1,51 @@
+###  Публикация: 1793916   (67386) от 27.04.2025
+
+Паттерны - Free PSD Templates - Botanical Pattern Set [JPG, AI, PSD, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный набор ботанических паттернов в векторе и растре.Формат: JPG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2085
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19585A72F32D3A4E19CC68DF40E68EE0D87EBAF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793895   (67387) от 27.04.2025
+
+Паттерны - Free PSD Templates - African Patterns [PNG, AI, PSD, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные Африканские узоры в векторе и растре.Формат: PNG, AI, PSD, EPSРазрешение файлов: 776 x 776
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9DC507F0D714DA41689CC129AF91A60C042795
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793837   (67388) от 27.04.2025
 
 Super Lovers II | Больше, чем возлюбленные 2 [2017, TV, 10 из 10 эп.] BDRip 1080p raw+rus
@@ -588,57 +636,6 @@ magnet:?xt=urn:btih:DDC15E7CE8B57F6612359573481EC7E0CE478045
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F23E721B18288B9574C2C85C286EC96F029A9E28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642795   (67412) от 27.04.2025
-
-Deserted Fear - Studio Albums (6 releases) (2012-2025) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deserted Fear - Death metal группа из Германии, основана в 2008 году.2012 - My Empire
-2014 - Kingdom of Worms
-2017 - Dead Shores Rising
-2019 - Drowned By HumanityЖанр: Death MetalПродолжительность: 04:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C1B5449B9176EF79ED55DB61B6E5471B823333
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793906   (67413) от 27.04.2025
-
-Текстуры - Company Folders - Card Stock Paper Textures [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные бумажные текстуры.Формат: JPGРазрешение файлов: 2100 x 1500 - 3861 x 2574
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C85B94006F5C82A1CCFD1CBAD143E887C8AC02
 ```
 
 

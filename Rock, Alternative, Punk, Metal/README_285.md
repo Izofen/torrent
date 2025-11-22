@@ -1,3 +1,381 @@
+###  Публикация: 1671723   (170971) от 26.10.2023
+
+Queen - The Game (1980) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Play The Game (Remastered 2011) [00:03:32]
+02. Dragon Attack (Remastered 2011) [00:04:18]
+03. Another One Bites The Dust (Remastered 2011) [00:03:34]
+04. Need Your Loving Tonight (Remastered 2011) [00:02:49](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B225333CE7BD5A776182B2CDFD9E0EB5B46CC7F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671888   (170979) от 26.10.2023
+
+Queen - The Works (1984) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170979.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 1:
+01. Radio Ga Ga (Remastered 2011)
+02. Tear It Up (Remastered 2011)
+03. It's A Hard Life (Remastered 2011)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33C1CAA71C89D8622C3C157B95385962BDDBD44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671881   (170980) от 26.10.2023
+
+Queen - Made In Heaven (1995) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170980.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 1:
+01. It's a Beautiful Day (Remastered 2011)
+02. Made in Heaven (Remastered 2011)
+03. Let Me Live (Remastered 2011)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8695F5E6EB92B4559DC23E31EB4AB664EFDE6EDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671875   (170983) от 26.10.2023
+
+Queen - Innuendo (1991) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170983.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 1:
+01. Innuendo (Remastered 2011)
+02. I'm Going Slightly Mad (Remastered 2011)
+03. Headlong (Remastered 2011)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7A5F11960CF1F2025D2B838FAA457221BB6611
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671826   (170985) от 26.10.2023
+
+VA - 80s Rock Standards (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - Another One Bites The Dust (Remastered 2011) (3:35)
+02. Aerosmith - Dude (Looks Like A Lady) (4:25)
+03. Pat Benatar - Hit Me With Your Best Shot (2:52)
+04. Bon Jovi - Bad Medicine (5:16)(   Читать дальше...   )Жанр: RockПродолжительность: 02:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35583E19AB0E53BA1AA83BE7CBAA3D9D49BB24B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671686   (170989) от 26.10.2023
+
+Queen - Jazz (1978) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mustapha (Remastered 2011) [00:03:01]
+02. Fat Bottomed Girls (2011 Remaster) [00:04:15]
+03. Jealousy (Remastered 2011) [00:03:13]
+04. Bicycle Race (Remastered 2011) [00:03:00](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94553574ABA3DB2525FC6402ABF4F6FC9DB9C1A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671865   (171010) от 26.10.2023
+
+Queen - Hot Space (1982) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171010.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 1:
+01. Staying Power (Remastered 2011)
+02. Dancer (Remastered 2011)
+03. Back Chat (Remastered 2011)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D51CE408317663BFCBF0F3D0C8DB97467784219D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671981   (171034) от 26.10.2023
+
+Doro - Conqueress - Forever Strong and Proud (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children of the Dawn (4:07)
+02. Fire in the Sky (3:27)
+03. Living After Midnight (3:53)
+04. All For You (3:55)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF71C0398C88458D64C428844E54DD42CE3BBA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671629   (171044) от 26.10.2023
+
+Alessiee - Дежавю (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не по пути [00:03:59]
+02. Лихо [00:03:32]
+03. Дежавю [00:03:16]
+04. Кто ты [00:03:24](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D893D2082F7517C46D1DACAA3DA045816C36916
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671840   (171049) от 26.10.2023
+
+Theatres Des Vamires - Moonlight Waltz (2011) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keeper Of Secrets
+02. Fly Away
+03. Moonlight Waltz
+04. Carmilla(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78638C935672B2B7B0B96DA3EE7F68522BCE9DC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671882   (171061) от 26.10.2023
+
+Black Heaven - History (2009) 2CD [FLAC|Lossless|image + .cue] <Darkwave, Gothic, Synth>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информация: Работой с проектом Black Heaven лидер группы Mantus Martin Schindler демонстрирует ещё одну грань своего таланта. Здесь он создаёт музыку электронно-танцевальную по форме, романтично-меланхоличную по сути. Этим он занимается совместно с Thalia - также из Mantus.01. The Beginning
+02. Regentanz
+03. Kein Ton (2007)
+04. Silence(   Читать дальше...   )Жанр: Darkwave, Gothic, SynthПродолжительность: 01:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFE7DEA2EC7AAF51A9FDE1E39D9FC96E109A78B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671936   (171063) от 26.10.2023
+
+Dokken - Heaven Comes Down (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fugitive (3:57)
+02. Gypsy (4:19)
+03. Is It Me Or You? (4:23)
+04. Just Like A Rose (4:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B376233B608CD2D06AAE030A3912BFA97C4255F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671869   (171065) от 26.10.2023
+
+Nosferatu - Anthology (2006) 2CD [FLAC|Lossless|image + .cue] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информация: Nosferatu — британская музыкальная группа, исполняющая готик-рок. Своим названием команда обязана знаменитому немому фильму ужасов «Носферату». С момента образования в 1988 году коллектив добился значительного коммерческого успеха, продав более 100 тысяч копий альбомов.01. Close
+02. Inside The Devil
+03. Alone
+04. Arabian Heat(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 02:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4160B9380FFAF9B1EAA9FE17DB0D6510492A3C99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671995   (171067) от 26.10.2023
+
+In This Moment - Godmode (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Godmode (4:01)
+02. The Purge (3:59)
+03. Army Of Me (3:10)
+04. Sacrifice (4:22)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CC7C2BD2B003FF063D56F438E484B452CCC9EEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672014   (171074) от 26.10.2023
 
 Pattern-Seeking Animals - Spooky Action at a Distance (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive rock>
@@ -316,384 +694,6 @@ The Vision Bleak - The Deathship Has A New Captain (2004) 10th Anniversary Editi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25E58D64CA182ABFCE1F8E81B831F53180A4D0AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671861   (171092) от 26.10.2023
-
-Saviour Machine - Legend Part II (1998) [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Covenant
-02. The Whore Of Babylon
-03. Legend II:I
-04. The False Prophet(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA58C47686D8F6620C50F380A16DC37283E85CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671837   (171094) от 26.10.2023
-
-Theatres Des Vamires - Anima Noir (2009) [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kain
-02. Unspoken Words
-03. Rain
-04. Dust(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2FCCDED24FA9EEDFCF87A5C1DDD7C783C573D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671854   (171095) от 26.10.2023
-
-Saviour Machine - Saviour Machine I (1993) [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carnival Of Souls
-02. Force Of The Entity
-03. Legion
-04. Ludicrous Smiles(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40299A58B5B3F971A1BF33D85C132D9BBF113CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671596   (171152) от 25.10.2023
-
-Крематорий - КТ-40 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Коктейль "Дракон"
-02. Бар "Под дулом револьвера"
-03. Грибы-мухоморы
-04. ЗПХ(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36856451798A9A0930BFBADB8025556EFAC3C344
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671479   (171160) от 25.10.2023
-
-Queen - News Of The World (1977) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Will Rock You (Remastered 2011) [00:02:02]
-02. We Are The Champions (Remastered 2011) [00:02:59]
-03. Sheer Heart Attack (Remastered 2011) [00:03:27]
-04. All Dead, All Dead (Remastered 2011) [00:03:09](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12EAD4804D92BD64761E1663197B5205F64C206F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671579   (171167) от 25.10.2023
-
-VA - Greatest Rock Of All Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - A Kind Of Magic (Remastered 2011) (4:24)
-02. The Jam - The Eton Rifles (3:57)
-03. The Rolling Stones - Emotional Rescue (Remastered 2009) (5:39)
-04. The J. Geils Band - Love Stinks (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 03:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B550E36E9A893F18871820AB9B1FA113422F896A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671464   (171181) от 25.10.2023
-
-Queen - Sheer Heart Attack (1974) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brighton Rock (Remastered 2011) [00:05:10]
-02. Killer Queen (Remastered 2011) [00:02:59]
-03. Tenement Funster (Remastered 2011) [00:02:46]
-04. Flick Of The Wrist (Remastered 2011) [00:03:17](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E0D6845DD1E0F5A9FA16CBB4771AB298C33D3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671461   (171182) от 25.10.2023
-
-Queen - Queen (1973) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep Yourself Alive (Remastered 2011) [00:03:47]
-02. Doing Alright (Remastered 2011) [00:04:09]
-03. Great King Rat (Remastered 2011) [00:05:42]
-04. My Fairy King (Remastered 2011) [00:04:08](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590E938CE0C3C9F466CC2F6AC576FF30EA469EE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671476   (171186) от 25.10.2023
-
-Queen - A Day At The Races (1976) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tie Your Mother Down (Remastered 2011) [00:04:47]
-02. You Take My Breath Away (Remastered 2011) [00:05:06]
-03. Long Away (Remastered 2011) [00:03:33]
-04. The Millionaire Waltz (Remastered 2011) [00:04:55](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9123049BBBD3E2C57E6D44657D417F97733D82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671443   (171221) от 25.10.2023
-
-Florence + The Machine - Under Heaven Over Hell (2023) Compilation [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Is Here [00:01:51]
-02. Dog Days Are Over [00:04:10]
-03. Choreomania [00:03:33]
-04. Delilah [00:04:53](   Читать дальше...   )Жанр: Alternative, Indie PopПродолжительность: 02:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D34914C25A0B7844FF45079A8D1FE42D25230B03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671701   (171223) от 25.10.2023
-
-Vitalines - Wheels Within Wheels (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judgement Day Is Here
-02. Love Not Fantasy
-03. Hello World - We Need To Talk
-04. Cards From Another Game(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE869A77BEFA3A9FD0E4B6F5CC4856620C87C32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671528   (171232) от 25.10.2023
-
-Lord Vampyr - Gothika Vampyrika Heretika (2013) [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информация: Alexander Nunziati - итальянский певец, композитор и продюсер, основавший в 1994 году ставшую успешной и довольно популярной группу THEATRES DES VAMPIRES, исполняющую готичный метал с сильным влиянием black metal и тем вампиризма и оккультности. В 2004 Александр покинул THEATRES DES VAMPIRES по личным причинам и сосредоточился на сольном проекте LORD (   Читать дальше...   )01. Theda Bara
-02. Lamia
-03. Gothika Vampyrika Heretika
-04. The Night Chronicles Pt. I(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C2BAE89F07061F3F5C3402C4A9A9D58351526A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671634   (171233) от 25.10.2023
-
-Gabriel Agudo - Tales & Thunders (2023) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyager [00:05:09]
-02. A Last Chance [00:04:52]
-03. Nosferatu [00:07:24]
-04. The Way of Shaman [00:05:36](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB2C49DF8D7DBDD53D31EC36F15C775FDC6BF628
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671537   (171247) от 25.10.2023
-
-Sinful Way - Revolution (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Full Moon (04:05)
-02. God Damn Evil (04:14)
-03. YSOLWND (04:06)
-04. Let It Go (04:03)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7ADBA6D51DBFF40A84D982E5FDA7C3E0350558E
 ```
 
 

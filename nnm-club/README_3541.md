@@ -1,3 +1,190 @@
+###  Публикация: 1714275   (111751) от 08.04.2024
+
+Samsara - Charon's Lullaby (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom, Melodic Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charon's Lullaby [00:17:40]
+02. Buried Love [00:03:02]
+03. Sleeping Beauty [00:14:24]
+04. Memories [00:04:11]Жанр: Atmospheric Doom, Melodic DeathПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4ACB481F2E931903C9B07116D48B8765807291E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714253   (111752) от 08.04.2024
+
+Рип Ван Винкль / Rip Van Winkle (1914) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип Ван Винкль неисправимый пьяница, врун и, что уж там таить, бездельник. Но человек он, по-существу, хороший, добрый, компанейский и очень любит свою дочь. И случилась с ним совершенно невероятная история...
+Фильм по мотивам известнейшего в узких кругах рассказа Вашингтона Ирвинга.Производство: США, Rolfe PhotoplaysЖанр: фэнтези, драма, немое киноРежиссер: нет сведенийАктеры: Томас Джеффресон, Clarette Clare, Гарри Блейкмор, Дэйзи Джеффресон, Уоллес Скотт, Уильям Кавано, Дж. Сабо, Уильям Чемберлен, Лоэль Стюарт, Морис СтюартПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DFC0079E7A25356FB4BFB8FEF6CC60D94214CD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713956   (111753) от 08.04.2024
+
+Arania - Whispering Embers (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Symphonic Metal, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forsaken [00:01:54]
+02. Open My Eyes [00:04:11]
+03. Come Find Me [00:05:33]
+04. Hubris [00:04:29](   Читать дальше...   )Жанр: Melodic Symphonic Metal, Female VocalsПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00B83247666D369650274C268FBCB1C89ACB54E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714109   (111754) от 08.04.2024
+
+Astral Magic - Strange Sensation (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Space Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. See You in Zone X [00:05:44]
+02. Haunted Mansion [00:04:13]
+03. You Can't Hear Me [00:04:52]
+04. Don't Lead Me On [00:06:02](   Читать дальше...   )Жанр: Psychedelic, Space Rock, Prog RockПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A4C5E5C2F0978A51B9CEA96E50BAB0E15C03AB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714234   (111755) от 08.04.2024
+
+Saracen - Red Sky (2003) [FLAC|Lossless|image + .cue] <AOR, Heavy Metal, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Have Arrived
+02. Red Sky
+03. Faith
+04. Horseman Of The Apocalypse(   Читать дальше...   )Жанр: AOR, Heavy Metal, Prog RockПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D654446BFEF115676E41F0BF506797CD06644B91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713965   (111756) от 08.04.2024
+
+NeXuS - Primera Impresion - La Coleccion Esencial (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. En el Tercer Planeta [00:04:45]
+02. Despertar Dentro de un Sueño [00:09:22]
+03. Alma de Sombra [00:05:25]
+04. La Espiral [00:02:45](   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 02:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:384A25D1881309DCCB75336E6A7C7F4A489128F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714222   (111757) от 08.04.2024
+
+Ainigma - Diluvium (1973) 2006 Reissue, Garden Of Delights [FLAC|Lossless|image + .cue] <Prog Rock, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prejudice (5:34)
+02. You Must Run (7:31)
+03. All Things Are Fading (5:12)
+04. Diluvium (17:50)(   Читать дальше...   )Жанр: Prog Rock, KrautrockПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11392501DAC3EE70B4F4E7A89CF6571238A3C41C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714083   (111758) от 08.04.2024
 
 David Cross - Crossing the Tracks (2018) [FLAC|Lossless|image + .cue] <Art Rock, Avantgarde, Prog Rock>
@@ -473,191 +660,6 @@ magnet:?xt=urn:btih:C537867C09735C3668F6DD3D8AC25C2C8BE0EC79
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A67CB42E04E36ABA8673C858C19CAD063F0ED8FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713961   (111777) от 07.04.2024
-
-The Absence - The Absence (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Communion Carbonized
-02. The Silent Eye
-03. Vagrant Death
-04. Planetary Mortuary(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A238B17965576A28D947FF38EB282238BC0362B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713897   (111778) от 07.04.2024
-
-Tal Farlow - The Guitar Artistry of Tal Farlow (1959) 2021, Universal [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Foggy Day [3:23]
-02. The Man in My Life [4:48]
-03. Sweet Lorraine [5:28]
-04. Wess Side [4:39](   Читать дальше...   )Жанр: Bop, Cool, Guitar JazzПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81134C621F7366629F259E2F5F099482CFC9A3BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713889   (111779) от 07.04.2024
-
-The Papriks - Kiss'ЛЯ'тина (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. По колено [00:02:48]
-02. Погода [00:02:14]
-03. Два часа [00:02:23]
-04. Долгожданная весна [00:03:56](   Читать дальше...   )Жанр: Ska, RockПродолжительность: 00:26:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF9AFCE066538C9CA28C4C97FC175584A05DE6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713895   (111780) от 07.04.2024
-
-Richie Kamuca & Bill Holman - West Coast Jazz In Hi Fi (1959) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Way Down Under [3:34]
-02. Blue Jazz [4:21]
-03. Angel Eyes [3:59]
-04. Stella by Starlight [3:21](   Читать дальше...   )Жанр: CoolПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8775A5EE8070D237F8540F61CAA65FA524A4253
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713821   (111781) от 07.04.2024
-
-Ирина Млодик | Пока ты пытался стать богом… (2024) [MP3, Екатерина Алимп-Даниленко]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга включает в себя роман и психологическую статью. И роман, и статья – о людях с нарциссическими нарушениями. Обычно нарциссом принято называть самовлюбленного, эгоистичного человека – почти все помнят миф о Нарциссе, погибшем от любви к себе. В психологии же речь идет о нарциссическом характере, который лишь отдаленно напоминает бытовое представление.
-Автор предлагает (   Читать дальше...   )Жанр: ПсихологияИздательство: ЛитРес: чтецПродолжительность: 06:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E60A4FD9A35882D9B9E5E1F34BE01D03C5750B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713748   (111782) от 07.04.2024
-
-Saracen - Heroes, Saints & Fools (1981) Reissue, 1992, TRC Records [FLAC|Lossless|image + .cue] <Hard Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crusader 6:22
-02. Rock Of Ages 3:17
-03. No More Lonely Nights 3:23
-04. Horsemen Of The Apocalypse 6:14(   Читать дальше...   )Жанр: Hard Rock, RockПродолжительность: 01:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB8DDB1D6A175AADF1EA753F7F045908386BC43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713951   (111783) от 07.04.2024
-
-Александр Островский | Таланты и поклонники (2007) [MP3, Станислав Федосов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_111783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Александр Николаевич Островский (1823–1886) по праву признан основоположником национального русского театра. В его творчестве запечатлен колорит русской жизни времен купеческой Москвы. Но пьесы Островского и сейчас необыкновенно актуальны. Любовь и расчет, бедность и богатство, подлость и благородство – вечные темы, вечные страсти, (   Читать дальше...   )Жанр: Русская литература, классика, пьеса, комедияИздательство: Студия «АРДИС»Продолжительность: 03:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599EA8C7E43604983C9DB91D8EA3AF0A488DC744
 ```
 
 

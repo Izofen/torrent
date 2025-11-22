@@ -1,3 +1,192 @@
+###  Публикация: 1460060   (235342) от 04.04.2021
+
+Sagath - Necrotica 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_235342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вторая часть (Intro) [02:04]
+02. Это мой крест [03:12]
+03. Существо [02:53]
+04. Ведьмин дом [03:31](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E009CC5E228AFF422365D23233ED1D6A3DBBC40C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629139   (238283) от 26.04.2023
+
+Lloyd Banks - The Course of the Inevitable 3: Pieces of My Pain (2023) [MP3|192 Kbps] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pieces of My Pain
+02. Onyx AMG
+03. Money Machine
+04. Cliffhanger(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B02CCB8721FCA99685FD3A09A4233E1BD2B10D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636585   (238920) от 31.05.2023
+
+$uicideboy$ - YIN YANG TAPES: Winter Season (1989-1990) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_238920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Season Intro (0:39)
+02. Bossier City Kidnap Victims (2:44)
+03. Didn't They Give You Percoset? (2:10)
+04. I Deleted Facebook a Long Time Ago (2:57)Жанр: Hip-Hop, RapПродолжительность: 00:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B736CDC9588CE56E5321395A29C173B3E13AE39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636278   (239222) от 29.05.2023
+
+Lil Durk - Almost Healed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_239222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Therapy Session (1:28)
+02. Pelle Coat (4:14)
+03. All My Life (3:44)
+04. Never Again (2:20)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F169C22EEBECDE25E47A9E9E2900C31C23975B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635137   (240052) от 24.05.2023
+
+KAYTRAMINE - KAYTRAMINE (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who He Iz (3:01)
+02. letstalkaboutit (2:47)
+03. 4EVA (3:10)
+04. Westside (2:24)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD87BC77922D1E6D93226323A5CC84DCB2F78B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626930   (240058) от 16.04.2023
+
+ХЛЕБ - Последний (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240058.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дэб
+2. Убили Кирилла
+3. Марина
+4. Дети(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C162ED1D69E3CEAF5DDB784764E7F09175DC3295
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626765   (240100) от 17.04.2023
+
+NF - Hope (2023) [MP3|320 Kbps] <Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_240100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - HOPE [00:04:24]
+02 - MOTTO [00:03:37]
+03 - CAREFUL [00:03:29]
+04 - MAMA [00:03:28](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC076B0014F667FC7BBF32370D97F682748119B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459744   (241311) от 04.04.2021
 
 Jahmal TGK - СНЕГОПАД Underground (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -506,195 +695,6 @@ Sagath - Страшные сказки (2022) [MP3|320 Kbps] <Alternative, Hip-H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FBF13066A5AE808A7DA962CDD579A90BA0EF9A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372032   (242064) от 03.04.2020
-
-ГАМОРА - THE BAD (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вставляет нормально [04:55]
-02. Лови [06:07]
-03. Убойный камень [03:22]
-04. Решай неспеша [03:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:650E2E51CF6796034EA89698BEA34B6D564A00EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624526   (242092) от 06.04.2023
-
-L'One - Дом (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_242092.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я готов ко всему
-2. Летать
-3. Она одна
-4. Верну до темноты(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C1E3C94C6D4E4C5B1EB20E514E48022F5C58BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568150   (243261) от 06.08.2022
-
-Eminem - Curtain Call 2 (Explicit) (2022) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_243261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 A.M.
-02. Space Bound
-03. Beautiful
-04. The Monster (feat. Rihanna)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 02:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F202B414EDD76284E09D32970BE0AB899D4A33B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631331   (244471) от 08.05.2023
-
-MC Eiht - Lessons 2 (2023) Blue Stamp Music [MP3|320 Kbps] <Rap, West Coast Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_244471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tha Paper feat. Domino
-02. Bodega Money feat. Dave East
-03. What U Wanna Do
-04. Client(   Читать дальше...   )Жанр: Rap, West Coast Hip-HopПродолжительность: 01:20:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6550905BA5A8CE01DB66BD8736D9282E217797DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511414   (245817) от 21.11.2021
-
-bollywoodFM - Магия (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_245817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 в 1 [01:48]
-02. Дождь (feat. Kasha) [02:28]
-03. Магия [01:50]
-04. Хочу быть как все (feat. Бакей) [01:51](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B46556536D604014EB5C803DD19173932F1B00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511191   (246001) от 20.11.2021
-
-Сидоджи Дубоshit - BIG FOOT (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_246001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GRIND [01:53]
-02. INDEPENDENT (KASKADER) [02:48]
-03. DEATHFLIP [03:01]
-04. BIGFOOT [03:51](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA43DDED9694F8C424613BEE505356BAFD185D0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620220   (249461) от 19.03.2023
-
-VA - Chillhop Essentials Spring (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_249461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Train, Paal Singh – Over You (2:05)
-02. Nokiaa, Philanthrope – Friction (1:54)
-03. Ben Bada Boom, Plusma – Cabriolet (3:33)
-04. Yasper, sonofmark – Yellowblue (2:54)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C2F11E452EBA555C77E9176649F84BF7C772BA
 ```
 
 

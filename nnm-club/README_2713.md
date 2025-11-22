@@ -1,3 +1,54 @@
+###  Публикация: 1776482   (71286) от 01.02.2025
+
+Giorgio Moroder - Club Remixes Selection, Vol. 7 (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco, House>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E=Mc2 (Kniagna Radio Edit) [00:03:52]
+02. Our Love (Defex Radio Edit) [00:03:27]
+03. I Wanna Rock You (Denis Naidanow Radio Edit) (Radio Edit) [00:02:23]
+04. What a Feeling (Hackatone Radio Edit) [00:02:51](   Читать дальше...   )Жанр: Electronic, Disco, HouseПродолжительность: 01:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08687989CA320A64AD5E50D211F893EA6F7D22A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776450   (71287) от 01.02.2025
+
+Saleblazers (2023) [Ru/Multi] (0.14.9.3) Repack Pioneer [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Saleblazers предлагает насладиться увлекательным опытом выживания в мультиплеерном экшене, в котором тебе предстоит создать магазин и выжить в опасном мире, наполненном различными опасностями. На этом опасном острове тебе придется строить уютные кафе или же огромные торговые центры в компании с другими игроками. Весь мир игры является реактивным песочницей, где каждый (   Читать дальше...   )Тип издания: RepackРазработчик: AIRSTRAFE INTERACTIVEЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0546E4FFCDB576F9C4B1A000840BA6DA3526ADC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776511   (71288) от 01.02.2025
 
 ES File Explorer File Manager v4.4.2.19 Mod by maxi123444 [Ru/Multi]
@@ -601,60 +652,6 @@ magnet:?xt=urn:btih:A5FC32F8173612273FB6DA757625E11D07751914
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01DFE1EB40A1548DF8C2F8E58674ECE4FF9B946F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776208   (71312) от 31.01.2025
-
-Мёртвая Вера - Запечатлённый Дьявол (2025) [FLAC|Lossless|WEB-DL|tracks] <black metal, death metal, doom metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жрать говно [00:02:27]
-02. Богу похуй [00:04:14]
-03. Смерть [00:03:07]
-04. Гей-пропаганда [00:03:33](   Читать дальше...   )Жанр: black metal, death metal, doom metalПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69680487F14CF52BD1D9DDDA8CCFAFF9611A1681
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776350   (71313) от 31.01.2025
-
-Mflex Sounds - Bad Love (2024) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Love (6:06)
-02. Black Hole (5:18)
-03. My Angel 2 (Snippet) (2:28)
-04. A Sea of Calm (3:41)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213895AFE3E3829B20FC2A7A5A9F0358DCC67DD6
 ```
 
 

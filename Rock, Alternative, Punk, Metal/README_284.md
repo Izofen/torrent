@@ -1,3 +1,381 @@
+###  Публикация: 1672024   (170522) от 27.10.2023
+
+Manbryne - O Udrece Ciala I Tulaczce Duszy (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pustka, Ktora Znam (00:08:46)
+02 - W Pogoni Za Wiara (00:08:13)
+03 - Ostatni Splot (00:07:00)
+04 - Majestat Upadku (00:09:22)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ACD846E787DD3F3F30B5AD3932F57D83CB55032
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596359   (170523) от 09.12.2022
+
+Неисследованный квадрат - 5 Albums (2019-2022) [MP3|320 Kbps] <Alternativo, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2019 - Иллюзии гиперсна
+2019 - Утренняя звезда
+2021 - Миссия Андромеда(   Читать дальше...   )Жанр: Alternativo, RockПродолжительность: 5 CD, 02:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A3C351C5C0D8B3B1FFD74EBC5ADEB2224315A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596267   (170525) от 09.12.2022
+
+IT'sALIE - Emosphere (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breath Of Fire
+02. Unbroken
+03. Beyond Revenge
+04. Moonchild(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C802A1A5C34D146B4404EEAC5AC81AA9A84008
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515076   (170530) от 06.12.2021
+
+Lich King - World Gone Dead (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 02:22
+02. Act of War 04:53
+03. ED-209 03:56
+04. A Storm of Swords 06:44(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25CC890D40E7308B038067DEE0B56F89F228898
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587367   (170533) от 09.12.2022
+
+I, the Oracle - 2 Albums, 2 EP (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2015 - Like Feathers We Fall
+2017 - Shattered Memories
+2020 - Psychosis(   Читать дальше...   )Жанр: Melodic Metalcore ///Продолжительность: 4 CD, 01:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB8CA5D8EDE233E3A832C9003AAC0E2864BD139E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672106   (170534) от 27.10.2023
+
+Viogression - Expound and Exhort (1991) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maggot Synod
+02. Nothing (Psychosomatic Insanity)
+03. Puritan Flames
+04. Wind of Death(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00EC65E3C97DDD67272767B710733DA915C39D8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672031   (170541) от 27.10.2023
+
+Endseeker - Global Worming (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Global Worming (4:10)
+02. Hell Is Here (5:36)
+03. Violence Is Gold (4:13)
+04. Wheel of Torture (5:41)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CFE3B7801356C2AC5155C2E38321B0C35A26A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515075   (170557) от 06.12.2021
+
+Lich King - Toxic Zombie Onslaught (2008) [WavPack|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cheesy Metal Intro
+02 - Attack of the Wrath of the War of the...
+03 - Office Politics
+04 - Thrash Resurgence(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29657C058A21DF4BB2A201165631A5E087C34F9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596383   (170558) от 09.12.2022
+
+Gomorra - Dealer Of Souls (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflections Of Souls
+02. War Of Control
+03. A Chance For The Better
+04. Stand United(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF9586A08684DC408CCB18A211B85F805E006D76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596330   (170571) от 09.12.2022
+
+Les Carlsen - He's Coming (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Know You(Remastered 2022)
+02. Scars
+03. Judas Is dead
+04. The Jesus Freak Show(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC91787CEFECACA2AB6ACC1E29EF7D6649B73196
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344257   (170574) от 10.12.2019
+
+Mgła (Mgla) - Age Of Excuse (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ⅰ (7:30)
+02. Ⅱ (6:58)
+03. Ⅲ (6:16)
+04. Ⅳ (5:36)(   Читать дальше...   )Производство: Northern Heritage – NH-107, No Solace – NS-06Жанр: Black MetalПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CDE8DB55130349AAA41CD4FAC6EA47880BC6BB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596163   (170577) от 09.12.2022
+
+Stay Design - Moirai (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Spinner [00:02:29]
+02. Dante [00:04:27]
+03. The 03 [00:04:20]
+04. Penitent [00:04:46](   Читать дальше...   )Жанр: Alternative, MetalcoreПродолжительность: 00:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8800BA8CF098A2FD8BA4AB6EDC09D04764632E8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596202   (170580) от 09.12.2022
+
+Circus Maximus - Havoc In Oslo (2017) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170580.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+1. Forging
+2. Namaste
+3. The One(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86529DC34C3B09CD24631D4C4196F79C2583D318
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596269   (170584) от 09.12.2022
+
+Highlord - Freakin' Out Of Hell (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude To Hell
+02. Soul Sucker
+03. Freakin' Out Of Hell
+04. Sweet Unknown(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DE7F91C00BE30D9E5E91DE8E5F166F094D114C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596184   (170595) от 09.12.2022
 
 Aggressive - Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
@@ -320,384 +698,6 @@ DISC 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72319843AE98E5B1DDF5075C4CD77CADFCD54891
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671723   (170971) от 26.10.2023
-
-Queen - The Game (1980) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Play The Game (Remastered 2011) [00:03:32]
-02. Dragon Attack (Remastered 2011) [00:04:18]
-03. Another One Bites The Dust (Remastered 2011) [00:03:34]
-04. Need Your Loving Tonight (Remastered 2011) [00:02:49](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B225333CE7BD5A776182B2CDFD9E0EB5B46CC7F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671888   (170979) от 26.10.2023
-
-Queen - The Works (1984) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170979.jpg" />
-</div>
-
-
-###  Подробнее
-
-DISC 1:
-01. Radio Ga Ga (Remastered 2011)
-02. Tear It Up (Remastered 2011)
-03. It's A Hard Life (Remastered 2011)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33C1CAA71C89D8622C3C157B95385962BDDBD44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671881   (170980) от 26.10.2023
-
-Queen - Made In Heaven (1995) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170980.jpg" />
-</div>
-
-
-###  Подробнее
-
-DISC 1:
-01. It's a Beautiful Day (Remastered 2011)
-02. Made in Heaven (Remastered 2011)
-03. Let Me Live (Remastered 2011)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8695F5E6EB92B4559DC23E31EB4AB664EFDE6EDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671875   (170983) от 26.10.2023
-
-Queen - Innuendo (1991) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170983.jpg" />
-</div>
-
-
-###  Подробнее
-
-DISC 1:
-01. Innuendo (Remastered 2011)
-02. I'm Going Slightly Mad (Remastered 2011)
-03. Headlong (Remastered 2011)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C7A5F11960CF1F2025D2B838FAA457221BB6611
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671826   (170985) от 26.10.2023
-
-VA - 80s Rock Standards (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Another One Bites The Dust (Remastered 2011) (3:35)
-02. Aerosmith - Dude (Looks Like A Lady) (4:25)
-03. Pat Benatar - Hit Me With Your Best Shot (2:52)
-04. Bon Jovi - Bad Medicine (5:16)(   Читать дальше...   )Жанр: RockПродолжительность: 02:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35583E19AB0E53BA1AA83BE7CBAA3D9D49BB24B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671686   (170989) от 26.10.2023
-
-Queen - Jazz (1978) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_170989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mustapha (Remastered 2011) [00:03:01]
-02. Fat Bottomed Girls (2011 Remaster) [00:04:15]
-03. Jealousy (Remastered 2011) [00:03:13]
-04. Bicycle Race (Remastered 2011) [00:03:00](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94553574ABA3DB2525FC6402ABF4F6FC9DB9C1A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671865   (171010) от 26.10.2023
-
-Queen - Hot Space (1982) 2CD Deluxe Edition, Remaster, 2011, EMI [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171010.jpg" />
-</div>
-
-
-###  Подробнее
-
-DISC 1:
-01. Staying Power (Remastered 2011)
-02. Dancer (Remastered 2011)
-03. Back Chat (Remastered 2011)(   Читать дальше...   )Жанр: Rock |Продолжительность: 01:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D51CE408317663BFCBF0F3D0C8DB97467784219D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671981   (171034) от 26.10.2023
-
-Doro - Conqueress - Forever Strong and Proud (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children of the Dawn (4:07)
-02. Fire in the Sky (3:27)
-03. Living After Midnight (3:53)
-04. All For You (3:55)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FF71C0398C88458D64C428844E54DD42CE3BBA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671629   (171044) от 26.10.2023
-
-Alessiee - Дежавю (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не по пути [00:03:59]
-02. Лихо [00:03:32]
-03. Дежавю [00:03:16]
-04. Кто ты [00:03:24](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D893D2082F7517C46D1DACAA3DA045816C36916
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671840   (171049) от 26.10.2023
-
-Theatres Des Vamires - Moonlight Waltz (2011) [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keeper Of Secrets
-02. Fly Away
-03. Moonlight Waltz
-04. Carmilla(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78638C935672B2B7B0B96DA3EE7F68522BCE9DC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671882   (171061) от 26.10.2023
-
-Black Heaven - History (2009) 2CD [FLAC|Lossless|image + .cue] <Darkwave, Gothic, Synth>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информация: Работой с проектом Black Heaven лидер группы Mantus Martin Schindler демонстрирует ещё одну грань своего таланта. Здесь он создаёт музыку электронно-танцевальную по форме, романтично-меланхоличную по сути. Этим он занимается совместно с Thalia - также из Mantus.01. The Beginning
-02. Regentanz
-03. Kein Ton (2007)
-04. Silence(   Читать дальше...   )Жанр: Darkwave, Gothic, SynthПродолжительность: 01:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFE7DEA2EC7AAF51A9FDE1E39D9FC96E109A78B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671936   (171063) от 26.10.2023
-
-Dokken - Heaven Comes Down (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fugitive (3:57)
-02. Gypsy (4:19)
-03. Is It Me Or You? (4:23)
-04. Just Like A Rose (4:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B376233B608CD2D06AAE030A3912BFA97C4255F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671869   (171065) от 26.10.2023
-
-Nosferatu - Anthology (2006) 2CD [FLAC|Lossless|image + .cue] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информация: Nosferatu — британская музыкальная группа, исполняющая готик-рок. Своим названием команда обязана знаменитому немому фильму ужасов «Носферату». С момента образования в 1988 году коллектив добился значительного коммерческого успеха, продав более 100 тысяч копий альбомов.01. Close
-02. Inside The Devil
-03. Alone
-04. Arabian Heat(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 02:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4160B9380FFAF9B1EAA9FE17DB0D6510492A3C99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671995   (171067) от 26.10.2023
-
-In This Moment - Godmode (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_171067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Godmode (4:01)
-02. The Purge (3:59)
-03. Army Of Me (3:10)
-04. Sacrifice (4:22)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC7C2BD2B003FF063D56F438E484B452CCC9EEC
 ```
 
 

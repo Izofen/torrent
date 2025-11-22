@@ -1,3 +1,137 @@
+###  Публикация: 1590478   (187798) от 16.11.2022
+
+C.C. Catch - Classics (1989) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Seat Of You Cadillac
+02. Are You Man Enougth
+03. Good Guys Only Win In Movies
+04. Midnight Gambler(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 01:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906FBA469B23D3F734BE99CFA58A3DE29E1E0717
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590946   (187799) от 16.11.2022
+
+Bee Gees - Number Ones (2004) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massachusetts
+02. World
+03. Words
+04. I've Got A Message To You(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 01:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29287C17711B4486467EA2455B5C49B81E57A23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591069   (187811) от 16.11.2022
+
+Tempo Rubato - Music '85 (1985) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music '85 (19:02)
+02. Don't Stop The Classics (10:45)
+03. Let's Stay Together (7:28)Жанр: Electronic, Italo-Disco, DiscoПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C692B64CC6D4268CFAA9A47005C144CD5DBB58E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590798   (187813) от 16.11.2022
+
+C.C. Catch - Super 20 (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Kiss
+02. Soul Survivor
+03. 'Cause You Are Young
+04. Heaven & Hell(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836D8E9ED0655743524A44DBA5CDF10FFC24DCF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590920   (187814) от 16.11.2022
+
+C.C. Catch - Super Disco Hits (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartbreak Hotel (''Room 69'' Mix)
+02. One Night's Not Enough (Maxi Version)
+03. Back Seat Of Your Cadillac
+04. I Can Lose My Heart Tonight (Extended Club Remix)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E73DD72817280B622B30C1BA7B23C95D6092575
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590619   (187817) от 16.11.2022
 
 C.C. Catch - Hear What I Say (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
@@ -20,6 +154,33 @@ C.C. Catch - Hear What I Say (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6031F628872E0D581F2520A0CD2473D3D7F6F51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151952   (187853) от 17.09.2023
+
+VA - Николай Добронравов: Лучшее... (2013) Мелодия, записи 1966 - 1985 гг. [FLAC|Lossless|image + .cue] <Советская эстрада>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_187853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот творческий дуэт не нуждается ни в дополнительном представлении, ни в пространном описании: просто в их песнях - целая эпоха. Хорошая ли, плохая ли - каждый для себя определяет сам, но как не выбросишь из песни слова, так из целой эпохи не выбросишь музыку Александры Пахмутовой и слова Николая Добронравова.01. Анна Герман - Надежда  (3:46)
+02. Муслим Магомаев - Мелодия  (4:41)
+03. Валентина Толкунова - Я не могу иначе  (2:58)
+04. Бисер Киров - Птица счастья  (2:50)(   Читать дальше...   )Жанр: Советская эстрадаПродолжительность: 01:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFE81F61BB8B1BC0E4BB610B284436FFE25306F
 ```
 
 
@@ -209,6 +370,33 @@ Carly Simon - These Are The Good Old Days: The Carly Simon & Jac Holzman Story (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43D773C40C9E2ADA422DC40E6C00C4168E02C4C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152326   (188949) от 13.11.2022
+
+Boney M. - Ten Thousand Lightyears (1984) [FLAC|Lossless|image + .cue] <Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_188949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exodus (Noah's Ark 2001) (5:19)
+02. Wild Planet (4:06)
+03. Future World (3:53)
+04. Where Did You Go (4:11)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25999307F1A1C0A1A2FCADD2766343B699D2A67
 ```
 
 
@@ -501,197 +689,6 @@ DJ Bobo - Evolut30n (Evolution) (2022) [FLAC|Lossless|WEB-DL|tracks] <Eurodance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE670C2BCA3B6BC02AE969B68479B41060E9D3A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658741   (189677) от 12.09.2023
-
-VA - Grand Prix 90's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rhythm Of The Night (New Extended Remix) - Corona
-02. Run To Me - Double You
-03. You & I (Classic Remix) - J.K.
-04. Life (Mission Control Mix) - Haddaway(   Читать дальше...   )Жанр: Electronic, Euro HouseПродолжительность: 02:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0029FD0301C352BB6D9A4999ABB67FF008AF930F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658900   (189713) от 12.09.2023
-
-Olivia Rodrigo - Guts (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. all-american bitch [00:02:45]
-02. bad idea right? [00:03:04]
-03. vampire [00:03:39]
-04. lacy [00:02:57](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF1A984580E5515A3E1B2175BF171A353688540
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660290   (189743) от 12.09.2023
-
-VA - KuschelRock 11 (1997) 2CD [FLAC|Lossless|tracks + .cue]<Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celine Dion - All By Myself
-02. Eros Ramazzotti - L'Aurora
-03. No Mercy - When I Die
-04. Jam & Spoon ( feat. Plavka ) - Kaleidoscope Skies(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019A7E3D2E23A3D94CCD1EEBBF7B250A874F98EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659466   (189757) от 12.09.2023
-
-Romy - Mid Air (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance-Pop, Indie-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_189757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romy - Loveher (03:49)
-02. Romy - Weightless (04:29)
-03. Romy - The Sea (03:11)
-04. Romy - One Last Try (02:42)(   Читать дальше...   )Жанр: Dance-Pop, Indie-PopПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1BEC6B79B9A170F81154A73B73730A576BD75D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659145   (190070) от 11.09.2023
-
-VA - Grand Prix 80's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Euro House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Race - Yello
-02. Theme From S-Express - S-Express
-03. Dance With Me - Alphaville
-04. Love In The Shadows - E.G.Daily(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro HouseПродолжительность: 02:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF18B17C4BABA02A153D55778D6342B835C6B00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589454   (190270) от 09.11.2022
-
-Genghis Khan - Greatest Hits (1980) Japanese Edition, Compilation, Reissue, 1992, Victor Musical Industries [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dschinghis Khan (с нем.«Чингисхан») — западногерманская диско-группа, созданная в 1979 году музыкальным продюсером Ральфом Зигелем в ФРГ, для участия в международном песенном конкурсе «Евровидение», где заняла четвёртое место. Наиболее известна исполнением таких песен, как «Dschinghis Khan», «Moskau», «Rocking son of Dschinghis Khan».
-
-Многие песни группы посвящены (   Читать дальше...   )01. Machu Picchu
-02. Hadschi Halef Omar
-03. Madagaskar
-04. Kaspar Hauser(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EECFDD5F4F096F55E4B93B66CC7DE3E93708789C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589459   (190282) от 09.11.2022
-
-The Laser Cowboys - Radioactivity (1986) Remastered, Unofficial Release, 2018, VR [OGG Vorbis|480 Kbps] <Electronic, Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_190282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture
-02. Radioactivity (From The Ucraine)
-03. Ultra Warp (Armaged Don Mix)
-04. Theme From Knight Rider(   Читать дальше...   )Жанр: Electronic, Disco, Italo-DiscoПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC3F93B9F2FC7818E92D82C7ADF7C0396F27E4B
 ```
 
 

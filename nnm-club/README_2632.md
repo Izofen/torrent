@@ -1,3 +1,55 @@
+###  Публикация: 1785746   (69180) от 17.03.2025
+
+Шрифты - Andriy Dykun - MyFonts - Voguer Sans [ TTF, WOFF, WOFF2, EOT]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей.
+Разработчик: Andriy DykunФормат: TTF, WOFF, WOFF2, EOT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95453046A9C800B07B4A05FF6E7978FAC96CB074
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785816   (69181) от 17.03.2025
+
+Helloween - Unarmed - Best Of 25th Anniversary (2009) Japanese Edition, Limited Edition [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Stein 3:59
+02. Future World 4:13
+03. If I Could Fly 3:28
+04. Where The Rain Grows 5:09(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB3CE77286D2F616FE9C16D060548E224F1CA628
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785738   (69182) от 17.03.2025
 
 Шрифты - Andriy Dykun - MyFonts - Asterlight [TTF]
@@ -600,57 +652,6 @@ magnet:?xt=urn:btih:CFF8FDB6830A1FBB19BA5F98001533648F921751
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C84FF07DDDF2509D6370C7C09A21F131415F8E16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785783   (69206) от 17.03.2025
-
-ScreenToGif 2.41.2 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69206.jpg" />
-</div>
-
-
-###  Подробнее
-
-ScreenToGif — удобный бесплатный инструмент, с помощью которого можно записывать действия на экране и сохранять в формат анимированного .gif-файла (в народе называют гифками). После запуска нужно выбрать необходимую область захвата: весь экран, окно или вручную заданный размер и положение рамки захвата. Также можно указать количество FPS от 1 до 60 кадров в секунду. (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD5F9612D498B4FC2ABB5840971FA4EC7C29E7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785369   (69207) от 16.03.2025
-
-Vermilia - Karsikko (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Pagan, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Karsikko (00:04:44)
-02 - Vakat (00:07:07)
-03 - Kivutar (00:04:32)
-04 - Suruhymni (00:05:08)(   Читать дальше...   )Жанр: Atmospheric Pagan, Black MetalПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62398263F3B45F9139C358197E4676201AA23B8
 ```
 
 

@@ -1,3 +1,217 @@
+###  Публикация: 464750   (95954) от 08.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 24
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95954.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 24 
+Название: Sexy Girl Wallpapers Pack 24
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1024х768 до 3000х2000
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024F52F93CE3927D71A5A292B006D9978E1BF487
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464461   (95955) от 08.03.2012
+
+VA - Clubbin 2012 Vol. 1 (2012) [MP3|~224 кб/с ]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95955.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sandro Silva & Quintino - Epic (3:30)
+ 2. Eric Van Kleef ft Stanford - Wanna Funk (Melvin Reese Mix) (3:24)
+ 3. Mr. Jean Louis - Sensuelle (The Cube Guys Remix) (4:14)
+ 4. The Cube Guys & Luciana - Jump (Club Mix) (3:59)
+ 5. Sophie Ellis-Bextor - Starlight (The Cube Guys Remix) (4:29)
+ 6. JoeySuki - Zomp (3:44)
+ 7. Lucien Foort - Massive Passive (4:41)
+ 8. Nicky Romero - Generation 303 (4:58)
+ 9. Major Lazer ft The Partysquad - Original Don (3:59)
+ 10. Ian Carey & Rosette ft Timbaland & Brasco - Amnesia (Firebeatz Remix) (6:00)(   Читать дальше...   )Продолжительность: 01:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:681803F08310128FB01E507FAD0C355E4936311D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464658   (95963) от 08.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 23
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95963.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 23 
+Название: Sexy Girl Wallpapers Pack 23
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1680x1050 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C104FE33B69B09221DEB39219FF7B95392A4DFD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464349   (95965) от 08.03.2012
+
+Фотография - Локомотивы [JPG]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотки паровозов и железных дорогРазрешение файлов: 500х345-2000х858
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51421D89F83A002FCB59A9EAD63295F1EE174D51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464846   (95966) от 08.03.2012
+
+VA - Devil In The Detail (2007) [MP3|320 Kbps]<Downtempo, Ambient, Psy Chill, Psy Dub, Breaks'n'Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faction - Molten (5:37)
+02. Cheju - Ergl (6:08)
+03. Nalepa - Blue (4:08)
+04. Ooah - Tuesday Again (5:53)
+05. Flowers Of Wraith - Aftermathmatics (5:51)
+06. Good Buddha - Party Reserve (Tipper Remix) (4:08)
+07. Gaudi - Analogue Criteria (4:32)
+08. Vibesquad - Kaleidoscone (5:04)
+09. Eat Static - The Third Nebula (7:27)
+10. Bigeneric - Appollonia (6:10)(   Читать дальше...   )Жанр: Downtempo, Ambient, Psy Chill, Psy Dub, Breaks'n'BassПродолжительность: 01:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2FBA9C4851AB3A70CCAE04BD26D6CDFA445A279
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 463439   (95967) от 08.03.2012
+
+Asphyx - Deathhammer (Limited Edition) (2 CD) (2012) [FLAC|Lossless]<Death/Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95967.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Into The Timewaste (3:41)
+02. Deathhammer (2:27)
+03. Minefield (7:28)
+04. Of Days When Blades Turned Blunt (3:22)
+05. Der Landser (6:54)
+06. Reign Of The Brute (2:59)
+07. The Flood (3:04)
+08. We Doom You To Death (6:57)
+09. Vespa Crabro (2:50)(   Читать дальше...   )2012Жанр: Death/Doom MetalПродолжительность: 01:12:43 (CD 1 - 00:47:33 / CD 2 - 00:25:10)
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 464710   (95968) от 08.03.2012
+
+Gabriel & Dresden - Live at Pacha, NYC (02-03-2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrojack vs Way Out West - Replica of Mindcircus (Dave Dresden Mashup)
+02. Fedde Le Grand - Metrum
+03. Axwell & Dimitri Vegas & Like Mike vs Kings of Leon - One Look Is On Fire (Gabriel & Dresden Mashup)
+04. M83 - Midnight City (Eric Prydz Private Remix)
+05. Tydi vs Mumbai Science feat. Boston - More Than A Mumbai (Gabriel & Dresden Mashup)
+06. Moquai vs Nena - 99 Luft-mpires (Gabriel & Dresden Mashup)
+07. James Blunt - Dangerous (Deniz Koyu & Johan Wedel Remix - Gabriel & Dresden Edit)
+08. Justice & DLG vs. Gabriel & Dresden - Tracking Civilization Down (Gabriel & Dresden Mashup)
+09. Adrian Lux - Fire (Style of Eye Remix, Gabriel & Dresden re-edit)
+10. GOTYE feat. Kimbra - Somebody I Used To Know (DJ Kue Remix, Gabriel & Dresden re-edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9685F9C55DC9B1E452D38CAB315C55B0DF16BDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 464554   (95970) от 08.03.2012
 
 Газета | Сезон у дачи №4 (101) (февраль 2012) [PDF]
@@ -516,212 +730,6 @@ magnet:?xt=urn:btih:736FCB50EF206A441F5887CD7B4B2B893FB879AD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC2DD8DD8F082EE7F687C6E3B23A5B90EEE7E9A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465207   (96032) от 09.03.2012
-
-Myon and shane 54 - International departures 119 (2012) [MP3|320 кб/с]<Trance, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond feat Zoe Johnston – Love Is Not Enough
- 02. Rex Mundi – The Black Hole (Original)
- 03. Rave Channel – Illusion (Original)
- 04. Jaytech – Atlantic
- 05. Ivan Gough & Feenixpawl feat Georgi Kay – In My Mind (Axwell remix)
- 06. Juventa – Land Of Far Expectations
- 07. Emma Hewitt – Colours (Cosmic Gate remix / MS54 re-dub)
- 08. Oliver Smith – New Dawn
- Track Of The Moment:
- 09. Myon & Shane 54 feat Aruna – Helpless (Alexander Popov remix)(   Читать дальше...   )2012Жанр: Trance, Progressive HouseПродолжительность: 00:58:12(1 file)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908C7842400006E33A33C52C7DCD479D383592B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464204   (96033) от 09.03.2012
-
-VA - Greenosophy (2012) [MP3|~237 кб/с (V0)]<Ambient , Downtempo , Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mnnsk & Mizoo feat. Ana G”ldin - Initial 04:36
- 02. Rildrim - Tear-Blind Eyes 09:44
- 03. Liquid Stranger - Minimum 06:44
- 04. Sesen - Emerge 08:20
- 05. Cell - Idea Spiral (Ozora Festival 2011 Live Edit) 12:05
- 06. Ajja - Nubian Sandstone 06:14
- 07. Tripswitch - Subzero 08:54
- 08. Solar Fields - Cobalt 2.0 09:15
- 09. Miktek - Flying Dots 06:52
- 10. James Murray - Folding Pattern 05:26(   Читать дальше...   )2012Жанр: Ambient , Downtempo , ElectronicПродолжительность: 01:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0074188B6297D246CCCF51134D0B185CBF64B66E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464865   (96034) от 09.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 61
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96034.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 61
-Название: Desktop Wallpapers Pack 61
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х1024
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:538F42E4878A650DC7D6987711F9CD6B33634943
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465048   (96036) от 09.03.2012
-
-[Wallpapers] Wallpapers Mix 25 (1600x1200-7002x5050)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C60840CAA5EB9B2EA72F35A334D25BF6E1A4B2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464522   (96038) от 09.03.2012
-
-Symphonix - The Usual Suspects Remixes (2011) [MP3|320 кб/с]<Psy-Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphonix - Downtown (Nok Remix) 07:22
-02. Symphonix - Sexy Dance (Moon. DJ Fabio Remix) 07:46
-03. Symphonix - True Reality (Interactive Noise Remix) 07:03
-04. Symphonix - Sexy Dance (Ritmo remix) 08:12
-05. Symphonix - True Reality (Vaishiyas remix) 05:37
-06. Symphonix - Ask For Permission (Phaxe remix) 06:24
-07. Symphonix and Venes - True Reality (Haldolium remix) 07:53
-08. Symphonix - Dirty Minds (Osher remix) 08:012011Жанр: Psy-ProgressiveПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C175591FCACFDA02112B0CA4C1FEBA129CA16320
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465111   (96041) от 09.03.2012
-
-Астон Мартин - Триумф инженерной мысли / Aston Martin - Victory by design (2005) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основоположниками марки «Aston Martin» называют Лайонела Мартина и Роберта Бамфорда, которые в 1914 году в лондонском районе Кенсингтон построили легкий спортивный автомобиль с 1.4-литровым двигателем «Ковентри-Симплс» (Coventry-Simples) на шасси итальянского легкового «Изотта-Фраскини» (Isotta Fraschini). За год до этого на автомобиле «Зингер-10» (Singer) Мартин одержал победу в местных гонках на холме Астон Клинтон (Aston Clinton), и в память об этом событии новую машину назвали «Астон Мартин».Жанр: ТелепередачаПеревод: Профессиональный (одноголосый)Продолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A205DE13D3902896CABE467E25B67A88784DC2C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465103   (96043) от 09.03.2012
-
-AFFKT - Punto 0 (2012) [MP3|320 кб/с]<Minimal,Tech House,Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_96043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Affkt - Intro Feat Truffle (Original Mix) (02:08)
-02. Affkt - Bruminha (Original Mix) (04:26)
-03. Affkt & Mathias Kaden - Kadenzaffkt (Original Mix) (05:55)
-04. Affkt - Wichy Interlude (Original Mix) (00:26)
-05. Affkt - Vainilla & Guayaba (Original Mix) (02:44)
-06. Affkt - Grandiosa (Original Mix) (04:28)
-07. Affkt & dOP - El Flautista (Original Mix) (04:40)
-08. Affkt & Sutja Gutierrez - Nuvo (05:54)
-09. Affkt & Analog People In A Dig - Bonaire (06:06)
-10. Affkt - Joyvan Interlude (Original Mix) (00:22)(   Читать дальше...   )2012Жанр: Minimal,Tech House,Deep HouseПродолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E597C66839AA0E9D031D80E72769FDEE8D05928C
 ```
 
 

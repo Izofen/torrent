@@ -1,3 +1,57 @@
+###  Публикация: 1755708   (40056) от 17.10.2024
+
+Rufus Du Sol - Inhale / Exhale (2024) [MP3|320 Kbps] <Electronic, Breaks, House, Deep House, Progressive House, Indie Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inhale (1:48)
+02. Lately (4:10)
+03. Breathe (3:02)
+04. Music is Better (3:56)(   Читать дальше...   )Жанр: Electronic, Breaks, House, Deep House, Progressive House, Indie DanceПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590DE00088446090DCF7431EE367E10D6E9FAE2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755695   (40057) от 17.10.2024
+
+Rufus Du Sol - Inhale / Exhale (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Breaks, House, Deep House, Progressive House, Indie Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inhale (1:48)
+02. Lately (4:10)
+03. Breathe (3:02)
+04. Music is Better (3:56)(   Читать дальше...   )Жанр: Electronic, Breaks, House, Deep House, Progressive House, Indie DanceПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0243A64EB4CBBB5A9ABF70B6B77C1D4383FB2739
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755823   (40058) от 17.10.2024
 
 Nationwide - Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -616,57 +670,6 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A66C2EE9CF3E68BC8675E8421DF11060DAC3BE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755686   (40082) от 17.10.2024
-
-Память / Memory (2023) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошлое не даёт покоя Сильвии. На вечере выпускников она встречает Сола и обвиняет его в преступлении, совершённом против неё много лет назад. Сол страдает прогрессирующей потерей памяти и отказывается признавать вину. Постепенно противостояние двух одиноких сердец перерастает в сильное чувство... Тонкая история любви, помогающая справиться с демонами прошлого и (   Читать дальше...   )Производство: Мексика, США / High Frequency Entertainment, Teorema, Case Study FilmsЖанр: драмаРежиссер: Мишель ФранкоАктеры: Джессика Честейн, Питер Сарсгаард, Мерритт Уивер, Джессика Харпер, Элси Фишер, Брук Тимбер, Джош Чарльз, Том Хэммонд, Брайан Келли (V), Тарина УэббПеревод: дублированныйЯзык озвучки: русский, английскийСубтитры: русские (Кинопоиск; stirlooo), английскиеПродолжительность: 01:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40A3BE0C7B5360D42FCB1FC7DEDE595DA79D096E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755677   (40083) от 17.10.2024
-
-VA - Summer's End Autumn blues (2024) [MP3|320 Kbps] <Blues, Blues Rock, Pop>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_40083.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Birdy - Terrible Love (Live at the Tabernacle) [04:59]
-002. Blue Royal Blues Group - Autumn Blues Cafe [03:06]
-003. Sean Rowe - Madman [03:59]
-004. Shakey Graves - Roll The Bones (Audiotree Live Version) [04:52](   Читать дальше...   )Жанр: Blues, Blues Rock, PopПродолжительность: 06:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:221555D84FE8F9956FD390C74D9716ABA98B122A
 ```
 
 

@@ -1,3 +1,54 @@
+###  Публикация: 1793543   (67490) от 25.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Hot Pink Galaxy Mug Wrap Sublimation Design [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изображения для сублимационного дизайна ярко-розовой расцветки.Формат: PNGРазрешение файлов: 2925 x 1425
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682CF51EEE9A5CE22CE958D20D99502E08C4CFF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793447   (67491) от 24.04.2025
+
+Zmarłym (Zmarlym) - Wielkie Zanikanie (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miejsca (05:45)
+02. Sny o Lataniu (03:38)
+03. Idziemy w Mgłę (03:50)
+04. Ludzie Schronu (2034) (03:56)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4A32E1DCAFF6AA062783D31F80EA6BE3D021FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793450   (67492) от 24.04.2025
 
 Gedanken toten Lebens - Essenz der Urwunde (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
@@ -628,60 +679,6 @@ A4 - Into The Light(   Читать дальше...   )Жанр: Melodic Doom, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E46DCDC5F4236174B175A743E7D6AAEAADDB6D3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793051   (67516) от 24.04.2025
-
-Akrea (ex-Inner Aggression) - Studio Albums (4 releases) (2007-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Akrea - немецкая метал-группа из Эрдинга, Бавария, образована в 2004 году как "Inner Aggression". В 2008 сменила название на "Akrea". Расформирована в 2014 году.2007 - Beginning Of An Inner War (as Inner Aggression)
-2009 - Lebenslinie
-2010 - Lugenkabinett
-2013 - Stadt Der Toten TraumeЖанр: Melodic Death MetalПродолжительность: 03:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2BBA07F5A4AD0760273008CDCF46532150F29BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793305   (67517) от 24.04.2025
-
-Cougar Synth - 2013 (2014) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dreamwave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Inside (4:11)
-02. Retrace (3:54)
-03. Timeline (3:06)
-04. Afterglow (4:22)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 01:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E00DD9CD93779C2E330E97DE35EC9DA68814BFEF
 ```
 
 

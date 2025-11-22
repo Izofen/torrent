@@ -1,3 +1,30 @@
+###  Публикация: 1812730   (7467) от 16.08.2025
+
+Bruce Dickinson - More Balls To Picasso (1994) Tri-fold Digisleeve, Remasterd, 2025, BMG [FLAC|Lossless|image + .cue] <Hard Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyclops (7:58)
+02. Hell No (5:08)
+03. Gods Of War (5:05)
+04. 1000 Points Of Light (4:24)(   Читать дальше...   )Жанр: Hard Rock, Alternative RockПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E88935D0748E42A8B55240224162DA88FEDEF853
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812695   (7468) от 16.08.2025
 
 Антон Панарин | РОС: Не грози Дубровскому! (Книга 11) (2024) [MP3, Александр Башков]
@@ -608,30 +635,6 @@ magnet:?xt=urn:btih:3CAF2F712CFF123B11F372A5E88E25A27AC9B2B2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAF4D52F1392AFBAD5B6356915D680829B5355D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812758   (7493) от 16.08.2025
-
-3D print - Tenshi Figures - Month Releases - JULY [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_7493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все три июльские модели от Tenshi Figures.Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA96B96397226D93955A988DCE42F74DAD4AF208
 ```
 
 

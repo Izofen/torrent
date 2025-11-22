@@ -1,3 +1,51 @@
+###  Публикация: 1800895   (15415) от 07.06.2025
+
+Moroi (2025) [Ru/Multi] (1.14) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moroi находится в Cosmic Engine, персонализированном аду, созданном для искажения любого подобия нормальности. Истина - иллюзия, паранойя постоянна, а ваша человечность - странность. Вы просыпаетесь, чтобы обнаружить себя пленником в живом кошмаре. Ваше имя, ваше прошлое: ушли, но не запись ваших злодеяний. Ваши преступления: за гранью понимания. Ваша убежденность: (   Читать дальше...   )Тип издания: RepackРазработчик: Violet SaintЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7A13A8D132F7AC2A6ACF95B705DC4DF177E0E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800949   (15416) от 07.06.2025
+
+Гера и Денис Ффринг | Нейроденьги (2024) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Освой новые востребованные навыки и начни зарабатывать от 200 000 рублей в месяц с нуля на своём или чужом проекте или в разы увеличить прибыль существующего проекта. Внедри самую прибыльную связку "маркетинг + нейросети" и делай деньги в лёгкости, без пахоты и выгорания.Жанр: видеокурс, обучающий курс, финансы, нейросетиЯзык озвучки: русскийПродолжительность: 17:53:34Реклама: cторонние вставки и наложения на видео и в презентации (водяной знак спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8809EDAC89FD3A6D05F45A47E80E0FEB78359F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559388   (15417) от 07.06.2025
 
 Volbeat - Studio Albums (9 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Groove Metal>
@@ -582,60 +630,6 @@ Ina Forsman - After Dark Hour (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6DA7E6FFCB8CD506581F435B468BA3C83F39B60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800877   (15441) от 06.06.2025
-
-Pearl Alley - 'Bout Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mama, He Treats Your Daughter So Mean (4:56)
-02.  Move Over (3:44)
-03.  Beatin' Round (5:20)
-04.  Piece Of My Heart (6:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720DE61AD4D81026B4005111D703A19EA08B4F88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800833   (15442) от 06.06.2025
-
-VA - Ori Uplift - Uplifting Only Episode 643 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.J.G., M.I.K!, Jasmine Dean - Who You Really Are (Est Gaza Intro Remix)
-02. DJ T.H. & Deirdre McLaughlin - Rain Onto Me
-03. Andy Blueman - Time to Rest (Orchestral Uplifting Classic)
-04. John O'Callaghan, Paul Skelton & Ren Faye - May The Road Rise(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C1CBB63766A4E78C8192A2C7ADDA5F6BDC801E
 ```
 
 

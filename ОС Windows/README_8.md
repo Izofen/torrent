@@ -276,6 +276,32 @@ magnet:?xt=urn:btih:D9B43CA24CC23925E7D0031FBCFC538CC5EDF231
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592013   (135522) от 22.12.2012
+
+Recovery Partition for ASUS A53TK / Windows 7 Home Basic (х64) SP1 [русский]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135522.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ разделов Recovery жесткого диска ноутбука ASUS A53TK-sx116r
+Образ Recovery_Partition_ASUS_A53TK.tib содержит в себе оригинальный MBR и скрытые разделы восстановления
+Образ создан программой Acronis True Image Home 2012 после первого включения ноута.Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825205   (136752) от 17.10.2025
 
 Microsoft® Windows® 11 Professional VL x64 25H2 RU by OVGorskiy 10.2025
@@ -628,33 +654,6 @@ Windows 11 - это серия операционных систем, разра
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8124102FC23B958CD4AE0D874201904D354107DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969474   (146192) от 27.12.2015
-
-Recovery USB-flash for Asus X555 LN / Windows 8.1 (х64) [Ru]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_146192.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Asus_X555LN_W81.tib
-записанной на ноутбуке Asus x555ln-xo184h (90nb0642-m05630)
-с помощью программы Windows Recovery Media Creator.
-Образ флешки создан программой Acronis True Image Home 2013.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC60F0498D70EBA62B54CA9FA26B374F7CD6B587
 ```
 
 

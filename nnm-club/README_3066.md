@@ -1,3 +1,215 @@
+###  Публикация: 470169   (97219) от 19.03.2012
+
+[Wallpapers] Best Wallpapers Pack 5
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97219.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Best Wallpapers Pack 5
+Название: Best Wallpapers Pack 5
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DD3E5D642158463733AFB373D6CA528772BE0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469804   (97220) от 19.03.2012
+
+Лиза Small - Время не установлено (2012) [MP3|256, 320 кб/с]<Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звёзды (One-Bula Prod.)
+02. Более чем ты
+03. 2012 (Wake Up Promo - instr.J.Cole)
+04. Ближе к лету
+05. Не разочаруй
+06. Приглашение на концерт 12.02.12
+07. Стимул
+08. Фонари
+09. На пути (Hapan production)
+10. Ночь на максимум (Lingvisto beats production) VBR(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A9B0DEE539069A17A6E41BB3A877331878E908
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470260   (97222) от 19.03.2012
+
+[Wallpapers] Wallpapers Sexy Girls (18.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D2052DF62BDDB78BF110C897D8645ADF6B2EEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470158   (97223) от 19.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 41
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97223.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 41
+Название: Sexy Girl Wallpapers Pack 41
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49A970804687B3F2F25A89501AD7ACE26A45FA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468616   (97225) от 19.03.2012
+
+Dj DIESEL{BG} - Hangover (2012) [MP3|320 кб/с]<Club House, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97225.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Radio Killer - Be Free (Way & Beyond Mix)
+2. Ekow feat. Snoop Dogg & Kylian Mash - Closer (Original Extended)
+3. Mike Candys & David Guetta - Where Them Sexy Bitches At (Mike Candys Rework)
+4. Avicii feat. Flo Rida - Levels (Good Feeling) (Gordon & Doyle Mashup)
+5. David DeeJay feat. P Jolie & Nonis - Perfect 2 (Extended)
+6. Antoine Clamaran, Laurent Pautrat - Somebody Scream (Original Mix)
+7. Pitbull feat. Ne-Yo, Afrojack & Nayer - Give Me Everything (Check Dance Bootleg Mix)
+8. Alexandra Stan - Mr. Saxobeat (Vova Baggage Remix)
+9. Taio Cruz feat. Flo Rida - Hangover (Fabian Baroud Extended Mix)
+10. The Black Eyed Peas - Dont Stop The Party (Dj Maxi Seco Latin Club)(   Читать дальше...   )2011-2012Жанр: Club House, Progressive HouseПродолжительность: 01:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D708560A1D93E1D3BAB9D35A905D66BCCC507F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470159   (97226) от 19.03.2012
+
+VA - Nation Of Trance Vol 1 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will Holland vs Six Senses – Frantic (Sean Tyas Remix) 7:02
+02. Eteson vs Octagen – We Are Alone (Mark Eteson Remix) 8:26
+03. Alex MORPH presents Everest – Oree (Will B Transatlantic Remix) 8:06
+04. Binary Finary & Jose Amnesia presents Cloudbreak – Difference (Hydroid Vs Santiago Nino Dub Fire Mix) 7:50
+05. Factoria – Revive (Dark Moon Remix) 6:35
+06. Arty – Love Inside Out 6:53
+07. Deepwide presents Kylkai – Kaimaar (Supuer Remix) 8:06
+08. Jimmy Kennedy & Aneesh Gera – Spaghetti Beach (Snow Flakes & Rishabh Joshi Remix) 7:58
+09. Erik Hakansson – August 6:35
+10. Ilya Bezlepkin – Hold On (Feat Monique - Blue Twinkle Remix) 9:17(   Читать дальше...   )2012Жанр: TranceПродолжительность: 03:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:492F79CBB2A42611195745CF06179B3D6A9A43EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470442   (97227) от 19.03.2012
+
+VA - Ночная Авто Дискотека (2012) [MP3|192 кб/с]<Dance, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demoro - Constantinople (Jorgensen & Gordon Howarth Remix)
+02. Bob Sinclar - Fuck The Disco (Original Mix)
+03. Crew 7 Feat. Raheema - Push It (Club Mix)
+04. Dna Feat. Rebecca Knight - In My Head (East & Young Remix)
+05. Tiko's Groove Feat. Gosha - I Don't Know What To Do
+06. Armand Van Helden And Steve Aoki - Brrrat!
+07. Plastik Funk - Everybody Dance Now! 2011
+08. Auburn Feat. Iyaz - La, La, La
+09. Armin Van Buuren And Sophie Ellis Bextor - Not Giving Up On Love (Extended Version)
+10. Jaybee - Say You Will (Rene De La Mone Remix Edit)2012Жанр: Dance, ClubПродолжительность: 08:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E6778CDFC08DF03FD2EAD484BB0D378A3AAA13E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469736   (97229) от 19.03.2012
 
 VA - Чума-Дэнс (1995) [APE|Lossless]<Pop, pop-rock>
@@ -540,198 +752,6 @@ magnet:?xt=urn:btih:FAE2196E7C7474FA0BBED9BDB17D0A141BF7C24A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD955C23F747D2902FE43C35FBB77C77B2AB78FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470712   (97262) от 20.03.2012
-
-[Wallpapers] Best HD Wallpapers (20.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3468C7FACB8EACA0056A6D73D4CF71BCA75ECB2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470164   (97263) от 20.03.2012
-
-VA - Beat Generation 2 (2009) [MP3|320 кб/с]<Psy-Prog>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97263.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Zyce & Flegma - Afterglow (8:41)
-2. Cabal - The sacred Spirit (7:38)
-3. Aquafeel - GloryLand (6:43)
-4. Aqualize - Land of 2 Suns (7:51)
-5. Audioload - Way Out (7:42)
-6. Andromeda - Sensation (Aquafeel RMX) (6:32)
-7. Time in Motion - Colour (8:07)
-8. Progenitor - Typical Human Behaviour (8:18)
-9. Ocean and Display - Kastefa Beach (7:59)2009Жанр: Psy-ProgПродолжительность: 01:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9B21410AF39BDF56CB8560775B8668ADF3977E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470988   (97264) от 20.03.2012
-
-[Wallpapers] Nature Pictures №32
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97264.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №32
-Название: Nature Pictures №32
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0077C968A33B7AE4A2E810A904FB016B8536A96F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470987   (97265) от 20.03.2012
-
-[Wallpapers] HD Pictures №1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97265.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Pictures №1
-Название: HD Pictures №1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF2635889029D43BDA055BDE56B9212C770B003
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471008   (97266) от 20.03.2012
-
-[Wallpapers] HD Wallpapers Pack 3
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97266.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers Pack 3
-Название: HD Wallpapers Pack 3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD48F16BBB94DAC2E89DD8457524139FD7AB7034
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471029   (97267) от 20.03.2012
-
-[Wallpapers] Mixed Wallpapers (21.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB9A9D24D3E633A82675033F1B2F866D3E7D8A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471007   (97268) от 20.03.2012
-
-[Wallpapers] HD Pictures №2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97268.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Pictures №2
-Название: HD Pictures №2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15FAAA55AF321846C0EE531B642260BDCB61F25
 ```
 
 

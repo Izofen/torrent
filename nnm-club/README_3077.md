@@ -1,3 +1,202 @@
+###  Публикация: 473451   (97723) от 26.03.2012
+
+Авто плюс - Наши тесты / Cadillac CTS 4 — американский седан с полным приводом (2012) IPTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97723.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Наши тесты" - это знакомство с новым, как правило еще не появившимся на рынке автомобилем. Только комплексный тест на полигоне и дорогах общего пользования способен выявить все преимущества и недостатки автомобиля. Ведущие сами испытывают новинку, моделируя всевозможные ситуации, от спортивных заездов до серьезного бездорожья.Жанр: ТелепередачаПродолжительность: 00:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:551512ADF8EF1A2FC0516395679B2FC57AE90617
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473499   (97724) от 26.03.2012
+
+Vespera - Desert Of The Real (2011) [MP3|320 кб/с]<Gothic / Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mary Of Bethany 04:32
+02. Fame 03:54
+03. Behind My Smile 03:57
+04. Close To Madness 04:21
+05. Through The Neon Lights 03:48
+06. Desert Of The Real 03:49
+07. Your Weakness 04:46
+08. NDE 04:16
+09. Point In The Circle 03:30
+10. Afterglow 03:52(   Читать дальше...   )2011Жанр: Gothic / Industrial MetalПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DA32AC6C7F2D51AEC9003EAFBD128725D7AA833
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471459   (97727) от 26.03.2012
+
+Obsidian Gate - Colossal Christhunt (2001) [MP3|320 кб/с]<Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97727.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Urgewalten
+2. Behold the Imperial Rise
+3. Tides of the Envenomed Oceans
+4. Dux Bellorum
+5. Of Purest Pandaemonium
+6. Colossal Christhunt2001Жанр: Symphonic Black MetalПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E3B38CA242C3ED65AB527745EAE521A321F925C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473394   (97728) от 26.03.2012
+
+VA - Zen Zone 4 (2011) [MP3|320 кб/с]<New Age, Instrumental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97728.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:06) 01.2011Жанр: New Age, InstrumentalПродолжительность: 01:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0199CDECB85800F32DC74292660B940D129D241
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473743   (97730) от 26.03.2012
+
+Журнал | Уютно и удобно №4(44) [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97730.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Уютно и удобно" - журнал для истинных эстетов, желающих сделать свое жилье уютным и изысканным. От изданий схожей тематики журнал отличает обилие авторских дизайн-проектов и множество практических советов, которые помогут создать свой уникальный интерьер и избежать ошибок.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0881D4A6BAD30FF387833FAB00EC5E473120C302
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473407   (97731) от 26.03.2012
+
+VA - RU Dj's vol.2 (2012) [MP3|192 kbps]<Club | Dance | House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ad Mens Project, Dj Joyint Feat. Ira Champion - Dance Hall (Dj Solovey Remix)
+02. Alex Spark - Ты Же Не Любила (Adomant 2012 Light Edit)
+03. Anna Fox & Extasy Project - Мне Всё Равно (Sasha Style Remix)
+04. Aruba Ice - Наше Лето (Shake Style Project Rmx)
+05. Audio Girls - Так И Знай (Extended)
+06. Cosmonaut & Satellites - Гори Ясно (Radio Cut)
+07. Deema - Дверь Закрой За Собой (Dj Blesk Rework Mix 2012)
+08. Dj Cosmo Бэбиsкул - Гастроли На Облака
+09. Dj Feel И Ю.Паго - Виртуальными
+10. Dj Matisse - Не Стреляй (Original Mix)(   Читать дальше...   )2012Жанр: Club | Dance | HouseПродолжительность: 05:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D133CFD4D6151BBB92E57E5618F5DC869FEAA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472605   (97732) от 26.03.2012
+
+S-O-DA - Не гасить (2011) [MP3|320 кб/с]<acoustic rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97732.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мили/секунды (new)
+2. Звезды горят
+3. Новый день
+4. Верить, чтобы жить
+5. Держи меня за руку
+6. Мы
+7. Стоит захотеть
+8. Белая стрела
+9. Новое сердце2011Жанр: acoustic rockПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5819EA2FB14FF438EA2B969900E712FFA18057
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473541   (97738) от 26.03.2012
 
 When Nothing Remains - As All Torn Asunder (2012) [FLAC|Lossless]<Doom / Death Metal>
@@ -548,216 +747,6 @@ Patchbay - Southern Cross (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB89C8044C9C56D237774E1DE0ABE3CED90D0587
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474142   (97771) от 27.03.2012
-
-Mozilla SeaMonkey 2.9 Beta 1 [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97771.jpg" />
-</div>
-
-
-###  Подробнее
-
-SeaMonkey — проект, основанный на добрых традициях Mozilla Suite. Классическая Mozilla развивалась много лет, обрела свой круг преданных фанатов, но так и не дошла до широких масс, выдвинув на эту роль красивый современный браузер Mozilla Firefox. За основу SeaMonkey взята Mozilla Suite, как проверенный годами продукт, обладающий колоссальной стабильностью и выверенным кодом. К этой основе было добавлено множество функций, ставших привычными для пользователей Mozilla Firefox и Mozilla Thunderbird. В состав SeaMonkey входит несколько компонентов.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473946   (97772) от 27.03.2012
-
-Space Elves - Terrestrial Planet Finder (2012) [MP3|320 кб/с]<Psychedelic, Goa Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Elves - Fead Huck (07:51)
-02. Space Elves - Goa Trance Mission (09:15)
-03. Space Elves - Opening New Dimensions (08:38)
-04. Space Elves - Terrestrial Planet Finder (09:00)
-05. Space Elves - Tokyo Old School (08:55)
-06. Space Elves - Trance India Express (Remix) (10:23)
-07. Space Elves & Somnesia - Satellite (11:39)
-08. Jikooha - Vega (Space Elves Remix) (08:27)2012Жанр: Psychedelic, Goa TranceПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B576AD26F5AA7B3C34F961A825FCE9AC0FFACE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473875   (97773) от 27.03.2012
-
-VA - Orchid Lounge (2012) [MP3|320 kbps]<Lounge | Сhillout>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almadrava — All Over Me (3:06)
-02. Almadrava — Talking Music (5:11)
-03. Aly & Fila — Paradise (Original Mix) (5:08)
-04. Antonionian — Another Mistral (3:40)
-05. Biscaine — Space Flight (4:35)
-06. Claudio Merlini — Book Of Memories (4:04)
-07. Claudio Merlini — Desire (3:40)
-08. Coloma — Green Eyes Of The Yellow God (3:21)
-09. Dark Matters feat. Neev Kennedy — Loneliness Won't Leave Me Alone (Album Mix) (4:11)
-10. David August — Hamburg Is For Lovers (6:30)(   Читать дальше...   )2012Жанр: Lounge | СhilloutПродолжительность: 04:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45645DB30383B4327F03E103DAA037E3F78589D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473969   (97774) от 27.03.2012
-
-[Wallpapers] Space Wallpapers Pack
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97774.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Space Wallpapers Pack 
-Название:  Space Wallpapers Pack 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 5000х3500
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E254ACF6BF7ACB19F35EB768E8B8C57C175ED82A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474215   (97778) от 27.03.2012
-
-VA - Клубная дискотека Record vol. 2 Русская (2012) [MP3|192-320 кб/с]<Pop, Dance, Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Лавика - В Городе Весна (DJ Melloffon Remix)          (320)
-02 DJ Miller & Julia Lasker - RaР № (Arthur Project Tel-Aviv remix)
-03 Quest Pistols - Ты так красива (DJ Vengerov rmx)
-04 МакSим - Как летать (DJ Shevtsov & Alex Menco remix)
-05 Глюк`oza - Хочу мужчину (DFM mix)
-06 Инфинити - Ты мой герой (club remix)
-07 Карина Крит feat. Chris Parker - Мое сердце (Radio edit)
-08 T-killah и DJ Mike - Катя на Бугатти (Official remix by DJ Rusk)
-09 Aksioma Project - Без тебя (D'Marzio remix)
-10 El Ray - Безлимитная любовь (Dj Denis Rublev & Dj Natasha Baccardi remix)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 05:40:21
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473914   (97782) от 27.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 27
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97782.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 27 
-Название:  Desktop Wallpapers Pack 27 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645CC25B1CFC6F2F1ED1D895CB11C5613FBF8EEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473998   (97783) от 27.03.2012
-
-Grollo-Capitanata - Aura Magic (2006) [MP3|320 кб/с]<New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97783.jpg" />
-</div>
-
-
-###  Подробнее
-
-(04:42) 01. Etheric Body
-(05:10) 02. Emotional Body
-(04:56) 03. Mental Body
-(05:57) 04. Spiritual Body
-(03:16) 05. Green Sea
-(05:57) 06. Orange Sunset
-(05:11) 07. Indigo Sky
-(04:05) 08. Yellow Light
-(03:38) 09. Red Moon
-(10:13) 10. Violet Clouds(   Читать дальше...   )2006Жанр: New ageПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525540B6EC57A5FCFDA9F6EBD60C0E7030EFB8C9
 ```
 
 

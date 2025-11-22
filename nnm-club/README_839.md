@@ -1,3 +1,55 @@
+###  Публикация: 1790053   (22151) от 07.04.2025
+
+Шрифты - Svetoslav Simov - Null [TTF, OTF, WOFF, WOFF2, EOT, SVG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.
+Разработчик: Svetoslav Simov
+В добавленных файлах в папке "Null By He Rez AD" от "He Rez AD" расширенная кириллица (добавлена Украинская, Белорусская, Молдавская); им же добавлены файлы форматов WOFF, WOFF2, SVG.Формат: TTF, OTF, WOFF, WOFF2, EOT, SVG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77A56F795EC8D6476C14CDD1FF50CB24DC4C3C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790058   (22152) от 07.04.2025
+
+Шрифты - Ilya Designgsta - Behance - Onmark Рукописный шрифт - 222944479 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.
+Разработчик: Ilya Designgsta
+Материал раздаётся с официальной документацией.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3845F5CF2D01582C6FB249002AC2EC806C8CB871
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790138   (22153) от 07.04.2025
 
 Пресеты - TWIG & OLIVE - Lightroom and ACR Presets | Harvest Matte [XMP, LRTEMPLATE, ATN]
@@ -595,57 +647,6 @@ magnet:?xt=urn:btih:90656C547B069E640D45FE3391EFF4AE7CF38D48
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AA983064C1FC150890489C61DE4D5A07FB6A963
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790172   (22177) от 07.04.2025
-
-Яндекс.Погода v25.3.20 Mod by vadj [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22177.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью технологии Meteum Яндекс может рассчитать локальный прогноз погоды — с точностью до дома. Meteum знает про температуру и влажность воздуха, про атмосферное давление, про ветер, про осадки — дождь и снег.Тип издания: ModРелиз состоялся: 07.04.2025Разработчик: Direct Cursus Computer Systems Trading LLCПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0ACA6903B1F32268AA4D2ED1254F649CEDA869C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790155   (22178) от 07.04.2025
-
-AlimkhanOV A. - Cover Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atlantis Is Calling (SOS For Love) (MT Cover) (3:59)
-02. Do You Wanna (Disco Magic Remix) (4:47)
-03. Doctor For My Heart (Extended MT Version) (5:38)
-04. Don't Break The Heart (BBB Cover) (3:40)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 05:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E1B7F2D71A4E85891CA5F2E8D9F68955151511
 ```
 
 

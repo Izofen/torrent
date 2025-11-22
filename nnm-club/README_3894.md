@@ -1,3 +1,182 @@
+###  Публикация: 1694416   (120929) от 25.01.2024
+
+SQLPro for SQLite 2024.10 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120929.jpg" />
+</div>
+
+
+###  Подробнее
+
+SQLPro for SQLit‪e - профессиональный менеджер баз данных SQLite.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2023 Hankinsoft Development Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB8F59C23FFDBFCA53161CD3F68A3940D8551BF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694575   (120930) от 25.01.2024
+
+MacLoggerDX 6.49 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120930.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacLoggerDX - выбор журнала радиостанций Mac Ham Radio в 148 странах....
+Организация и фильтрация роликов из вашего любимого DX-кластера для DX-инга, случайных контестов или жевания тряпок. MacLoggerDX поддерживает более сотни радиостанций, автоматически настраиваясь на интересующие вас места и поворачивая луч. Оповещение о редких контактах или открытиях диапазонов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.12.2023Разработчик: ©1995-2024 Dog Park Software Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04A24B53515E2514654A7EE0F20FDB64537F803
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694464   (120931) от 25.01.2024
+
+Morkt Stof - Revival (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Uno Menos – 04:24
+02 - Nacer – 03:48
+03 - Undercover Hater – 04:01
+04 - Tanto – 04:45(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA5790977452009980E0AA1680BD4DDFFBBA115
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694442   (120932) от 25.01.2024
+
+Ethan Iverson - Technically Acceptable (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion, Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conundrum (1:31)
+02. Victory is Assured (Alla Breve) (2:39)
+03. Technically Acceptable (4:19)
+04. Who Are You, Really? (3:25)(   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE8EF0EF447AF0DE7F02EEE7996442DF17C18533
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694591   (120933) от 25.01.2024
+
+Tipard FixMP4 for Mac 1.0.8 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановите поврежденные видеофайлы во всех ситуациях. Восстановите видеофайлы, которые невозможно воспроизвести по нескольким причинам в любой ситуации. Исправьте поврежденные видео из-за ошибок загрузки, переноса, ошибок редактирования, неправильных кодеков сжатия, испорченных записей и т. д. Независимо от того, каким образом ваше видео было повреждено, Tipard (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2023 Tipard StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858BFD68DF60B04DDC61940055D626D32EBC9F6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694568   (120934) от 25.01.2024
+
+OmniFocus Pro 3.15.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живите продуктивной жизнью в контексте с OmniFocus Pro для Mac. Разделяйте рабочие и личные вопросы с помощью контекстов, перспектив и фокуса. Игнорируйте маловажное, сосредоточитесь на том, что можно сделать прямо сейчас, и добивайтесь большего. Все это вы можете делать гораздо быстрее, чем раньше.
+Интерфейс OmniFocus создан «с чистого листа» и ориентирован на ваши (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2007-2024 The Omni GroupПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:021CD078176199B892CAAFD650F5555B5A3B2E1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694589   (120935) от 25.01.2024
+
+Cognizance - Phantazein (2024) [FLAC|Lossless|WEB-DL|tracks] <Technical Melodic Death Metal, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ceremonial Vigour (3:13)
+02. A Brain Dead Memoir (4:13)
+03. Chiselled in Stone (3:57)
+04. Introspection (4:09)(   Читать дальше...   )Жанр: Technical Melodic Death Metal, DeathcoreПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E8BE8F114D45A9CA67220960B74B7E75D0EC15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694404   (120936) от 25.01.2024
 
 Everdying - Within the Recesses (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Black Metal>
@@ -488,190 +667,6 @@ Construct of Lethe - Corpsegod (2016) Released, 2020, Everlasting Spew Records [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE5665259F57559BBC196A6E1219349214442B70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694561   (120955) от 25.01.2024
-
-AnyMP4 iPhone GPS Spoofer for Mac 1.0.18 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120955.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyMP4 iPhone GPS Spoofer может легко помочь вам изменить или скрыть местоположение GPS на вашем iPhone и разработать ложный маршрут движения для вашего iPhone. При работе в сети «Интернет» вас может раздражать раскрытие конфиденциальной информации, особенно вашего местоположения. В этом случае AnyMP4 iPhone GPS Spoofer может стать вашим решением.
-Просто подключите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2024Разработчик: © 2024 AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C29A7589F1E8F3FD01692953FCA1DB0E929F89B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694440   (120956) от 25.01.2024
-
-The New Day - Subtronic Symbiosis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Post-Punk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Never Know (5:00)
-02. I (4:07)
-03. Scars (3:20)
-04. Haunt Me (4:15)(   Читать дальше...   )Жанр: Rock, Post-PunkПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A33C45176C887009FF31971008517A7A97DA9D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694415   (120957) от 25.01.2024
-
-Final Draft 13 v.13.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Final Draft — профессиональное программное обеспечение для написания сценариев фильмов, телевизионных шоу и спектаклей.
-Приложение представляет собой многооконный текстовый процессор с массой специализированных возможностей под написание сценариев.
-Для использования утилиты вам совершенно не требуется знать правила оформления сценариев — Final Draft автоматически (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.01.2024Разработчик: © 2024 Cast & Crew Production Software, LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E02CA410CA8433AA2A8CD62226690016E478503
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694337   (120958) от 25.01.2024
-
-Lone Star Mojo - A Shot of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Blues Travels Fast (4:58)
-02. Desolation Blues (7:16)
-03. Hey Hey (4:01)
-04. Thoughts of You (7:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEFEAAF507EB33755AE0DB7C2E111B1C1201DB3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694341   (120959) от 25.01.2024
-
-The liberators - A Ride Out of Town (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Ride Out of Town (2:48)
-02. Can't Run, Can't Stay (3:39)
-03. Come On (3:53)
-04. 90 Minutes (Ain't That a Shame) (5:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0395D8A469951C382610E89B8CEDF1F13879AA0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694453   (120960) от 25.01.2024
-
-Mastercastle - The Phoenix (2009) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Words Are Swords
-02. Princess Of Love
-03. Space
-04. My Screams (Instrumental)(   Читать дальше...   )Жанр: Power Metal, Female VocalПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A9549F2478A241B9E2840B4EC77675697E47CEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694581   (120961) от 25.01.2024
-
-Lifespan 2.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_120961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lifespan - это приложение строки меню macOS, предназначенное для отслеживания оставшегося срока полезного использования флеш-накопителей. Утилита будет отображать оставшийся срок службы вашего твердотельного накопителя (SSD) и мы надеемся, вскоре поддержать устройства CompactFlash и CFast.
-Lifespan предназначен для решения проблемы постоянно растущего использования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2024 Micromat Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF7319A648ECF93C2133CEA7C78F1A9592417B4
 ```
 
 

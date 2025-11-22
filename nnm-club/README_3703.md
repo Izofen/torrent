@@ -1,3 +1,185 @@
+###  Публикация: 1701836   (115963) от 23.02.2024
+
+Headhunter - Studio Albums (4 releases) (1990-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Headhunter — немецкая трэш-метал группа, образованная в 1990 году.
+Группа была создана Марселом Ширмером, после его ухода из Destruction в 1989 году.1990 - Parody Of Life
+1992 - A Bizarre Gardening Accident
+1994 - Rebirth
+2008 - Parasite Of SocietyЖанр: Power/Thrash MetalПродолжительность: 03:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2364FAFC97CE75CAEDDFFB54781869A17344C562
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701924   (115964) от 23.02.2024
+
+Donald Byrd & Gigi Gryce - The Complete Jazz Lab Sessions (1955 - 1957) 4CD, 2013, Jazz Dynamics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Splittin' (aka Ray's Way) (Live) [8:31]
+02. Batland (Live) [7:22]
+03. Love for Sale (Live) [7:37]
+04. Kamman's A'Comin' [4:12](   Читать дальше...   )Жанр: Hard BopПродолжительность: 04:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3ABB7D449E768CAF27A064EA9047E6E92FDFC95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702050   (115965) от 23.02.2024
+
+Lionheart - The Grace of a Dragonfly (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Declaration (5:02)
+02. Flight 19 (4:40)
+03. V Is For Victory (4:33)
+04. This Is A Woman's War (4:41)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC6FE0E00B9C318F61BD2CBD9F5671EC1326867
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701949   (115966) от 23.02.2024
+
+Пятеро на одного (23.02.2024) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C149D244D3D0B0B80F9AB0B327CFA4020692C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702008   (115967) от 23.02.2024
+
+Деревянный орел (2024) [MP3, Совушка Сонюшка]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастер и столяр решили порадовать царя своими умелыми изделиями из золота, чтобы определить, кто из них лучше владеет мастерством.Жанр: СказкаИздательство: Аудиокнига своими рукамиПродолжительность: 00:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10E931F89953F67B4BA26340C58BBAC021E95AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701973   (115968) от 23.02.2024
+
+The Erickson Syndicate - The Journey (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancer Within (5:22)
+02. Living, Breathing, Stirring, Searching (5:53)
+03. Now Is The Time (6:26)
+04. Of Miles (6:24)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EE9890E19E21BBAA4D5583F71057FC7C34F9A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702077   (115969) от 23.02.2024
+
+Сергей Козлов, Доктор Съюз | Сказки про Африку (1981) [MP3, Олег Анофриев, Георгий Вицин и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Мелодия – детям».
+Много сказок живет на свете – старых и молодых. Эти «Сказки про Африку» – молодые, потому что их написали наши современники - Сергей Козлов и Доктор Съюз. Если посмотреть на карту – увидишь среди синего океана желто-оранжевый материк, похожий на грушу. Это – Африка, и там никогда не бывает зимы. В Африке есть и желтые песчаные пустыни, (   Читать дальше...   )Жанр: Литература для детей, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:888C8C939A3EFE5F876ECDE3178B476EB8DE95BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701719   (115970) от 23.02.2024
 
 Cynic - Focus (1993) Reissue, 2013, Roadrunner Records [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
@@ -485,189 +667,6 @@ TinkerTool System - утилита для управления скрытыми 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3325496CE73B744D23D9CB6E8514F8DCCF2700D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701909   (115989) от 23.02.2024
-
-Iridient Developer for Mac 4.2.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115989.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью не разрушают и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2024Разработчик: © 2024 Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.13 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA34F8A3A7FF9F35152EE4102B8926D13EAE87B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702178   (115990) от 23.02.2024
-
-Iron Curtain - Savage Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Speed, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Aftermath (Intro)
-02. Devil's Eyes
-03. Gypsy Rocker
-04. Thy Wolf(   Читать дальше...   )Жанр: Speed, Heavy MetalПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C416A5313BE2202C1FFB7280F5E064D9CEBE064
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701873   (115991) от 23.02.2024
-
-Genevieve (Geneviève) Leclerc - Big Band (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Swing. Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sing, Sing, Sing (00:04:02)
-02 - Cheek To Cheek (00:03:36)
-03 - L.O.V.E. (00:03:30)
-04 - It's A Good Day (00:02:28)(   Читать дальше...   )Жанр: Swing. JazzПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D4952AE5883B5F49C57F82C934BECA5D03C245
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701882   (115992) от 23.02.2024
-
-Boulevard - Blvd. (1988) [FLAC|Lossless|WEB-DL|tracks] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream On (03:41)
-02. Far from Over (04:10)
-03. Western Skies (03:40)
-04. Never Give Up (04:38)(   Читать дальше...   )Жанр: AORПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB8F9C3F96F317E0B437B2E907500F323ECBFE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702056   (115993) от 23.02.2024
-
-Blaze Bayley - Live in Czech (2020) 2CD, Live [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115993.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1
-01 - The Dark Side of Black (Live) [4:11]
-02 - A Thousand Years (Live) [3:16]
-03 - Dark Energy 256 (Live) [4:40](   Читать дальше...   )Жанр: Heavy Metal, MetalПродолжительность: 01:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFA3489F834D4F82EC2ED27AFBE18BC5EC5ACC9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701877   (115994) от 23.02.2024
-
-BetterMouse for Mac 1.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115994.jpg" />
-</div>
-
-
-###  Подробнее
-
-BetterMouse — это утилита для macOS, улучшающая производительность и функциональность внешней мыши и призванная заменить громоздкие, навязчивые и ресурсоемкие драйверы мыши, такие как Logitech Options. Это многофункциональная, легкая, оптимизированная по эффективности и абсолютно безопасная для конфиденциальности система, пытающаяся удовлетворить все ваши потребности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.02.2024Разработчик: © 2024 BetterMouseAppПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34DE42F9064306479A90D702C12FB1CCF02614D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701930   (115995) от 23.02.2024
-
-VA - Sax For Lovers (1996) Legacy [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_115995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Webster - My Romance (4:16)
-02. Gerry Mulligan - My Funny Valentine (4:08)
-03. Stan Getz - Misty (5:27)
-04. Dexter Gordon - Laura (7:40)(   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Hard BopПродолжительность: 00:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500831FA651A4FDD229A233F16A97C5A4AFD76CE
 ```
 
 

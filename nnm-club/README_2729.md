@@ -1,3 +1,57 @@
+###  Публикация: 1773655   (71702) от 16.01.2025
+
+Martín Burguez & His Rhythm Combo - I'm Gonna Move (2025) [FLAC|Lossless|WEB-DL|tracks] <Rhythm and Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fat Ride in G (2:45)
+02.  I'm Gonna Move (3:21)
+03.  Well, Well, Well Baby-La (3:15)
+04.  Be Steady (2:25)(   Читать дальше...   )Жанр: Rhythm and BluesПродолжительность: 00:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7185C1F70CF53A4DF021FED9A756CE9555DDB25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773443   (71703) от 16.01.2025
+
+Lunarway - Eternal Moments (2024) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal / Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternity [00:04:23]
+02. Streams Of Time [00:05:06]
+03. Wandering 'Cross The Sea [00:05:36]
+04. Stellar Way [00:05:14](   Читать дальше...   )Жанр: Symphonic Metal / Female VocalПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1137F3B4338F05AC8EF1D54AA6476E6329C98D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773658   (71704) от 16.01.2025
 
 Tiger Rose feat. B. Chambille - Tiger Rose & B. Chambille (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -636,58 +690,6 @@ Luigi Martinale Trio - Le Sue Ali (2005) 2009, Albore Jazz [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9AD7F990BDA1EB33AAE3987C271C475094236CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773078   (71728) от 13.01.2025
-
-НХЛ 2024-2025. Тампа-Бэй Лайтнинг - Питтсбург Пингвинз (12.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71728.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 января 2025, понедельник. 01:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 352 зрителя (93% при вместимости 18 673)
-Главный судья: Том Хмелевски (Колорадо-Спрингс, Канада); Главный судья: Гислейн Эбер (Батерст, Канада); Линейный: Брайан Панкич (Грейт-Фолс, США); Линейный: Дэн Келли (США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98438DB2EE63AA3F6DE6037CE7D1826AF1063325
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772651   (71729) от 12.01.2025
-
-Marius M.21 - Dreams (2016) [MP3|320 Kbps] <Italo-Disco, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radtiation Alert (Original Long Version) (9:19)
-02. Another World (Special Extended Remix) (5:29)
-03. Summer Time (Original Long Version) (5:45)
-04. Don't Go Away (Original Version) (5:16)(   Читать дальше...   )Жанр: Italo-Disco, Space-DiscoПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8DDC4336537460477EE2A918A2B8EDC2911E20
 ```
 
 

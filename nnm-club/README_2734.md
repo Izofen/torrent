@@ -1,3 +1,57 @@
+###  Публикация: 1771684   (71832) от 07.01.2025
+
+Singlets Labarca - Foggy River (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bells of Freedom Ringing (2:16)
+02.  Foggy River (2:46)
+03.  Down Where the Tears Are Flowin (2:22)
+04.  Feeling Lost in a Maze (2:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0784F4573B2341DDE835D27F22AFBB9FF4EF1FC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771682   (71833) от 07.01.2025
+
+MC BabaYaga - Leader’s Flame (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Leader’s Flame (3:47)
+02.  Divide to Conquer (4:00)
+03.  Fuel the Spirit (4:00)
+04.  Master the Ground (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385A8A7877AF3D0149B86C39D8C4DDD5846B23D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771589   (71834) от 07.01.2025
 
 С Рождеством. Сборник мультфильмов (1955-1993) DVD5
@@ -604,57 +658,6 @@ magnet:?xt=urn:btih:48417255EA15AD13E3403697EA33681806EE47B5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E80472F6CA9D2390C7EF46B833555B1A057F544F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771526   (71858) от 07.01.2025
-
-О.С. Габриелян, И.Г. Остроумов, С.А. Сладков | Химия. Учебник для 11 класса (базовый уровень) (2023) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник «Химия. 11 класс» для базового уровня является второй, завершающей частью предметного курса О.С. Габриеляна, И.Г. Остроумова и С.А. Сладкова для средней школы. Содержание учебника способствует формированию единой химической картины мира у выпускников средней школы путём рассмотрения общих для неорганической и органической химии понятий, законов и теорий. (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC6698125FB775CD5D32BF20BE77214FCFBA075
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771456   (71859) от 07.01.2025
-
-VA - I Love Disco France 80's (2013) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F.R. David - Words
-02. Bandolero - Paris Latino
-03. Magazine 60 - Don Quichotte (U.S. Remix)
-04. Noe Willer - Toi, Femme Publique (Remix)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, EuropopПродолжительность: 02:21:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9872004CCA3FF6B5663E2BD023216078808CF0B
 ```
 
 

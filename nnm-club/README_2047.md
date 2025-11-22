@@ -1,3 +1,54 @@
+###  Публикация: 976739   (53587) от 12.06.2024
+
+Антология классики: id Software 20 лет спустя (1994-2016) [En] (2.8.1/2.1.1/2.2.30/20140513/0.20.7) Repack/Mod NEO_WORK [ZDoom, GZDoom, Risen3D, DarkPlaces, KMQuake2]
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение легендарной серии Heretic-Hexen. В отличие от прошлых частей, игра повествует не о борьбе со Змеиными Всадниками, а о том, что случилось с эльфом Корвусом после того, как он уничтожил Дэспарила (самый младший из троицы Всадников). Поскитавшись по внешним измерениям, в которые он попал из-за проклятия Змеиного Всадника, Корвус возвратился в свой родной (   Читать дальше...   )Тип издания: Repack/ModРазработчик: Raven SoftwareЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E406B4431CD1D36FDEB9D68349E82B923E87CFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726894   (53588) от 12.06.2024
+
+Windows 11 4in1 23H2 22631.3593 by SmokieBlahBlah 2024.05.31 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53588.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 русскоязычные редакции Windows 11, основанные на оригинальном русском дистрибутиве (Microsoft Windows 11 [10.0.22631.3593], Version 23H2 (Updated May 2024))
+
+В самой Windows ничего не изменено и не вырезано. Интегрирован Framework 3.5.
+(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3F68D1349B95117C0152B286079CB941AB1D508
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065769   (53589) от 12.06.2024
 
 Голиаф  / Goliath (2016) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-8 из 8) BaibaKo
@@ -592,61 +643,6 @@ magnet:?xt=urn:btih:D23E2B107F7E9B1AAE9E18C1AB22A32342566B33
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB871688D5A1D1766D319C7A67129D33CFA01E34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729485   (53613) от 11.06.2024
-
-VA - Top 7 May 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruslan Aschaulov & Sam Fletcher - Awakening (Original Mix) [7:53]
-02. D.J.G. & M.I.K! vs. Iain Mitchell - Watt If (Original Mix) [5:46]
-03. Andy Newtz & Olya Gram - Take Me To The Stars (Gayax Remix) [5:53]
-04. DJ Tranceair - Gilgamesh (Original Mix) [5:44](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA5D247F66C77E74911F22F7ADC1F8911AA7DF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729372   (53614) от 11.06.2024
-
-Ablaze My Sorrow - Studio Albums (7 releases) (1996-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_53614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ablaze My Sorrow — мелодик-дэт-метал группа из Фалькенберга, Швеция. Группа образовалась в 1993 году, выпустила три полноформатных альбома после нескольких смен состава и получила широкую известность в металлической прессе, прежде чем распалась в августе 2006 года.
-В январе 2013 года группа воссоединилась.1996 - If Emotions Still Burns
-1998 - The Plague
-2002 - Anger, Hate And Fury
-2016 - Black(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 04:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59AA77849FFF45C7283D0505CBB9C992CFFF1D3
 ```
 
 

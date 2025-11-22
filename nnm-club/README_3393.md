@@ -1,3 +1,192 @@
+###  Публикация: 1730331   (107903) от 15.06.2024
+
+Ben Sidran - Rainmaker (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someday Baby (3:48)
+02. Panda (4:44)
+03. Humanity (3:55)
+04. Rainmaker (5:09)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05C9520E03937687E9043788FB8B6A55B75D1E5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730430   (107904) от 15.06.2024
+
+Isobel Campbell - Bow to Love (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Falls Apart [00:03:10]
+02. Do or Die [00:02:34]
+03. Spider to the Fly [00:02:21]
+04. Second Guessing [00:02:07](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB6DF23C2A08E662F4ABD79FF94EF3782987436
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730233   (107905) от 15.06.2024
+
+Fu Manchu - The Return of Tomorrowpic (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dehumanize [00:03:15]
+02. Loch Ness Wrecking Machine [00:03:13]
+03. Hands Of The Zodiac [00:03:46]
+04. Haze The Hides [00:03:27](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A011801F0072E158EF59E04486283F5A6B4D1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730342   (107906) от 15.06.2024
+
+Equal Spirits - Wise and Waiting (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Again (7:19)
+02. Egoli Affirmation (2:40)
+03. Skip (6:43)
+04. Dancing Under The Sun (5:26)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804EA5859531B18CA65A8F21E2D8F3561F2B521D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730423   (107907) от 15.06.2024
+
+Сто к одному (15.06.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107907.jpg" />
+</div>
+
+
+###  Подробнее
+
+"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" – невозможно найти какие-то единственно правильные ответы на подобные вопросы.
+Потому что сколько людей, столько и мнений.
+
+А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Гроссмейстеры" против команды "Судьи"Язык озвучки: РусскийПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8C7139354796F7079AEB66B92A48CFAEEA7164B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730284   (107908) от 15.06.2024
+
+Michael Brecker - Michael Brecker (1987) 1996, Impulse! [FLAC|Lossless|image + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sea Glass [5:51]
+02. Syzygy [9:46]
+03. Choices [8:07]
+04. Nothing Personal [5:32](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E6B65DBA130886CB94F2CF0A7AE1C0704C6FFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730432   (107909) от 15.06.2024
+
+Strange Fruit - Once So High (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonely-Lonely (6:47)
+02. Ragged Soul (7:16)
+03. Once So High (4:22)
+04. Driving Me Mad (7:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500A9A252FEC1C07BE57A5D2FAFBF68098CC403F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730421   (107910) от 15.06.2024
 
 Сто к одному (12.06.2024) WEBRip [H.264/1080p]
@@ -489,195 +678,6 @@ Marius Acke, Rubba J, Enice Mokamba - Deepwater Sessions No. 3 (2010) Remastered
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B556FF512420BA000C8998FCC54197D0BDED7FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730094   (107929) от 14.06.2024
-
-John Grant - The Art of the Lie (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <synthpop, synthfunk, artpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - All That School For Nothing (00:05:20)
-02 - Marbles (00:07:14)
-03 - Father (00:07:02)
-04 - Mother And Son (00:07:26)(   Читать дальше...   )Жанр: synthpop, synthfunk, artpopПродолжительность: 01:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26DCF2F6CF0FA4CF6FF454FC176FF7578D900BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730138   (107930) от 14.06.2024
-
-T-Dow - Vol. 2 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Gonna Stay (2:32)
-02. Until The Sun Goes Down (3:18)
-03. Trouble In My Way (3:42)
-04. Running Man (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1326141E0F4E9E91321BB873E09697E24AE06A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730130   (107931) от 14.06.2024
-
-Ebba Bergkvist & The Flat Tire Band - Four Wings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Wings (5:03)
-02. The Pack (3:32)
-03. Northeast Passage (4:07)
-04. Vice Versa (3:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B3E35CC9A8A69CE9AD85DD09C9FD1A6EA37966
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730108   (107932) от 14.06.2024
-
-Ensiferum - Two Paths (2017) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107932.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ajattomasta Unesta
-A2 For Those About To Fight For Metal
-A3 Way of the Warrior
-A4 Two Paths(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C21E15A7E0AA1E82F13AE0520D1622A5C0A9E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730137   (107933) от 14.06.2024
-
-Walt Disco - The Warping (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Seed (00:00:57)
-02 - Gnomes (00:03:34)
-03 - Come Undone (00:03:39)
-04 - The Warping (00:03:55)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DAC5556A9A264B9423BAA8C1CF271E05DD33361
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730093   (107934) от 14.06.2024
-
-Ensiferum - Unsung Heroes (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symbols
-02. In My Sword I Trust
-03. Unsung Heroes
-04. Burning Leaves(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991272E0858EF8EFAC4C69FD8205EC17D1F90C93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730008   (107935) от 14.06.2024
-
-Ensiferum - Victory Songs (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_107935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ad Victoriam
-02. Blood Is the Price of Glory
-03. Deathbringer from the Sky
-04. Ahti(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D6FDCD32DC8E10EB165B687A40B67F0CE0FFB9
 ```
 
 

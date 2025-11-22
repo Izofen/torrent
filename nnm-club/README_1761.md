@@ -1,3 +1,51 @@
+###  Публикация: 1744357   (46141) от 21.08.2024
+
+HWiNFO 8.10 Build 5520 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46141.jpg" />
+</div>
+
+
+###  Подробнее
+
+HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7275293EF63B11B6DF2883851D2F54C3E59EE15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744444   (46142) от 21.08.2024
+
+R-Studio Network 9.4 Build 191349 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановление возможно даже в случаях, когда разделы диска были повреждены или удалены, а также в случаях, когда диск был отформатирован, использовалась команда FDISK, был поврежден MBR, данные потеряны в результате атаки вирусов. Есть возможность создания имиджа диска для дальнейшего восстановления данных. Воссоздает поврежденный RAID. Возможность восстановления (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB21BA9EEA9538586D71ADD658F3F0A409A82890
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744428   (46143) от 21.08.2024
 
 FastStone Capture 10.7 RePack (& portable) by KpoJIuK [Multi/Ru]
@@ -579,60 +627,6 @@ magnet:?xt=urn:btih:97D1DD0BFE3BA7753444BA202B8236F26054E038
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED1927034FA71F6CCFC3F530D80EE21D4E3BC104
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744239   (46167) от 20.08.2024
-
-Duran Duran - Is There Something I Should Know? (1983) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is There Something I Should Know? [00:04:09]
-02. Faith in This Colour [00:04:06]
-03. Is There Something I Should Know (Monster Mix) [00:06:44]
-04. Faith in This Colour (Alternate Slow Mix) [00:04:06]Жанр: Synth-pop, Pop RockПродолжительность: 00:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE7C807336439386083507D8BE2D934938BE73A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744180   (46168) от 20.08.2024
-
-VA - Metalheads (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_46168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gojira - Stranded (4:29)
-02. A Day To Remember - Feedback (2:32)
-03. Avenged Sevenfold - Hail to the King (5:05)
-04. Deftones - My Own Summer (Shove It) (3:35)(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 04:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057B1E4095B5041A3A8F53EC857F36A811B1CDF0
 ```
 
 

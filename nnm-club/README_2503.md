@@ -1,3 +1,57 @@
+###  Публикация: 1803683   (65826) от 24.06.2025
+
+Ds Dream Band Stillminati - Electro Swing Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hit the road (4:00)
+02.  All Night (4:00)
+03.  Cinnamon Swing (2:18)
+04.  Honey has spice (4:00)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6341D511EC4B3D21C02BBF48BDFFF540E500D46F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803701   (65827) от 24.06.2025
+
+VA - Winter Anthems 2016 (2016) CD, Compilation, Mixed [FLAC|Lossless|tracks + .cue] <Electronic, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheat Codes X Kris Kross Amsterdam / Sex    [0:04:16.22]
+02. Sigala Feat. John Newman & Nile Rodgers / Give Me Your Love    [0:03:11.73]
+03. Sia Feat. Sean Pau / Cheap Thrills (Le Youth Remix)    [0:02:42.06]
+04. Imany / Don't Be So Shy (Filatov & Karas Remix)wn Title    [0:03:06.00](   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CDA0A4B19EB6A28705BE90EBDC5939A610D00F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803464   (65828) от 24.06.2025
 
 DJ Tomcraft - Silence (2000) [FLAC|Lossless|tracks + .cue] <Trance>
@@ -617,54 +671,6 @@ magnet:?xt=urn:btih:47BC9B43141A31D8330F6815D3636AA65D17C976
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A35F26F57B8DA87EF748982B04405B3CBF9C8B7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803233   (65852) от 22.06.2025
-
-Текстуры - TexturesStore - Envato - 30 Felt Textures - EQFMT36 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65852.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 разноцветных войлочных текстур.Формат: JPGРазрешение файлов: 8000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38377C83A984B7FEE8B26B10322F0E76E30346D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803294   (65853) от 22.06.2025
-
-Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сестрой [2024, TV, 12 из 12 эп.] BDRemux 1080p raw+rus
-
->>Аниме разное
->>Аниме Blu-ray, Remux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец Юты Асамуры женится во второй раз, и тому приходится жить вместе со своей сводной сестрой, Саки Аясэ, самой красивой девочкой в его школе. Помня о трудностях, с которыми разводились их родители, они стараются держать дистанцию друг от друга, но постепенно эта отстранённость начинает перерастать в более глубокое чувство. Но какое именно: уважение, узы родства, (   Читать дальше...   )Производство: Studio DeenЖанр: романтика, повседневностьРежиссер: Уэно СотаПеревод: CrunchyRollОзвучка: OriginalЯзык озвучки: Японский и РусскийСубтитры: Русские (Полные и Надписи)Продолжительность: 12 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC4E29910DD9738B597F80EB64541476A2D67EA9
 ```
 
 

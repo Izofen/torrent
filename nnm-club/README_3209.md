@@ -1,3 +1,188 @@
+###  Публикация: 1760766   (103118) от 17.11.2024
+
+Underworld - Strawberry Hotel (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive, Techno, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Black Poppies
+02 denver luna
+03 Techno Shinkansen
+04 and the colour red(   Читать дальше...   )Жанр: Tech House, Deep House, Progressive, Techno, ElectronicПродолжительность: 01:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF5A5B646148EBE584730029470E08C056F0B0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760979   (103119) от 17.11.2024
+
+Дмитрий Худяков | Путешествие по берегам морей, которых никто никогда не видел (2022) [MP3, Владимир Захаров]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Динозавры в наш технический век? Моря в нашем степном краю? Да, и останки доисторических животных, и следы исчезнувших морей смогут найти ребята увлеченные и пытливые. Но свою научно-популярную книгу ведущий широко известной и любимой ребятами телевизионной передачи «Не за тридевять земель» адресует не только юным исследователям. Ведь любознательность, целеустремленность, (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Аудиокнига своими рукамиПродолжительность: 08:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0376AD03021EEC45B7C32DDC9D11022A5D6B5F95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760957   (103120) от 17.11.2024
+
+VA - Steel Bars - A Rock Tribute To Michael Bolton (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girish Pradhan - Everybody's Crazy (4:41)
+02. Steve Overland - Fool's Game (3:56)
+03. Dave Mikulskis - How Can We Be Lovers (3:53)
+04. Sochan Kikon - Steel Bars (3:21)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E132ED6A0B625CC959BD79C10E881EF07895C58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760984   (103121) от 17.11.2024
+
+Чудо техники с Сергеем Малозёмовым (17.11.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103121.jpg" />
+</div>
+
+
+###  Подробнее
+
+За вами следят: правда ли, что машины уже видят людей насквозь? Какую пользу приносят эти системы и чем они грозят в обозримом будущем?
+Технологичные способы для переноски тяжестей: какие устройства облегчат непростую задачу и безопасна ли для здоровья такая экономия на грузчиках.
+Наушники с переводчиком: неужели учить языки и правда больше не нужно, ведь этот гаджет (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39CA7A1F7ECF7D7D3D967EEEC95F88FFD67F430B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760954   (103122) от 17.11.2024
+
+Tubesnakes - Navasota TX (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best of Me (3:21)
+02. Darkness on My Shoulder (3:05)
+03. When All Is Said and Done (4:59)
+04. Seventeen Fathoms (4:12)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403FCDC2F9490957B1E3E2696A6388DA04A05FAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760959   (103123) от 17.11.2024
+
+Айархаан - Добун Дуораан (2007) [MP3|320 Kbps] <Yakutia Folk, NeoFolk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Уhуктуу [03:53]
+02. Орто дойду оноhуллуута [05:17]
+03. Алгыс ырыата [02:00]
+04. Ураанхайым дойдулара [02:59](   Читать дальше...   )Жанр: Yakutia Folk, NeoFolkПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34D247E32A357E2F57335B85F0C52F57252CAAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760951   (103124) от 17.11.2024
+
+The Feelgooders - Soul & Imagination (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cries (3:00)
+02. Funky Lady (4:01)
+03. I Found Love (3:11)
+04. The Absence of Cool (4:39)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A74969ABF8BA51B5FF6B3BDF0C89B54D2C14D4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761051   (103125) от 17.11.2024
 
 MotoGP. Этап 20 из 20. Гран-при Барселоны. Гонка (17.11.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -491,186 +676,6 @@ magnet:?xt=urn:btih:EEF3CB348685AF43B664E24E4D8E50925293E95B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C45B2509B4BB037370A12E0380C7160FEA639FE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760888   (103144) от 16.11.2024
-
-MotoGP. Этап 20 из 20. Гран-при Барселоны. Спринт (16.11.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103144.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 ноября 2024, суббота. 17:00 МСК. Этап 20, Испания. Гран-при Барселоны. Спринт (12кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B52BF9B909408C3E1E1079DA33E67A80E1D7EFAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760772   (103145) от 16.11.2024
-
-Пятеро на одного (16.11.2024) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F621AB052D1D9DA4ED26AB9123C04A1E7AF903
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760791   (103146) от 16.11.2024
-
-Hard Shine - Cold Shot (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better (3:35)
-02. Business (5:51)
-03. Mojo (3:33)
-04. Fat Daddy (3:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6FA8A6611C41D2820B92C70F5CA8990C5573A4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760900   (103147) от 16.11.2024
-
-Nile - The Underworld Awaits Us All (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal, Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stelae of Vultures (06:20)
- 02. Chapter for Not Being Hung Upside Down on a Stake in the Underworld and Made to Eat Feces by the Four Apes (03:50)
- 03. To Strike with Secret Fang (01:59)
- 04. Naqada II Enter the Golden Age (05:28)(   Читать дальше...   )Жанр: Brutal, Technical Death MetalПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF99235F11BD18B301304EE2F67493BEB485877C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760879   (103148) от 16.11.2024
-
-Hilde Fjortoft (Fjørtoft) - Trolls in my head (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trolls in my head (3:02)
-02. Don't you lie to me (2:29)
-03. A change is gonna come (4:52)
-04. Reelin' and rockin' (1:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C0825E92C30D90097549617BE891DCDA640973
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760839   (103149) от 16.11.2024
-
-MotoGP. Этап 20 из 20. Гран-при Барселоны. Квалификация (16.11.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103149.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 ноября 2024, суббота. 12:50 МСК. Этап 20, Испания. Гран-при Барселоны. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C75AD9DD3C8C86D861078FA9C32C0A70B2FE03B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760805   (103150) от 16.11.2024
-
-Genus Ordinis Dei - Studio Albums & Singles (4 releases) (2016-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Death/Groove Metal/Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_103150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Genus Ordinis Dei - итальянская симфоническая дэт-метал/дэткор-группа. Образована в 2009 году.2016 - The Middle
-2017 - Great Olden Dynasty
-2020 - Glare of Deliverance
-2023 - The BeginningЖанр: Symphonic Death/Groove Metal/MetalcoreПродолжительность: 04:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FAFC9EB2C8406B25F1CFA99366BD41D4BF3383
 ```
 
 

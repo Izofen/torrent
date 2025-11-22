@@ -1,3 +1,56 @@
+###  Публикация: 1771175   (71910) от 05.01.2025
+
+Николай Гоголь | Мертвые души (2011) [MP3, Алексей Багдасаров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тонкая ирония, яркие персонажи, великолепный гоголевский текст, неподражаемая игра замечательного актера и режиссера Алексея Багдасарова и абсолютно уникальная музыка Владимира Бруса. Аудиокнига "Мертвые души" не оставит равнодушной ни одну живую душу.
+
+ Николай Гоголь на NoNaMe ClubЖанр: Русская классика, поэмаИздательство: ВимбоПродолжительность: 12:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D587A766E9BB737F1F421F0FDF6D34A6C6F8F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771263   (71911) от 05.01.2025
+
+Saedin - Entre Rios (2020) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Castillo rojo
+02 Ni una menos
+03 Corazón nazarí
+04 Entre ríos(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73C40CE5B9CB38EC12803347E2C81BED3D4A285
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771236   (71912) от 05.01.2025
 
 Святитель Афанасий Великий | Жизнь и наставления преподобной Синклитикии Александрийской (2000) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
@@ -623,60 +676,6 @@ magnet:?xt=urn:btih:6D15ACEE0176B9ADEC33AA1D087598B6B7F5E665
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A153EDFD2A6CFC52E6526466DC99CA111990792B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771015   (71936) от 05.01.2025
-
-Pink Floyd - Live at Palace Theatre (Manchester, UK, 9 Dec 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Raving And Drooling (Live at Palace Theatre, Manchester, UK, 9 Dec 1974) [13:49]
-02 - You've Got To Be Crazy (Live at Palace Theatre, Manchester, UK, 9 Dec 1974) [16:34]
-03 - Shine On You Crazy Diamond (Live at Palace Theatre, Manchester, UK, 9 Dec 1974) [22:16]
-04 - Speak to Me (Live at Palace Theatre, Manchester, UK, 9 Dec 1974) [3:18](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F85E0AA18F73751AAC4FC354875B7405F33EE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771258   (71937) от 05.01.2025
-
-Nenei - Sunset Grooves (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dream a Little Dream of Me (3:14)
-02.  Nenei & The Cooltrane Quartet - Don't You Worry 'bout a Thing (3:29)
-03.  Nenei & Groove Da Praia - I'm Not Here to Make Friends (3:12)
-04.  Houdini (3:09)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4AEE1CB13D70994D3AB6CC96BC6CEC9029600A5
 ```
 
 

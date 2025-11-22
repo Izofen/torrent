@@ -1,3 +1,57 @@
+###  Публикация: 1766390   (33763) от 18.12.2024
+
+VA - Best of Argento 2024 - Extended Mixes (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nitrous Oxide & Seb Hennig - Constellation (Phillip Castle Extended Remix) (05:56)
+02. Rodrigo Deem - Bad Kingdom (Extended Mix) (05:56)
+03. Marcos - Human (Extended Mix) (07:30)
+04. Digital Drift - You Don't Mind (Extended Mix) (06:02)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B83986559B0F46781C6E4017B2BDFF61E7D8749
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766387   (33764) от 18.12.2024
+
+Dakota Staton - Five Classic Albums (1957 - 1959) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart Beats Like A Hammer [2:14]
+02. The Crazy Things We Do [2:54]
+03. Some Days It's Monday [3:09]
+04. The Song Is Ended [2:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0B6F476CB3F6B48A2ABC50BCE77F3F27C3AD2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766448   (33765) от 18.12.2024
 
 Обмен детьми 2 / Bytte Bytte Barn (2024) WEBRip [H.264/1080p] [DVO] [AD]
@@ -589,57 +643,6 @@ magnet:?xt=urn:btih:E15E8F78D46C254CFB0597288A376826E91BF221
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C217DDAD85DBA54C61639379AF3560BD0FFDF1D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766156   (33789) от 18.12.2024
-
-AlimkhanOV A. - Black (The 4th Album) (2024) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black (Intro) (3:47)
-02. One More Night (3:57)
-03. Follow Me Baby (5:30)
-04. One Two Three (3:59)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05047A3F8D0AC45E6B09FB4E8DEFA1C1353146A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766413   (33790) от 18.12.2024
-
-Пенелопа / Penelope (2006) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восемнадцатилетняя Пенелопа Уилхерн - представительница древнего аристократического рода. Многие годы бедняжка вынуждена жить с родителями в огромном особняке и прятать лицо от окружающих: над ней тяготеет семейное проклятие. Вместо носа у девушки - свиной пятачок, который пропадет только тогда, когда юноша благородных кровей по-настоящему полюбит Пенелопу и женится (   Читать дальше...   )Производство: Великобритания, США / Grosvenor Park Media, Stone Village Productions, Summit Entertainment, Tatira, Type A FilmsЖанр: фэнтези, мелодрама, комедияРежиссер: Марк ПаланскиАктеры: Кристина Риччи, Джеймс Макэвой, Риз Уизерспун, Кэтрин О’Хара, Ричард Э. Грант, Саймон Вудс, Питер Динклэйдж, Ронни Анкона, Ник Фрост, Расселл БрэндПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6761047C9C5D7E0091A8755F5DBB236D5977FD3
 ```
 
 

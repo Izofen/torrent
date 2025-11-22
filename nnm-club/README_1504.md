@@ -1,3 +1,56 @@
+###  Публикация: 1756742   (39457) от 23.10.2024
+
+Steelgar - Collection (2008-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Steelgar - трэш-метал группа из Испании.2008 - Beware (demo)
+2010 - Xenocide (Full-length)
+Singles 2019-2024Жанр: Thrash MetalПродолжительность: 01:34:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30109ED85B73AE47526EE157021C49442C30BD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756699   (39458) от 23.10.2024
+
+Desert - Fortune Favors The Brave (2019) [WavPack|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fix Bayonets ! (4:27)
+02. Sons Of War (5:07)
+03. Operation Thunderbolt (4:07)
+04. Fortune Favors The Brave (3:56)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB3A56988B1EA68C4804FFB36F5505886794ADDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756687   (39459) от 23.10.2024
 
 Visionatica - Enigma Fire (2019) [WavPack|Lossless|image + .cue] <Symphonic Metal>
@@ -604,57 +657,6 @@ Jazzamor - Reworks (20 Years of Jazzamor) (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CFB2FA309097D44EC45050D3BC4895BCB0C49C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756755   (39483) от 23.10.2024
-
-Журнал | Сабрина №6 (июнь 2024) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39483.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Сабрина" - популярный журнал по вязанию. На его страницах представлены разнообразные модели для женщин всех возрастов, имеющих разный опыт вязания. Здесь вы найдете множество идей, как выглядеть модно и эффектно без особых затрат. Все модели представлены в нескольких размерах, поэтому женщины могут сами выбрать ту модель, которая подходит им наиболее удачно (   Читать дальше...   )Жанр: Вязание, хоббиИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C6AF424E3CFDE3E293E126F6EC2937BCAB01101
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756844   (39484) от 23.10.2024
-
-Papik & Stefy Gamboni - Vita (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_39484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amoreunicoamore
-02. Vita
-03. Questione Di Feeling (feat. Stefy Gamboni)
-04. Portati Via(   Читать дальше...   )Жанр: Pop JazzПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB60883A152C93B1C7536F23B84779CBF04D0280
 ```
 
 

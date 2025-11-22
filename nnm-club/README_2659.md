@@ -1,3 +1,54 @@
+###  Публикация: 1782896   (69882) от 03.03.2025
+
+Пресеты - Pixflow - CL-BlackMagic [CUBE]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69882.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 LUT, воссоздающие вид, цвет и ощущение кинокамер линейки BlackMagic. Все LUT являются файлами .cube и могут использоваться в любой программе редактирования, окраски и видеозахвата, которая поддерживает LUT.Формат: CUBE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72C9FDF21838FA6EB3F435BAC6AC8AA8CD73846
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782960   (69883) от 03.03.2025
+
+VA - Car Rides: Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Bagatelle No. 25 in A Minor, WoO 59 Für Elise (3:19)
+02. Dina Bolshakova - Cello Suite No. 1 in G Major, BWV 1007 I. Prélude (2:34)
+03. Katya Kramer-Lapin - Piano Sonata No. 11 in A Major, K. 331300i III. Alla Turca Turkish March (3:43)
+04. Katya Kramer-Lapin - The Well-Tempered Clavier Book 1, BWV 846-869 I. Prelude in C Major, (   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:27:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7DDC253C3C5EA9BD1E51A5CB108AC23A800EED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783024   (69884) от 03.03.2025
 
 Шрифты - Akbar [TTF]
@@ -611,58 +662,6 @@ magnet:?xt=urn:btih:218BF8C7AAD70C99D3340545619B256230BF19DF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC29C51428AB5049EED21AB75AAF8490EF7F11C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782798   (69908) от 02.03.2025
-
-Чудо техники с Сергеем Малозёмовым (02.03.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гаджеты для геймеров! Почему молодежь фанатеет от черно-белых приставок, какие современные консоли и аксессуары для геймеров помогут с головой окунуться в виртуальный мир и какую пользу несут компьютерные игры для детей и пожилых?
- Команда программы побывала в кабине поезде без машиниста, чтобы поделиться со зрителями, каково это — управлять беспилотными поездами, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948B6A1637CCB9A05FE8587D3941A1825864B7FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782688   (69909) от 02.03.2025
-
-Djabe & Steve Hackett - Freya Arctic Jam (2025) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Jazz Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Silence [00:08:26]
-02. Freya [00:05:25]
-03. Stone Age Tea [00:06:46]
-04. Whispers Of The Woods [00:08:34](   Читать дальше...   )Жанр: Jazz Rock, Progressive RockПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D438471EF66A88874BE73DD6C862166B62C0C56F
 ```
 
 

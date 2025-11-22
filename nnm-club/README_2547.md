@@ -1,3 +1,57 @@
+###  Публикация: 1796502   (66970) от 10.05.2025
+
+Praetor - The Spiral of Addiction (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Spiral of Addiction (05:11)
+02 - Carefully Selected (03:13)
+03 - People Pleaser (03:58)
+04 - Full Moon Rising (03:36)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3B40B306F7FE04C916B72EF4350E2CB04F3E9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796452   (66971) от 10.05.2025
+
+Evan Christopher - Django a la Creole (2008) Lejazzetal [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Douce Ambience [5:22]
+02. Farewell Blues [4:08]
+03. Dinette [4:13]
+04. I Know That You Know [5:25](   Читать дальше...   )Жанр: SwingПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C3755DF1C3718146D6A12DD0CE2CD256F375343
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796465   (66972) от 10.05.2025
 
 MotoGP. Этап 06 из 22. Гран-при Франции. Квалификация (10.05.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -605,60 +659,6 @@ Joharpo - Last Tides of Magnolias (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5E685D5D79675EC96BEC52D7386903DE1C472EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796133   (66996) от 08.05.2025
-
-Leadpetal - Glass Teeth (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Citizen Down (3:24)
-02.  Glass Teeth (2:44)
-03.  Can't A Girl Dream? (2:57)
-04.  River Styx (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEFD28358CD25F061937B642C41C81D67BA36CD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796122   (66997) от 08.05.2025
-
-Fuel for the Dogz - Puppy Massacre (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Psycho Man (4:15)
-02.  Shadows of the Past (5:43)
-03.  Liar (3:39)
-04.  Doomsday Sirens (4:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8729F381D7FB0D4BB291A044DBCB2A72FE7F8A90
 ```
 
 

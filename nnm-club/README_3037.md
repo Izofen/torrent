@@ -1,3 +1,227 @@
+###  Публикация: 461176   (95084) от 02.03.2012
+
+Marty Ehrlich's Rites Quartet - Frog Leg Logic (2011) [FLAC|Lossless]<Free Jazz, Modern Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frog Leg Logic (5:23)
+02. Ballade (10:54)
+03. You Can Beat the Slanted Cards (6:20)
+04. Walk Along the Way (6:55)
+05. Solace (8:24)
+06. My Song (6:17)
+07. The Gravedigger?s Respite (6:47)2011Жанр: Free Jazz, Modern JazzПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461352   (95085) от 02.03.2012
+
+VA - Armada Top 15: March 2012 (02.03.2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kirsty - Twilight (Armin van Buuren Remix) (6:03)
+ 02. tyDi feat. DJ Rap - Talking To Myself (Maison & Dragen Remix) (6:06)
+ 03. Mischa Daniels & Solid Gaz - TW3LVE (Original Mix) (5:05)
+ 04. Heatbeat - Rocker Monster (Original Mix) (6:43)
+ 05. Andrew Bennett feat. Shena - Alright (Sebjak Remix) (6:33)
+ 06. Da Hool feat. Jay Cless - She Plays Me Like A Melody (Global Deejays Remix) (5:33)
+ 07. Matt Darey & Stan Kolev feat. Aelyn - Follow You (Milan & Phoenix Remix) (6:00)
+ 08. Nash & Pepper Pres. Ostrega - First Scream (We aRe Extended Mix) (5:20)
+ 09. Orjan Nilsen - Lucky Strike (Original Mix) (7:49)
+ 10. Dash Berlin feat. Jonathan Mendelsohn - World Falls Apart (Club Mix) (7:20)(   Читать дальше...   )02.03.2012Жанр: TranceПродолжительность: 01:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B407D0539C7A045E1B4ADEB439497116AAB24FB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461143   (95086) от 02.03.2012
+
+Ranee Lee - Lives Upstairs (2009) [FLAC|Lossless]<Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Just Found Out About Love (3:38)
+02. In Love In Vain (6:01)
+03. A Time For Love (6:26)
+04. A Crooked Road (8:49)
+05. Four (5:30)
+06. Gershwin Medley (9:36)
+07. Fire and Rain (6:10)
+08. Beautiful Love (4:43)
+09. The Storm (6:05)
+10. Dearly Beloved (5:22)2009Жанр: Jazz, VocalПродолжительность: 01:02:30
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461212   (95087) от 02.03.2012
+
+Lamat - V (2011) [MP3|~250 кб/с (V0)]<Psychedelic / Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95087.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Predators 8:45
+ 2. Perfect System (The Legacy) 8:31
+ 3. Cartell Me About It (FFT RMX) 6:48
+ 4. Remastered Controller 7:15
+ 5. New Technologies 8:18
+ 6. Mind Control Neuro Transmitor 7:53
+ 7. The Resistance 7:38
+ 8. Magnetic Interference 6:562011Жанр: Psychedelic / Full OnПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B1063E8C8EC907651C6B0908C377860DC43BF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461219   (95091) от 02.03.2012
+
+Xtatic Shiva - Traces (2012) [MP3|320 кб/с]<Psychedelic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death of A Dwarf Star 07:15
+ 02. Dominant Alien Culture 07:37
+ 03. Maharashtra 05:13
+ 04. Sawhead (Original Version) 08:46
+ 05. Solar Effect 07:49
+ 06. Sulphur 08:01
+ 07. There is Truth Beyond Knowledge 08:11
+ 08. To Shi Ban 06:14
+ 09. Traces 09:192012Жанр: PsychedelicПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17AC8878841F6541F23C1A84FE74FD583340AE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460964   (95094) от 02.03.2012
+
+VA - Face Disco (2011) [FLAC|Lossless]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Hertz - Money for nothing [7:12]
+02. D-Vision - Juicy pad song [7:28]
+03. Timestretch - Dullday [8:02]
+04. Philter - Attribute [8:25]
+05. Lightsphere - Aeroplan [8:04]
+06. Timestretch - Endless Maze [8:09]
+07. Connexx - With Me [8:18]
+08. Shyisma - Harmonic Elements [7:37]
+09. HMB - Special Dreams [6:54]2011Жанр: Psychedelic / ProgressiveПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461348   (95108) от 02.03.2012
+
+DJ LEV - Night Style (2012) [MP3|320 кб/с]<Electro House, Dutch House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bingo Players, Lil Jon - Mutate Rattle (Base Music, DJ Zarubin Mash-Up)
+02. Chuckie - Who Is Ready To Jump (Dada Life Remix)
+03. The Sleepover & Reece Low & Meltek - Disco Slut (D-Jastic Remix)
+04. Spencer & Hill - I Want You (The Koch Remix)
+05. David Guetta - Stay (Johan K Horny Bootleg)
+06. MC Zali - Girls Made In Russia (DJ Melnikoff Remix)
+07. Adrian P & Carl Novy - Sensation (Sferlazzo Remix)
+08. Sasha Veter - Proletayut Dni (DJ Prado & DJ Timakoff Remix)
+09. LMFAO - Sexy And I Know It (Blood Dance Project Remix)
+10. Enrique Iglesias - Tonight (Blood Dance Project Remix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A88DCED50FB29A13E50B90F6FB286886D8FF0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 461152   (95112) от 02.03.2012
 
 Dana Dragomir - PanDana (1996) [APE|Lossless]<New Age, Panflute>
@@ -532,218 +756,6 @@ MegaTroll Media - All Music (2011-2012) [MP3|320 кб/с]<Troll Music>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:815A75EAC5EA3D33455876EF64DC4DF481D6F2F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461528   (95245) от 03.03.2012
-
-Miles Davis - Aura (1989) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. White
-03. Yellow
-04. Orange
-05. Red
-06. Green
-07. Blue
-08. Electric Red
-09. Indigo
-10. Violet1989Жанр: JazzПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461453   (95254) от 03.03.2012
-
-Crane - Refuge (2011) [FLAC|Lossless]<Hard Rock/Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Able To Be Yourself - 2:59
-02. Goodbye - 4:29
-03. Fantasies - 4:07
-04. Wake Up - 3:53
-05. Paradise - 3:26
-06. King Of Trash - 2:53
-07. If You Open Up Your Eyes - 3:42
-08. Soul II Soul - 4:51
-09. Riddle - 2:52
-10. Capital Fascism - 3:18(   Читать дальше...   )Жанр: Hard Rock/Classic RockПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461696   (95257) от 03.03.2012
-
-Antonio Carlos Jobim - Miucha e Tom Jobim (1979) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95257.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Triste Alegria (Miucha)
-2. Turma do Funil (Mirabeau-Oliveira-Castro)
-3. No Cego (Toquinho-Cacaso)
-4. Falando de Amor (Jobim)
-5. Samba do Carioca (Lyra-Moraes)
-6. Madrugada (Candinho-Pinto)
-7. Sublime Tortura (Bororo)
-8. Aula de Matematica (Jobim-Pinto)
-9. Dinheiro em Penca1979Жанр: JazzПродолжительность: 00:32:25
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461416   (95265) от 03.03.2012
-
-Прожекторперисхилтон. Сезон 4. Выпуск 19(119) (24.02.2012) DVBRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95265.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Прожектор Пэрис Хилтон» — проект Первого канала, ведущими которого стали Гарик Мартиросян, Иван Ургант, Саша Цекало и Сергей Светлаков. Это программа, где нет ничего обязательного. Ведущие делают практически все, что хотят. Обсуждают темы, которые интересны зрителям, проводят «политинформацию» для населения. На столе в студии разложено много газет — ведь где еще, как не в свежих газетах, черпать актуальные новости, которые произошли на прошедшей неделе.Жанр: Телепередача, Новости, КомедияПродюсер: Александр ЦекалоПродолжительность: 00:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E160BF7B2DF663DC418BE6FC109DC4D6DFD44AB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461887   (95277) от 03.03.2012
-
-М.Коломиец, И.Мощанский | Танки Ленд-лиза [2000] [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга содержит большое количество фотографий бронетанковой техники поставлявшейся СССР по ленд-лизу из США Англии и других стран, помимо этого содержатся данные о том сколько и когда было поставлено, какие достоинства и недостатки были у поставляемых машин, их описания и т.п.. Книга адресована всем кто интересуется историей Второй мировой войны.В книге использованы (   Читать дальше...   )Жанр: Военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF41AD75F56890B81D9D247F55BF07B4D206CC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461682   (95281) от 03.03.2012
-
-Старшие Арканы - Корабль привидений (2012) [MP3|320 кб/с]<progressive metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_95281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Корабль привидений
-02-Дом желтых стен
-03-Ра
-04-Вечный гонщик
-05-Ночь печали
-06-Путь домой
-07-Иерофант
-08-Косумель
-09-Бракосочетание Рая и Ада
-10-Путь домой (chill out version)(   Читать дальше...   )2012Жанр: progressive metalПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FC1E705FA2C5C815648612C54A40BD57733C4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461979   (95309) от 03.03.2012
-
-Yngwie Malmsteen - Marching Out (1984) /1994, Polydor/ [FLAC|Lossless]<Heavy/Power-metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_95309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude
-02. I'll See the Light, Tonight
-03. Don't Let It End
-04. Disciples of Hell
-05. I Am a Viking
-06. Overture 1383
-07. Anguish and Fear
-08. On the Run Again
-09. Soldier Without Faith
-10. Caught in the Middle(   Читать дальше...   )Жанр: Heavy/Power-metalПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-нет
 ```
 
 

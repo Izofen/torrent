@@ -1,3 +1,30 @@
+###  Публикация: 1811788   (8440) от 11.08.2025
+
+VA - Rock para estallar los parlantes (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Myles Kennedy - Sweet Child O' Mine (Live) (6:29)
+02.  The Rolling Stones - Paint It, Black (3:23)
+03.  Queen - Another One Bites The Dust (3:35)
+04.  Tesla - Modern Day Cowboy (5:19)(   Читать дальше...   )Жанр: RockПродолжительность: 02:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CCD718677E97D1318886B1A70FAA9D4AB3C22D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811675   (8441) от 11.08.2025
 
 Leah - Studio Albums (6 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
@@ -616,30 +643,6 @@ magnet:?xt=urn:btih:6E3534B9A0DEB988A93B7595FB970CC2CC7F17FC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69037E61CD50CAF11FA9E126A143D6AB0C70263B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811693   (8466) от 11.08.2025
-
-Native Instruments - Kontakt 8.6.0 STANDALONE, VSTi, VSTi 3, AAX (x64) Portable by vkDanilov [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_8466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kontakt позволяет вам воспроизводить и обрабатывать ранее записанные аудиоданные - сэмплы музыкальных инструментов, звуковых эффектов, вокальных треков и пр. - но это только малая часть из всего спектра его возможностей. В Контакте вы можете использовать готовые инструменты из огромного количества библиотек от сторонних разработчиков или создавать свои виртуальные (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D771795F79C54EF985D0B96BE436D6E5E600CB
 ```
 
 

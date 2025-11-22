@@ -1,3 +1,57 @@
+###  Публикация: 1805302   (65462) от 05.07.2025
+
+Trigger - Second Round (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Back Talk (3:16)
+02.  Down To It (3:54)
+03.  Wasting Away (3:49)
+04.  Sore Loser (3:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F38BDC34AC0A254479DB6058A6CD2F26D88144
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805157   (65463) от 05.07.2025
+
+Ceremony - Solitary Bleed (2025) [FLAC|Lossless|WEB-DL|tracks] <Modern Death Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Via Dolorosa [00:04:16]
+02. Only Our Blood [00:03:16]
+03. Bull Of Phalaris [00:04:35]
+04. Solitary Bleed [00:05:50](   Читать дальше...   )Жанр: Modern Death Metal, Symphonic MetalПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9624FC2B3C2774A08789A292406569DEB1D2A12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805311   (65464) от 05.07.2025
 
 Ashes Of Reason - Crisis Catalyst (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -608,60 +662,6 @@ VA - Nothing But... Trancetopia, Vol. 27 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:954352C58714DF8540300B864C88140FF06868C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805121   (65488) от 04.07.2025
-
-VA - Ori Uplift - Uplifting Only Episode 647 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. André Wildenhues, Stacey Jay – Hold on to Hope (Intro Mix)
-02. Db Mokk & DNY’L – I Still Breathe
-03. Starpicker & Denise Rivera – Can’t Live Without You
-04. illitheas – Rise Again(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A12466FB7906B44F642555944712D5A348FA42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805089   (65489) от 04.07.2025
-
-Metal Detektor - Violence and Pride (2025) [FLAC|Lossless|WEB-DL|tracks] <Old School Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sister Gone Mad [00:06:16]
-02. Grendel Returns [00:05:07]
-03. Shadowrunner [00:05:23]
-04. Violence and Pride [00:05:42](   Читать дальше...   )Жанр: Old School Heavy MetalПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379B780E22BE3D92A2157C3D2B2A8F9A3E18E35C
 ```
 
 

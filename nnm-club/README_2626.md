@@ -1,3 +1,53 @@
+###  Публикация: 1786405   (69024) от 20.03.2025
+
+Шрифты - Denis Serebryakov - MyFonts - Gik [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей.
+Разработчик: Denis SerebryakovФормат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0657A3C4F8EF99110DFB0628D9E7A92DC768A2AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786304   (69025) от 20.03.2025
+
+Шрифты - Denis Serebryakov - MyFonts - Canapa [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей.
+Разработчик: Denis SerebryakovФормат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:724276F47074E307CC7E187FFE77B524D9B48CB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786447   (69026) от 20.03.2025
 
 Шрифты - Monotype Imaging Inc. - Archive [TTF]
@@ -603,58 +653,6 @@ AI - AzizRush. Я просто стал слеп (2025) [MP3|320 Kbps] <Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A36F791610C985DD8D9A43374EE74633EBCC271
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785828   (69050) от 20.03.2025
-
-Victoria Nordmann - Love & Disco (2025) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Like to Fly (3:44)
-02. Stop Crying for Me (2:39)
-03. Life Is Like a Fire (3:55)
-04. Disco Night (feat. Alimkhanov A.) (3:56)(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 00:53:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657526DE6BC8DEDA2121554B81B06346050B2765
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786409   (69051) от 20.03.2025
-
-Шрифты - Denis Serebryakov - MyFonts - Epos [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_69051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт c кириллицей.
-Разработчик: Denis SerebryakovФормат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2E2B0B96DF2A86572C9001AC94FF9A4E9F0809
 ```
 
 

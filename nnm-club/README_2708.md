@@ -1,3 +1,55 @@
+###  Публикация: 1776933   (71156) от 03.02.2025
+
+Журнал | Монокль №5 (1373) (27 января-2 февраля 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Деловой журнал «Монокль» – новое и старое издание одновременно. С 16 октября 2023 года его издает команда журналистов, которая в течение 28 лет делала журнал «Эксперт».
+В «Монокле» вы найдете макроэкономический анализ, прогнозы, обзоры конъюнктурных рынков и отраслей – от природного газа до изготовления манекенов, анализ финансовых рынков и новости финансовой политики (   Читать дальше...   )Жанр: Деловой журналИздательство: Александр ПопцовФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC83E6F184411FDF28CA2632125310D7188CD7A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776947   (71157) от 03.02.2025
+
+VA - Alex Sonata & TheRio - 25 Years Of Anjuna (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Drill & Alex Sonata & TheRio - The Drill (Extended Mix) [6:08]
+02. Norin & Rad - Bloom (Extended Mix) [6:56]
+03. Fatum, Genix, Jaytech & Judah - All In (Extended Mix) [6:21]
+04. Cramp - RU116 (Cramp 2020 Extended Mix) [6:53](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3947B7EC091DA0EC5300E9B3E1257BF8644B4913
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776902   (71158) от 03.02.2025
 
 Riverside - Live ID. (2025) 2 x CD, Limited Edition [FLAC|Lossless|image + .cue] <Prog Rock>
@@ -633,60 +685,6 @@ In Vain - Solemn (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Death/B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CE408591A5EF5BB2E99F0DCF99273B68C690A6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776689   (71182) от 02.02.2025
-
-The Exu - The Exu (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riddle Me This (3:54)
-02. Know Time (3:38)
-03. B4B (3:02)
-04. Pancakes (2:25)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDED62B118CE9E7BE304AE22949A372FF6C37754
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776681   (71183) от 02.02.2025
-
-Rui Fernandes - Para Dois Corações (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_71183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amarantango (5:27)
-02. Escola do Marão (5:18)
-03. Ares de Milonga (5:37)
-04. Linha do Corgo (9:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1849E2E44D0E09AE027D398D8AD5F4DD8E5DAD40
 ```
 
 

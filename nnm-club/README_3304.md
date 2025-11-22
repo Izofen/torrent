@@ -1,3 +1,187 @@
+###  Публикация: 1742105   (105589) от 10.08.2024
+
+Dark Funeral - Dark Funeral (30th Anniversary Edition) (1994) EP, Reissue, Remastered, 2024, Century Media [FLAC 24/96|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Open the Gates [4:35]
+02 - Shadows Over Transylvania [4:23]
+03 - My Dark Desires [3:53]
+04 - In The Sign of the Horns [3:46](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A80F8CE1F141EA5D4CB965D3E9B7F199314D3E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742228   (105590) от 10.08.2024
+
+Siamese - Elements (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Post-Hardcore, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Shape Of Water [3:35]
+02 - Vertigo [3:40]
+03 - Predator [3:41]
+04 - Chemistry [3:25](   Читать дальше...   )Жанр: Rock, Post-Hardcore, Alternative RockПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00893CD45431E99DA45137536EDD081B0BA240C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742062   (105591) от 10.08.2024
+
+Марина Вайсберг - Я женщина приличная (2024) [MP3|320 Kbps] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Булка [00:01:40]
+02 - Вася [00:01:56]
+03 - Тюльпаны [00:01:30]
+04 - Жрушка [00:01:29](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053A515020818F949570491629D61C2DA9ECB94E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741558   (105592) от 10.08.2024
+
+МузЛофт-подкаст / МузLoft. Торнике Квитатиани (2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Торнике Квитатиани. Как борец стал вокалистом. Про Выжить в Дубае, Голос и КВН.
+Многогранный артист сегодня у нас в подкасте. Торнике расскажет про сложности в мире селебрити, желание написать хит, как случайно попал в команду к Борцам и пооткровенничает о шоу «Выжить в Дубае». Усаживайтесь поудобнее!Производство: Россия | Y-GenerationУчастники: Торнике КвитатианиПродолжительность: 01:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4DB8279A6E6BC760A8BA5DFCEC5B5CBB9F8AC46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742252   (105593) от 10.08.2024
+
+Lumen - Lumen & Orchestra (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105593.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro + Далеко (Live)
+2. Не надо снов (Live)
+3. Кофе (Live)
+4. Истина (Live)(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 01:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667986E46A21ECB16DDE23DC01AD98625DE1F341
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742292   (105594) от 10.08.2024
+
+OpenNumismat 1.9.11 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105594.jpg" />
+</div>
+
+
+###  Подробнее
+
+OpenNumismat является удобным и надежным приложением, предназначенным для коллекционеров монет и нумизматов, для создания нумизматической коллекции.
+С OpenNumismat вы сможете организовывать и управлять коллекцией монет: создавать подробный каталог ваших монет, списки нужного и проданного, просматривать статистику вашей коллекции.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DA51CD61653CC34D37C08FBAF2526EB7DCE5677
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742204   (105595) от 10.08.2024
+
+Главная дорога (10.08.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Законно ли требовать права на управление самокатом?
+ Тяни — толкай! Что надежнее — покупные или самодельные механизмы? Андрей Федорцов и Денис Юченков испытали на прочность себя и ручные лебедки: помогут ли они вытащить машину из грязи без трактора?
+ Смотреть в оба: управлять взглядом, машиной и велосипедом с айтрекером на глазах учился актер Александр Барановский. (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0328DA5069E08A71C33A3349FB043D979CBE9459
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742299   (105596) от 10.08.2024
 
 File & Image Uploader 8.4.5 Portable + Skins [Multi/Ru]
@@ -487,195 +671,6 @@ Blue Oyster Cult (Blue Öyster Cult) - 50th Anniversary Live - Second Night (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A5E4F2163BDC88A9E3E32E677A06BFC9DAE703E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741750   (105615) от 08.08.2024
-
-Cody Dickinson - Homemade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homemade Blues (3:14)
-02. Big City (2:22)
-03. Walk Right In (3:02)
-04. Goodbye Albuquerque Tuesday Night (3:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D009F71CCCC74ACE453FD064BC75BCC3D92A386E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741730   (105616) от 08.08.2024
-
-AJ Fullerton - Closer (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almost There (2:49)
-02. Oh Frustration (3:47)
-03. Get By (3:11)
-04. New Stories (3:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE9E56E981CA4111AC149192A27F380B0B0BD705
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741898   (105617) от 08.08.2024
-
-Kaisas - Ieria (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ieria (1:32)
-02. Sad Action (5:47)
-03. Pretty Blonde (5:00)
-04. (She Is Just So) Heavy Metal (5:31)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8774B40CC963F60D9600D72BF9163878CDA91653
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741836   (105618) от 08.08.2024
-
-King Gizzard & The Lizard Wizard - Flight b741 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirage City (4:48)
-02. Antarctica (4:32)
-03. Raw Feel (4:17)
-04. Field of Vision (3:35)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B32FC4C627D597E67AEE09DD41210F42A0DC8CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741765   (105619) от 08.08.2024
-
-Jay Lang - Blues, Vol. 1 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Honey (2:47)
-02. No Name (4:08)
-03. Hopalong Tracy (3:21)
-04. Short Skirt (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59238553C09EA3B9BA1D543125B450954B4DD5C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741864   (105620) от 08.08.2024
-
-In Aphelion - Reaperdawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Extreme Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fields in Nadir (6:08)
-02. A Winter Moon's Gleam (6:01)
-03. When All Stellar Light Is Lost (4:34)
-04. The Darkening (7:14)(   Читать дальше...   )Жанр: Extreme MetalПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D312662023A7A0A1DBF0B9B0D8DFCA2CABA0D9ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741810   (105621) от 08.08.2024
-
-Mister Misery - Mister Misery (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_105621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Root of All Evil
-02. Erzsebet (The Countess)
-03. Eye of the Storm
-04. Hand of Death(   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44A4DD0CBB76AA24D7160A396B39D62A4DEFD28
 ```
 
 

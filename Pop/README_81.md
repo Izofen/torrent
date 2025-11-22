@@ -1,3 +1,111 @@
+###  Публикация: 1592340   (184326) от 21.11.2022
+
+Ola Hakansson (pre Secret Service) - 3 Albums (1976-1979) LP [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ола Хоканссон - шведский певец, композитор и продюсер. В раздаче представлены альбомы предшествующие появлению всем известной в мире группы Secret Service, где Ола вместе со своим постоянным ударником Leif Johansson участвовали в трех проектах с его узнаваемым исполнением. Последний был полным составом скоро переименован в Secret ServiceСписок альбомов:
+1976 - Ola & Janglers - Jet Leg
+1976 - Ola Hakansson, Frukt & Flingor - O.F.F.
+1979 - Ola+3 - Det Kanns Som Jag Vandrar Fram(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 01:56:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C62D4FB13C311F2ADA17E7D547EE76B28C4D1DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427301   (184424) от 27.11.2020
+
+Leslie O'Hara - Gipsy Boy (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gipsy Boy  (7:07)
+02. No War Love  (2:48)
+03. It's America  (3:32)
+04. Disco Banjo  (6:09)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:22:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E286FBC866DB9AF7B3FFE4FD41A70193374D5920
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427284   (184462) от 27.11.2020
+
+Tala A.M. - Arabica (1978) Reissue LP, African Roadtrip, 2015 [MP3|320 Kbps] <Disco, Funk, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/004/save_picture_184462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arabica  (4:38)
+02. Black Gold  (5:19)
+03. Sugar Lump  (6:04)
+04. I Know What You Want  (5:20)(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 00:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91045AB66E9E6F862968817FB6F34B8EBB846436
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664723   (184869) от 27.09.2023
+
+Екатерина Шаврина - Понарошку (2002) [FLAC|Lossless|tracks + .cue]<Retro, Folk>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_184869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Понарошку
+02. Пойдем со мной
+03. Все было несерьезно
+04. Любовь уходит не спеша(   Читать дальше...   )Жанр: Retro, FolkПродолжительность: 00:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A4EA6E06902FA2A301BFDA2D5EAFC503CDB7A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426755   (185108) от 26.11.2020
 
 Caroline Vreeland - Notes On Sex & Wine (2020) [MP3|320 Kbps] <Pop, Jazz, Blues>
@@ -236,6 +344,33 @@ C.C. Catch - Diamonds - Her Greatest Hits (1988) [OGG Vorbis|480 Kbps] <Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBF3C9796B3043EDF51E0FE78FA2A9561E35A77C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426703   (185949) от 25.11.2020
+
+Dabro - Юность. Deluxe Version (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_185949.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Белая луна
+3. Вдохновение (скит)
+4. Она не такая(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256A0AFC1F8F12513A1063BB25E46212D752E674
 ```
 
 
@@ -557,140 +692,6 @@ magnet:?xt=urn:btih:B4EE31919B1CC2335E9BB4DA600530D5C7DA0D6D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8062FBC38AF45E0873BADB0122F4F2AE76469084
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590478   (187798) от 16.11.2022
-
-C.C. Catch - Classics (1989) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Seat Of You Cadillac
-02. Are You Man Enougth
-03. Good Guys Only Win In Movies
-04. Midnight Gambler(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 01:06:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906FBA469B23D3F734BE99CFA58A3DE29E1E0717
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590946   (187799) от 16.11.2022
-
-Bee Gees - Number Ones (2004) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massachusetts
-02. World
-03. Words
-04. I've Got A Message To You(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 01:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29287C17711B4486467EA2455B5C49B81E57A23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591069   (187811) от 16.11.2022
-
-Tempo Rubato - Music '85 (1985) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music '85 (19:02)
-02. Don't Stop The Classics (10:45)
-03. Let's Stay Together (7:28)Жанр: Electronic, Italo-Disco, DiscoПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C692B64CC6D4268CFAA9A47005C144CD5DBB58E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590798   (187813) от 16.11.2022
-
-C.C. Catch - Super 20 (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Kiss
-02. Soul Survivor
-03. 'Cause You Are Young
-04. Heaven & Hell(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836D8E9ED0655743524A44DBA5CDF10FFC24DCF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590920   (187814) от 16.11.2022
-
-C.C. Catch - Super Disco Hits (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/003/save_picture_187814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbreak Hotel (''Room 69'' Mix)
-02. One Night's Not Enough (Maxi Version)
-03. Back Seat Of Your Cadillac
-04. I Can Lose My Heart Tonight (Extended Club Remix)(   Читать дальше...   )Жанр: Electronic, Disco, Synth-popПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E73DD72817280B622B30C1BA7B23C95D6092575
 ```
 
 

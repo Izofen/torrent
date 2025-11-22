@@ -1,3 +1,57 @@
+###  Публикация: 1794032   (67282) от 28.04.2025
+
+Aeonyzhar - The Profane Era (2025) [MP3|320 Kbps] <Symphonic Death, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Age Of Enlightenment
+02. I Spit In The Face Of Forgiveness
+03. Hymn Of The Golden Age
+04. Divine Hybrid Euphoria(   Читать дальше...   )Жанр: Symphonic Death, Black MetalПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D6425D132FDD67BBB3CE786522585B917F2CAB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793956   (67283) от 28.04.2025
+
+A.R.A.T.A.N - Chants Nerviens (2025) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Pont-De-Loup À Saint-Ghislain
+02. Noir Terril
+03. Aux Marches Picardes
+04. Aegir Initié(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00: 41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A3A1C9F5CC37B5150903876803007773534319
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794023   (67284) от 28.04.2025
 
 Goose - Shenanigans Nite Club (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
@@ -594,57 +648,6 @@ magnet:?xt=urn:btih:96DF046B296E08F3C74068DBF2F7CCA062AF6A65
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D089BD939031A33C4BFF3A497B9E281A397F96C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794286   (67308) от 28.04.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Boho Teddy Bear Baby Shower Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с изображением плюшевого мишки.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C3B4D74160E4B205B4408648DFDE556ABAE6BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794331   (67309) от 28.04.2025
-
-The Weepies - Hideaway (2008) [FLAC|Lossless|tracks + .cue] <Acoustic, Indie Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Go Back Now    [0:02:17.66]
-02. Orbiting    [0:02:55.09]
-03. Hideaway    [0:02:46.51]
-04. Wish I Could Forget    [0:02:56.71](   Читать дальше...   )Жанр: Acoustic, Indie Rock, Pop RockПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3172792EC8CA60EE382C321D56BE36F3C6FED7DE
 ```
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1807116   (65306) от 17.07.2025
+
+Константин Бакшт | Боевые команды продаж. Продажи на 100% (2008) [MP3, Вячеслав Тимошенко]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бизнес — это война, где пленных скупают за бесценок. Линия фронта проходит там, где идет работа с клиентами. Ваша основная ударная сила — ваш отдел продаж. Ваши менеджеры по продажам всегда в бою, всегда на передовой. Так вооружите их надежными технологиями и новейшими достижениями в области продаж!
+Автор этой аудиокниги как бизнес-консультант диагностировал десятки (   Читать дальше...   )Жанр: БизнесИздательство: ПитерПродолжительность: 05:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1458A061FE3CF292937F604040D1CFF562184B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807196   (65307) от 17.07.2025
+
+Scardust - Souls (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Forgotten Song (4:20)
+02. My Haven (3:18)
+03. RIP (3:40)
+04. Dazzling Darkness (2:37)(   Читать дальше...   )Жанр: Progressive Symphonic MetalПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42DEDA791E4A0C80D3D27E82AA3EF83AEA6EEA9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807163   (65308) от 17.07.2025
 
 Михаил Зощенко | Лёля и Минька (2024) [MP3, Александр Клюквин]
@@ -615,58 +667,6 @@ D.K. Harrell - Talkin' Heavy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:154B3A099A4D3487DFB7F853FF8FEDE3442A7FFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806752   (65332) от 14.07.2025
-
-Night Must Fall - Dissonance of Thought (2007) (EP), Released, 2008, Descending Towards Damnation [FLAC|Lossless|image + .cue] <Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invocation
-02. Awaiting the Sixth ExtinctionЖанр: Funeral Doom MetalПродолжительность: 00:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC75CAD23FC860BD24498C0F9B8643E5E8701828
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806733   (65333) от 14.07.2025
-
-Maniae - Vestiges (2023) (EP) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damnatio ad Bestias
-02. Clinical Messiah
-03. Gold into Your Veins
-04. Inner Plague(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6726B0E9B89FF428E8C78057D2081A500482C3C
 ```
 
 

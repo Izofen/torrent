@@ -1,3 +1,54 @@
+###  Публикация: 1794931   (67230) от 01.05.2025
+
+Гордый и светский / The Proud and Profane (1956) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67230.jpg" />
+</div>
+
+
+###  Подробнее
+
+На остров Новая Каледония в Тихом океане приезжает Ли Эшли, вдова лейтенанта, погибшего в Битве за хребет Эдсона в 1942 году. Прошел всего год со смерти супруга, рана не зажила. Но Ли сильна духом и присоединяется к американскому Красному Кресту, где собирается давать уроки французского. На самом деле женщине хочется узнать побольше о покойном муже. На остров высаживается (   Читать дальше...   )Производство: США / Perlberg-Seaton ProductionsЖанр: драма, военныйРежиссер: Джордж СитонАктеры: Уильям Холден, Дебора Керр, Тельма Риттер, Дьюи Мартин, Уильям Редфилд, Росс Багдасарян, Адам Уильямс, Мэрион Росс, Теодор Ньютон, Ричард ШеннонПеревод: Авторский (Алексей Багичев)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90C3CB20C69F737611D681D88CE2563FAB54AF5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794548   (67231) от 29.04.2025
+
+Dr. Jules' Cool Blues - The Iconoclast (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wish the Blues Had Used a Condom (3:06)
+02. ADD (3:38)
+03. Don't Drink the Kool Aid (4:50)
+04. The Barflies At The Bar (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9043E346F78F21974DAD472FBB71AC52DE0D9F35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794463   (67232) от 29.04.2025
 
 The Absence - Studio Albums (6 releases) (2005-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
@@ -627,60 +678,6 @@ Lightnin' G-Bird - I Was Fool About You (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC5FA2379A9455DE0127E9B802D14D3D7229D2FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794427   (67256) от 29.04.2025
-
-Michael Bublé - Crazy Love (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry Me a River    [0:04:14.56]
-02. All of Me    [0:03:07.64]
-03. Georgia on My Mind    [0:03:08.17]
-04. Crazy Love    [0:03:31.22](   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA379758BA7C64DB79BA58FF0A2584CE1954BA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794586   (67257) от 29.04.2025
-
-Prost - Believe Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lone Survivor (4:33)
-02. Believe Again (4:39)
-03. Comfort Zone (3:54)
-04. Never Let You Go (4:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF94B29FAA76DB9B548E9AAECC51582F5CE7EA0A
 ```
 
 

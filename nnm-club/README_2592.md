@@ -1,3 +1,57 @@
+###  Публикация: 1789884   (68140) от 07.04.2025
+
+VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 09 (2025) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Six Mists - We Will Be Free (03:54)
+02. Artena - Our Time (extended mix) (07:01)
+03. Polzn Bladz - Reasonate (extended mix) (06:51)
+04. Xzatic - Raining (07:46)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C1DAEE0C06BBB65C759E315CE8C7B3C27DBD76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789878   (68141) от 07.04.2025
+
+VA - Nothing But... Trancetopia, Vol. 24 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darren Porter - Neon Dreams (Extended Mix) [05:42]
+02. Khoursa Tera - Up & Down [03:53]
+03. Van Yorge - Reflection [03:50]
+04. Dmpv & Born 87 - Avenue (Extended Mix) [05:47](   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0E1726FC1C9BBF591A8FE376B83FB7345774D87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789993   (68142) от 07.04.2025
 
 Markus Schulz - Global DJ Broadcast World Tour, MAD Club Wynwood Miami (2025-04-04) [MP3|320 Kbps] <Trance, Techno, Melodic House>
@@ -628,57 +682,6 @@ magnet:?xt=urn:btih:76A3C55E824E1870BD9939AA245CB9FF275DEC1A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDEDBBF7433066C0046AB9ED97605B197D136598
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790059   (68166) от 07.04.2025
-
-Manowar - Into Glory Ride (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warlord
-02. Secret of Steel
-03. Gloves of Metal
-04. Gates of Valhalla(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D02F775B466B95E010A29E6106B235F5B197E988
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789855   (68167) от 07.04.2025
-
-Журнал | Эксперт №2 (14) (февраль 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Эксперт» — одно из самых влиятельных еженедельных деловых аналитических изданий России. За 14 лет своего существования в непростых политических и экономических условиях изданию удалось не только выжить и сохранить своих читателей, но и расширить их круг, заслужив репутацию несомненного лидера российской деловой журнальной прессы. Все наши знания и опыт нацелены (   Читать дальше...   )Жанр: Экономика, политикаИздательство: ООО "Эксперт.Медиа"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8376D0FBB33739F0D8685F905005F57AE8CC4F8
 ```
 
 

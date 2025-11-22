@@ -1,3 +1,51 @@
+###  Публикация: 1768500   (33113) от 25.12.2024
+
+HDD Low Level Format Tool 4.50 RePack (& Portable)  by KpoJIuK [Ru/En]
+
+>>След.
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33113.jpg" />
+</div>
+
+
+###  Подробнее
+
+HDD Low Level Format Tool - утилита для низкоуровневого форматирования жесткого диска, а также внешних устройств, подключенных через интерфейс USB (например, флеш-карт). Кроме этого, HDD Low Level Format Tool умеет выдавать информацию S.M.A.R.T. Работает с SATA, IDE и SCSI HDD размером до 281 474 976 710 655 бит производства Maxtor, Hitachi, Seagate, Samsung, Toshiba, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9D84A310BDBA8993E3494FD8495B5371E7AB92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397960   (33114) от 25.12.2024
+
+Голова / The Head (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) HDRezka Studio
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международная антарктическая исследовательская станция. Во время длительной полярной ночи учёным из разных стран предстоит столкнуться не только с культурными различиями, но и с неким неведомым ужасом.Производство: Испания / HBO Asia, Hulu, The MediaPro StudioЖанр: триллер, детективРежиссер: Хорхе С. ДорадоАктеры: Сандра Андреис, Лаура Бах, Ханнес Фолин, Джон Линч, Альваро Морте, Кэтрин О'Доннелл, Крис Райлли, Рихард Заммель, Андреас Ротлин-Свенссон, Александр Виллауме и др.Перевод: Профессиональный (многоголосый, закадровый)  HDRezka StudioСубтитры: русские (форсированные, вшитые)Продолжительность: ~00:53:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDEA8B7B7756F931D4627554F42CAE7065BF6B88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 856644   (33115) от 25.12.2024
 
 Рождественские каникулы / Christmas Vacation (1989) BDRip [H.264]
@@ -602,60 +650,6 @@ magnet:?xt=urn:btih:5B20FE90DE3C13A006F1FD459CE9B0782775F307
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:825F29815DDC21A4891B420A3C41724BC0D95864
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768256   (33139) от 24.12.2024
-
-Sunny Bleau And The Moons - Bag of Tracks (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little by Little (Live) (5:47)
-02. Vegas Blues (Hey, Mister Rich Man) (3:00)
-03. Everybody Wants to Rule the World (4:08)
-04. Can't Turn Down Rock and Roll (3:35)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67F6DF86F60927ADE4B18AD4627ACAA254E70530
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768167   (33140) от 24.12.2024
-
-La Blues Company - La Blues Company (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_33140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pottoko Shuffle (3:22)
-02. Long Road Blues (4:23)
-03. I Need You By My Side (3:19)
-04. New Early In The Morning (3:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0DDAB7123CCDD073FB64747DF4840E236349844
 ```
 
 

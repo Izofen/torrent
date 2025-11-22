@@ -1,3 +1,186 @@
+###  Публикация: 1691721   (123061) от 13.01.2024
+
+Ravenstine - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Is The Brightest Color
+02. Easy Come Easy Go
+03. Fly Eagle Fly
+04. Signs By The Roadside(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D3A4562E95E9EFCF8B168F4C89052851D1EEC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691713   (123062) от 13.01.2024
+
+Artificial Heaven - Digital Dreams (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fall Away (00:03:48)
+02 - Log On (00:04:29)
+03 - Electric Rain (00:04:46)
+04 - Ennio (00:01:23)(   Читать дальше...   )Жанр: Gothic Rock, Hard RockПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF533C39EB721E03886960C9C59961D38017DE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691658   (123063) от 13.01.2024
+
+И.С. Шмелёв | Няня из Москвы (2014) [MP3, Светлана Репина]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Сергеевич Шмелёв (1873–1950) – великий русский писатель, публицист, православный мыслитель.
+Роман «Няня из Москвы», написанный в излюбленной Шмелёвым форме сказа (в которой писатель достиг непревзойденного мастерства), – это повествование бесхитростной русской женщины, попавшей в бурный водоворот событий истории XX в. и оказавшейся на чужбине. В страданиях, (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Нигде не купишьПродолжительность: 09:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A714197F10FDD314A6AC6561301B01B88ACD68F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691749   (123064) от 13.01.2024
+
+Ryujin - RYUJIN (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal, Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hajimari [0:41]
+02 - Gekokujo [4:48]
+03 - Dragon, Fly Free [4:23]
+04 - Raijin & Fujin [6:10](   Читать дальше...   )Жанр: Metal, Melodic Death MetalПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8FFEA8CDAE06FB41A9ED96411D1E2FD557BC52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691696   (123065) от 13.01.2024
+
+И.С. Шмелёв | Москворецкий Златоуст. Лето Господне. Человек из ресторана (2012) [MP3, Протоиерей Константин Смирнов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика мировой литературы КМЛ, из фондов радио «Град Петров».
+Иван Сергеевич Шмелёв (1873–1950) – великий русский писатель, публицист, православный мыслитель.
+«В «Лете Господнем» чрезвычайно полно и глубоко воссоздан церковно-религиозный пласт народной жизни. Смысл и красота православных праздников, обрядов, обычаев, остающихся неизменными из века в (   Читать дальше...   )Жанр: Русская литература, классика, роман, ЖЗЛИздательство: Град ПетровПродолжительность: 16:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B9B620124AAC474D45681806E2AE743515BF0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691618   (123066) от 13.01.2024
+
+TransData: Internet Data Speed 3.2 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение TransData - показывает скорость передачи данных в «Интернете». Если у вас есть вопросы, указанные выше, то на вашем компьютере должно быть установлено приложение TransData. Посмотрите скорость передачи данных по сети с вашего персонального компьютера. Эта утилита добавляет скорость передачи данных с помощью значка и скорости передачи в Кбит/с или Мбит/с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.01.2024Разработчик: © 2017-2024 AppYogi SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A35F0FFC073A1AC3A4FFA9D28399DDBF909954
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691824   (123067) от 13.01.2024
+
+Temperance - The Earth Embraces Us All (2016) Japanese Edition, Rubicon Music [FLAC|Lossless|image + .cue] <Melodic Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Thousand Places
+02. At the Edge of Space
+03. Unspoken Words
+04. Empty Lines(   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 01:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:723016A925DF8C525FEBDE1C22D82EAFA6B69BF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691699   (123068) от 13.01.2024
 
 И.С. Шмелёв | Человек из ресторана (2004) [MP3, Виктор Рудниченко]
@@ -477,188 +660,6 @@ Neal Morse - The Restoration - Joseph: Part Two (2024) [FLAC 24/48|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EEBBBE5FCE72C3FB60389BD5B5F5D9BD1C15D47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691589   (123087) от 13.01.2024
-
-Alarm Clock Pro 15 v.15.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приходилось ли вам слышать такое выражение как хронофаги? Так называют людей, которые ничего никогда не успевают. Как вы думаете, почему? Да потому что не умеют планировать свои дела! А ведь именно планирование является одним из залогов успеха во всех делах и гарантией того, что они будут исполнены в срок.
-Alarm Clock Pro представляет собой многофункциональный будильник (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.01.2024Разработчик: © 2023 Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE998BF6669EE507105EF7FDAB43AF9FBBB261B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691496   (123088) от 13.01.2024
-
-VA - Armin van Buuren - A State Of Trance 1155 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omnia - Feeling
-02. The Hidd3ns & Michael Ra - TakhatumЖанр: Trance, Progressive, ElectronicПродолжительность: 02:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5F7F590963593FC8A1E49D9692A6DCC6BC2435
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691743   (123089) от 13.01.2024
-
-Jim Peterik And World Stage - Roots & Shoots - Volume One (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dangerous Combination (ft. Kevin Cronin & REO Speedwagon)
-02. Before Anyone Knows We're Gone (ft. Colin Peterik)
-03. Last Dream Home (ft. Don Barnes)
-04. Forever's The Last Place You Look (ft. Paul Childers)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C37C4022CC0634C9E3F8E6674E9744B1A2A6170
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691773   (123090) от 13.01.2024
-
-Layla Zoe - Back to the Spirit of 66 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Golden Slumber
-02 - Dark Heart
-03 - The World Could Change
-04 - Praying Kind(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D8122589BF92B55B3135D06EDBACA71F3314A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691750   (123091) от 13.01.2024
-
-Russell - Guns (Jack Russell, Tracii Guns) - Medusa (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Next In Line
-02. Tell Me Why
-03. Coming Down
-04. Where I Belong(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C68DCFDA7A38E70B3A4A91D66A0E92528DE6E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691828   (123092) от 13.01.2024
-
-Temperance - Of Jupiter and Moons (2018) Japanese Edition, Avalon [FLAC|Lossless|image + .cue] <Melodic Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Hope In A World Of Hopes
-02. Broken Promises
-03. Of Jupiter And Moons
-04. Everything That I Am(   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:128BAC8C07447E9E5838AF54016F720481C03E04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691614   (123093) от 13.01.2024
-
-SiteSucker Pro 5.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_123093.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 11.01.2024Разработчик: © 2022 Richard CraniskyПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6A201AC55F03679B7658B26CE6D79375EED478
 ```
 
 

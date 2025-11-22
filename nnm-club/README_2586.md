@@ -1,3 +1,51 @@
+###  Публикация: 1790870   (67984) от 11.04.2025
+
+Растровый клипарт - Pattern Universe - Creative Fabrica - Mexican Knitted Flowers Seamless Pattern [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67984.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 Бесшовных цветочных узоров - Мексиканский трикотаж.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A664FB15A1FCDAB659DDB4864BC2C555B7BE583
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790877   (67985) от 11.04.2025
+
+Текстуры - DizzyArtStudio - Creative Fabrica - Maroon Iridescent Leopard Print Textures [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леопардовые текстуры.Формат: JPGРазрешение файлов: 3600 x 3601 - 3601 x 3601
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB9C211DC013DF659429EDFAB4856403DBD5231C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790866   (67986) от 11.04.2025
 
 Растровый клипарт - Pattern Universe - Creative Fabrica - Gold & Black Plaid Digital Papers [JPG]
@@ -604,57 +652,6 @@ FeProject - Love Changes The World (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F5F89065D709EFB308E4B50D5857E3403199294
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790568   (68010) от 10.04.2025
-
-Газета | Загадки истории №12 (638) (2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68010.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22180A4834773C349C19AE0EB80FB0EE900D11BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790708   (68011) от 10.04.2025
-
-VA - Hypnotized [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malive - Quintal (Emanuel Satie, Tim Engelhardt Remix)
-02. Maz BR, Antdot, Ginton, Layefa - Jolie Fille (Original Mix)
-03. Michael Ritter & Chris Zippel - Shut Off The Lights (Return To Saturn Extended Remix)
-04. Rodrigo Lapena - Ether (Alan Cerra Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952E0AC7CF294A008AB729E51C5F46345FC83F76
 ```
 
 

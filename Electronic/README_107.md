@@ -1,3 +1,30 @@
+###  Публикация: 1598551   (162597) от 19.12.2022
+
+VA - Recharged 002 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Organic House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_162597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chris Cargo -  Shinichi  (7:08)
+02.  Cream (PL) -  Kaleidoscope  (8:37)
+03.  Leandro Murua -  Nana Child (Seth Vogt Remix)  (7:39)
+04.  Sinan Arsan -  Ekubya (Dhany G Remix)  (7:44)(   Читать дальше...   )Жанр: Deep Progressive House, Organic HouseПродолжительность: 01:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A5DC68EB5D50177F17B3D58CD178ABEDC062F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517519   (162756) от 15.12.2021
 
 Eli & Fur - Found In The Wild (Remixed) (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
@@ -666,33 +693,6 @@ VA - Techno Club Vol. 64 (Mixed by Talla 2XLC, Alessandra Roncone & Madwave) (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:682D3C08FD4CDF3D67E7D7AC9D4EC5F36B9236C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346282   (164388) от 18.12.2019
-
-VA - Spacechillers Vol. 3 (Сompiled by Maiia) (2019) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_164388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airform – Portal Trip (06:12)
-02. Damian L – Lost Flight (09:27)
-03. Essence Project – Sunny Day (05:10)
-04. Flucturion 2.0 – Puma Colada (07:14)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Progressive TranceПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7A5580C275DB87114CA22087E287F2795CFB25E
 ```
 
 

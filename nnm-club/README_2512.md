@@ -1,3 +1,57 @@
+###  Публикация: 1802377   (66060) от 17.06.2025
+
+Octoploid - Beyond the Aeons (2024) [FLAC|Lossless|image + .cue] <Melodic Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dawns in Nothingness (feat. Mikko Kotamäki) (05:46)
+02. Coast of the Drowned Sailors (feat. Tomi Koivusaari) (04:40)
+03. Human Amoral (feat. Tomi Joutsen) (05:43)
+04. Shattered Wings (05:18)(   Читать дальше...   )Жанр: Melodic Progressive Death MetalПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333C67C4C02B11B2A378320EE7B16FE72DC6E643
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802409   (66061) от 17.06.2025
+
+SanMinor - Ночь декабря (2015) [MP3|320 Kbps] <Pop, Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Доверие
+02. Корабли твои мечты
+03. Ты моя - я твой
+04. Ночь декабря(   Читать дальше...   )Жанр: Pop, Rap, Hip-HopПродолжительность: 00:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F7A6CCB7475B010DC36735396025B4DEDF86751
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802228   (66062) от 15.06.2025
 
 88 and gone - Spiders (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -628,57 +682,6 @@ Tres Pistoleros e Dona Kay - On another level (2025) [FLAC 24/44.1|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4831D61C073499E933AEE393E2998E0009F570BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802082   (66086) от 15.06.2025
-
-Van Morrison & The Chieftains - Irish Heartbeat (1988) CD, Album [FLAC|Lossless|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star of the County Down    [0:02:42.15]
-02. Irish Heartbeat    [0:03:51.65]
-03. Tá Mo Chleamhnas Déanta    [0:03:31.35]
-04. Raglan Road    [0:04:56.25](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2689FFC7BFC786A5832CCD905593CE567ED7490E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802280   (66087) от 15.06.2025
-
-Каппадокия: полет на воздушном шаре, подземный город, сырное печенье и турецкая лазанья | «Поедем, поедим!» (14.06.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди в Каппадокии взмыл под облака на воздушном шаре, спустился в подземный город, погулял в музее под открытым небом, посетил пещерный монастырь, а еще полакомился традиционным десертом с сырным печеньем и острым перцем и научился готовить мини-манты и турецкую лазаньюТелекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94DCAFCA729593EE19177B104EAD49A7276BC35A
 ```
 
 

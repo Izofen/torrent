@@ -1,3 +1,57 @@
+###  Публикация: 1801040   (66216) от 08.06.2025
+
+Tim Hardin Trio - Light Intelligence Series 3 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martini: Plaisir d'amour [4:45]
+02. Gounod: Ave Maria [4:17]
+03. Saint-Saens: The Swan [3:48]
+04. Bizet: Menuett from 'L'arlesienne' [3:28](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD972E0F1FE383EAAB0A8304C1BA1A57053610EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801037   (66217) от 08.06.2025
+
+Tim Hardin Trio - Light Intelligence Series 2 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mozart: 'Alla turca' from Piano Sonata in A major [4:11]
+02. Mozart: 'Allegro molto' from Symphony No.40 in G minor [4:13]
+03. Beethoven: Fur Elise [3:49]
+04. Beethoven: 'Allegro' from Violin Sonata No.5 in F major [3:34](   Читать дальше...   )Жанр: Post-Bop, Cool, Piano JazzПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F693E9D6891FB6415125955B61D5287EDA6629D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801181   (66218) от 08.06.2025
 
 MotoGP. Этап 08 из 22. Гран-при Арагона. Гонка (08.06.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -601,60 +655,6 @@ magnet:?xt=urn:btih:B41EE941BA7C677B128CC3F24D2370DC869CD29D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDAA817949A15E1B81DD54D02DF8697B5872D594
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801170   (66242) от 08.06.2025
-
-The Temptations - Reflections (2006) CD, Album [FLAC|Lossless|tracks + .cue] <Dance, Soul, R&B, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can I Get a Witness    [0:05:19.63]
-02. Reflections    [0:04:07.16]
-03. How Sweet It Is (to Be Loved by You)    [0:03:37.28]
-04. Don't Leave Me This Way    [0:03:15.37](   Читать дальше...   )Жанр: Dance, Soul, R&B, FunkПродолжительность: 01:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0BC2E3B9B2CE84BE6228470F35B3E485E90F68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801035   (66243) от 07.06.2025
-
-Two Wolf - Two Wolf (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Southern Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_66243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Keep On Movin' (04:21)
- 02 - Too Hard To Handle (04:17)
- 03 - Will I Believe (03:30)
- 04 - Traveler (03:06)(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D2660CE98BD0902E67A12D2BDC0BC284AD29F79
 ```
 
 

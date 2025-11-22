@@ -1,3 +1,57 @@
+###  Публикация: 1791467   (67802) от 14.04.2025
+
+Battle Beast - Circus of Doom (Live in Helsinki 2023) (2025) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (Live In Helsinki 2023) [2:09]
+02 - Circus of Doom (Live In Helsinki 2023) [4:42]
+03 - Straight to the Heart (Live In Helsinki 2023) [4:17]
+04 - Familiar Hell (Live In Helsinki 2023) [4:30](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1236B5A84CE414CECC53A30120E8E11702559742
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791523   (67803) от 14.04.2025
+
+Trueno Negro - Neogenesis (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Furia del Trueno (06:40)
+ 02. Inmortalidad (04:19)
+ 03. Alma Ardiente (04:46)
+ 04. Ciega Enfermedad (05:01)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F4E05B3072D2CF1E20F67BEA671FCF19E92321
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791567   (67804) от 14.04.2025
 
 MotoGP. Этап 04 из 22. Гран-при Катара. Гонка (13.04.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -615,57 +669,6 @@ Allan Clarke - Allan Clarke (1974) [FLAC|Lossless|tracks] <Folk Rock, Pop Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12C8BE230145E73798521249637028C49983CC15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791381   (67828) от 13.04.2025
-
-MotoGP. Этап 04 из 22. Гран-при Катара. Квалификация (12.04.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67828.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 апреля 2025, суббота. 15:40 МСК. Этап 4, Доха. Гран-при Катара. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:521AC361805F3808A6F7A3087AEE4DB289024341
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791342   (67829) от 13.04.2025
-
-Charlie Mingus - Four Classic Albums: Second Set (1956, 1957) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haitian Fight Song [12:03]
-02. Blue Cee [7:55]
-03. Reincarnation Of A Lovebird [8:34]
-04. The Clown [12:17](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 02:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C75942D7A9D25DB24FF7626690F1E34657331D2
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1800877   (15441) от 06.06.2025
+
+Pearl Alley - 'Bout Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mama, He Treats Your Daughter So Mean (4:56)
+02.  Move Over (3:44)
+03.  Beatin' Round (5:20)
+04.  Piece Of My Heart (6:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720DE61AD4D81026B4005111D703A19EA08B4F88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800833   (15442) от 06.06.2025
+
+VA - Ori Uplift - Uplifting Only Episode 643 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.J.G., M.I.K!, Jasmine Dean - Who You Really Are (Est Gaza Intro Remix)
+02. DJ T.H. & Deirdre McLaughlin - Rain Onto Me
+03. Andy Blueman - Time to Rest (Orchestral Uplifting Classic)
+04. John O'Callaghan, Paul Skelton & Ren Faye - May The Road Rise(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C1CBB63766A4E78C8192A2C7ADDA5F6BDC801E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800881   (15443) от 06.06.2025
 
 Rick Tobey - Sippin It Slow Radio Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -612,58 +666,6 @@ A-Z - A2Z² (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:109B8BB1B5EBCEF864C62E61B90DDEEFCC2B1DBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800817   (15467) от 06.06.2025
-
-Joanne Shaw Taylor - Black & Gold (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Modern Electric Blues, Blues-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold Of My Heart
-02. All The Things I Said
-03. Black & Gold
-04. Who’s Gonna Love Me Now(   Читать дальше...   )Жанр: Modern Electric Blues, Blues-RockПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5DAE28B585381FED69389F471FA969EF8CFC0CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800781   (15468) от 06.06.2025
-
-Растровый клипарт - DoodleBox - Creative Fabrica - Arabesque Scrapbook Paper [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_15468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Орнаменты (паттерны, узоры) в стиле арабески для срапбукинга.
-Эта коллекция вдохновлена красивой арабской и марокканской плиткой, а также португальскими азулежу.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14312383E05FED13774893C3B59E86CB7EA97147
 ```
 
 

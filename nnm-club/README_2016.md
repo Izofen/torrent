@@ -1,3 +1,56 @@
+###  Публикация: 1731199   (52781) от 19.06.2024
+
+VA - DJ Hits Vol. 70 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Captain Jack - Soldier, Soldier
+02. Whigfield - Sexy Eyes
+03. Sqeezer - Blue Jeans
+04. Blue System - Only With You(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CECAEB2D9AAB608EAC2B4D4DBE708AF30015CCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731183   (52782) от 19.06.2024
+
+Разгром (1931) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52782.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименного романа А.Фадеева.
+1921 год. С помощью японских интервентов белогвардейцы разбивают партизанский отряд Шалдыбы. Остатки разгромленного отряда вливаются в отряд Левинсона. Скоро разведка партизан устанавливает, что японцы окружили отряд. Чтобы спасти от разгрома основные силы, Левинсон принимает решение прорваться сквозь цепи врагов...
+Фильм (   Читать дальше...   )Производство: СССР / Совкино (Ленинград)Жанр: драма, военный, история, немое киноРежиссер: Николай БересневАктеры: Виктор Яблонский, Петр Савин, Николай Хрящиков, Людмила Семенова, Иван Юдин, Константин Мухутдинов, Леонид КлочковСубтитры: русские (интертитры)Продолжительность: 00:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B28E19BB8238ADC7915C66FC66DB9A2389C40282
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731202   (52783) от 19.06.2024
 
 Сатисъ | Как победить сети диавольские (о сопротивлении темным силам) (2008) [PDF, FB2, EPUB, MOBI, TXT]
@@ -587,60 +640,6 @@ Taylor Swift - The Tortured Poets Department: The Anthology (2024) [FLAC 24/48|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0017769819D40A4857F0A941353382ABCF87E3FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731136   (52807) от 19.06.2024
-
-Hugo Kant - Far From Home (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, Trip-Hop, Instrumental Hip-Hop, Nu Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melancholia [00:05:33]
-02. Before Midnight Tonight [00:05:16]
-03. The Second Sun [00:06:00]
-04. Sure the Sun Will Rise [00:04:55](   Читать дальше...   )Жанр: Downtempo, Trip-Hop, Instrumental Hip-Hop, Nu JazzПродолжительность: 00:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC8F4528B9D061A4DDF5C826A112ABD6F474957
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731139   (52808) от 19.06.2024
-
-Hugo Kant - Beyond the Tracks (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Trip Hop, Downtempo, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_52808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entering the Black Hole (Live at Blind Istanbul, 2022-03-26) [00:13:02]
-02. Butter (Live at Le Gorille, 2022-12-16) [00:04:34]
-03. Sure the Sun Will Rise (Live at Pulzart Festival, 2022-10-14) [00:18:50]
-04. The Eye (Live at Le Gorille, 2022-12-16) [00:14:46](   Читать дальше...   )Жанр: Trip Hop, Downtempo, FusionПродолжительность: 03:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D00DF2ED497E706F5CC5C89CADA45C87675D398
 ```
 
 

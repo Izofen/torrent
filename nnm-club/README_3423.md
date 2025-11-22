@@ -1,3 +1,192 @@
+###  Публикация: 1726410   (108683) от 29.05.2024
+
+VA - Sweet Enjoyable Intimate Soft Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxonic - Aurora (5:13)
+02. Kool&Klean - Islands in Tranquility (5:06)
+03. eJazz Artistry - Story of My Life (5:06)
+04. Chillaxing Jazz Kollektion - Wherever I Go (4:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA1E5B64B742C1705D20B7FD52E4C41CC8FA73A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726691   (108684) от 29.05.2024
+
+Jeff Shirley - Modes of Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rule of Thumb (6:33)
+02. Transients (4:21)
+03. Zentangle (5:14)
+04. Organ Trail (6:33)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:317BB5B17378404A89A5934590F16CB2F5F0912E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726397   (108685) от 29.05.2024
+
+VA - Jazz Tempoe Doeloe (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chaka Khan - Through the Fire (4:47)
+02. Michael Bublé - For Once in My Life (2:34)
+03. George Benson - Breezin’ (5:42)
+04. Michael Franks - The Lady Wants to Know (4:46)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85BD14D8F6A47496DE3DF08571EC3E97A34BA50E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726391   (108686) от 29.05.2024
+
+VA - Alluring Sweet Relaxing Chill Lounge Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Morning Mist (5:00)
+02. Love Suggestions - Clarity (4:36)
+03. Chillaxing Jazz Kollektion - Memories of Us (4:32)
+04. Chillaxonic - Island Getaway (5:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFF4C1FBEC4873D24FF70957FF35D1090EA944E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726696   (108687) от 29.05.2024
+
+Kurt Flavin - Six String Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. May I Never Say Never (3:54)
+02. Clear Day By The Shore (3:29)
+03. Love You Two Times (4:32)
+04. Out Of Left Field Flying (5:01)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A260B6E1E9BD24A37496863CE6EF7389C13025
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726689   (108688) от 29.05.2024
+
+Jeff Shirley - Contigo (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mount Meru (5:36)
+02. Con Vaquero (4:53)
+03. Hero of Charities (4:55)
+04. Time for Fun (4:25)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D422A0E1460DD4DEC8BEEAE7954D68DEDA6488
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726393   (108689) от 29.05.2024
+
+VA - Enjoyable Easy Listening Alluring Chill Jazz Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Memories of Us (4:32)
+02. Love Suggestions - Clarity (4:36)
+03. Kool&Klean - Kiss & Dance (4:44)
+04. eJazz Artistry - Always Be My Baby (3:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC9E45030351DED6912692A664F7D72E26405FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726599   (108690) от 29.05.2024
 
 Зёрна | Благоверный князь Роман Рязанский (2019) [PDF, FB2, EPUB, MOBI, TXT]
@@ -498,191 +687,6 @@ twikipedia - for the rest of your life (2024) [FLAC|Lossless|WEB-DL|tracks] <alt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC00DC499119CBFD6CE0CE61AF4F210AD72AD079
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726533   (108709) от 29.05.2024
-
-Telegram Desktop 5.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
-Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
-С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4453A2F7329DE463E309EBC95EF505FDA48CCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726679   (108710) от 29.05.2024
-
-Tennessee Blues Mob - Deep Dark Alibi (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wild Will Heal
-02 - Deep Dark Alibi
-03 - Climb the Mountain
-04 - Six Feet Under(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0CEA5FE8E0E76C8362E5332C40AC168BA6F0210
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726578   (108711) от 29.05.2024
-
-Maegandune - Melodic Memoirs (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Gothic Metal, Female Vocals>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eyes Of Fortitude [00:04:22]
-02. Reflection Of The Truth [00:04:22]
-03. Milady de Winter [00:03:47]
-04. You Know Nothing [00:03:16](   Читать дальше...   )Жанр: Symphonic Gothic Metal, Female VocalsПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD70D3E2FB2A19373BDF595C330E2D960BB52D46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726688   (108712) от 29.05.2024
-
-Jesse Kramer - HWY 12 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Got That Trash (2:55)
-02. Satisfaction (3:13)
-03. Biscuits (3:03)
-04. Get It While It's Hot (3:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A668A817992381CB5C3FC74E1A29CA3F97D90B00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726670   (108713) от 29.05.2024
-
-Tennessee Blues Mob - Deep Dark Alibi (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wild Will Heal
-02 - Deep Dark Alibi
-03 - Climb the Mountain
-04 - Six Feet Under(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7627E979FD720BDC5450269C5AF4E8D3DBEB9ACC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726499   (108714) от 29.05.2024
-
-VA - Chillout Melodies of the Outgoing Summer, Vol. 3 (2023) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rayan Myers - Show Me The Way (Original Mix) (04:30)
- 02. VetLOVE, Mike Drozdov - Light Dancing (Josh O'nell Remix) (04:39)
- 03. Max Denoise, Joanna Angelina - Come Back Home (Solar Sound's Afterglow Mix) (04:19)
- 04. Rayan Myers, Iriser - Why (Max Denoise Remix) (04:05)(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 00:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE40ADC279B4A85F78FC05D1661FEE821644D841
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726545   (108715) от 29.05.2024
-
-Джон Максвелл | 17 качеств командного игрока (2024) [MP3, Василий Канделаки]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_108715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Максвелл, признанный во всем мире эксперт в области лидерства, проводит тщательный анализ свойств личности, которые позволяют человеку стать хорошим командным игроком. Приведенное им описание, проиллюстрированное множеством примеров, изложено простым и понятным языком и применимо везде: дома, на работе или спортивной площадке, в церкви.Жанр: БизнесИздательство: ЛитРес: чтецПродолжительность: 03:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B11BD1A39CF4574FDEB987ACF0420DDF1320BE
 ```
 
 

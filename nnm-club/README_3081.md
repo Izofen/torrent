@@ -1,3 +1,192 @@
+###  Публикация: 474950   (97910) от 29.03.2012
+
+Мишель Лебрюн | Смерть молчит [2007] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франсуа Малле ревнует свою жену к своему боссу и замышляет его убийство. А совершив задуманное, понимает, что убил кого-то другого, совершенно ему незнакомого. "Что я наделал? Это невероятно - я был способен убить человека? И вдобавок ещё ошибся! Убил кого-то, кого в жизни не видел, и только потому, что тот был одет в плащ из верблюжьей шерсти? Человека, который мог быть отцом семейства, который... Что за идиотизм! Не остается ничего, кроме как..."2007Жанр: Детектив
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E3BA100261231C136874541A70289EB4A2FC5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474305   (97911) от 29.03.2012
+
+Tort - Tort (2012) [WavPack|Lossless]<Sludge Metal/Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valhalla (6:15)
+02. Cannibals Of Ma'arrat (6:09)
+03. Gnosis Of The Dead (13:33)
+04. Fire Rose Vampira (3:58)
+05. Earl Estruch (11:23)Жанр: Sludge Metal/Thrash MetalПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475223   (97915) от 29.03.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (30.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5EE06918A46443E7DE257A548113CE252D0224B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474797   (97916) от 29.03.2012
+
+[Wallpapers] Nature HD Wallpapers Pack 3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97916.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature HD Wallpapers Pack 3 
+Название:  Nature HD Wallpapers Pack 3 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 4599х2861
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8830FFDDCEA22B4F489C4AADB7652AA333E21ADF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475143   (97917) от 29.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 30
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97917.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 30 
+Название:  Desktop Wallpapers Pack 30 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE0B9904BC305BF97645B189D441EFEB820999F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471986   (97920) от 29.03.2012
+
+Game Over - NESperado (2006) [MP3|256 кб/с]<Experimental/Nintendo Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97920.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Flying High through the Skull's Eye
+2. Siege at Monsteropolis
+3. Hyrule's Angel (The Sleeping Beauty)
+4. Transylvanian Temptation
+5. Addicted to Vengeance
+6. For Those About to climb2006Жанр: Experimental/Nintendo MetalПродолжительность: 00:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6CA2BBE9579C8FCB6EE9ED79F753F4989E53484
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474799   (97921) от 29.03.2012
+
+[Wallpapers] Nature HD Wallpapers Pack 4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97921.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature HD Wallpapers Pack 4 
+Название:  Nature HD Wallpapers Pack 4 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 4288х2848
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C21FC1BCBD621712645A6DAB6DB3B1476ECD9BA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 475227   (97924) от 29.03.2012
 
 [Wallpapers] Best HD Wallpapers Pack (30.03.12)
@@ -521,196 +710,6 @@ Rizon - Masquerade (2012) [WavPack|Lossless]<Heavy Metal/Power Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475170   (97967) от 29.03.2012
-
-VA - L.O.V.E. Vol. 5 (2012) [MP3|320 kbps]<Chillout | Lounge>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB - Believe In Me (Airplay Mix)
-02. DJ Shah featuring Aruna - Now Or Never (acoustic Version)
-03. Faib - Out Of Space
-04. Idenline - Hearts Lullaby
-05. Poets of the Fall - Where Do We Draw the Line
-06. Roberto Sol - One Future (Chill Mix)
-07. Blue In Green - Rainy Streets (Original Mix)
-08. Simon Le Grec - We Will Be Free
-09. Fenena Mijas (feat. Sandrina Middleton) - All I've Got (Hotel Balearic Mix)
-10. 702 - You Don't Know (ENiGMA Dubz Mix)(   Читать дальше...   )2012Жанр: Chillout | LoungeПродолжительность: 04:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9440095099ADB9FD5E323FFC6F9CF667650C99B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474971   (97968) от 29.03.2012
-
-VA - Весенняя Дискотека Non-Stop (2012) [MP3|192-256 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97968.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dj Boyko & Katy Queen - Out Of My Mind (Radio Mix) (3:24)
-2. DJ Цветкоff & Оля Милакса - Белая ночь (Dj Amor remix) (5:51)
-3. Sebastian Brandt - Ashes (8:29)
-4. Armin van Buuren feat. Jessie Morgan - Love Too Hard (Ron Hagen & Al-Exander remix) (7:19)
-5. Maria Maria - Ты Обо Мне Не Вспоминай (Erikbsk Remix) (3:23)
-6. Арина И Размер Project - Делаю Шаг (Extended Version) (6:15)
-7. MaXimA - Так тихо (Fidel Wicked radio edit) (2:58)
-8. Klaas - Changes (Radio Edit) (3:23)
-9. DJ Haipa & Rafaelle feat. Aelyn - Мне бы (Alex Menco club mix) (5:34)
-10. Pixie Lott feat. Pusha T - What Do You Take Me For (Bimbo Jones Radio Edit) (3:08)2012Жанр: PopПродолжительность: 07:32:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA163CF1169D85880B02B7029B60AE6F0319951
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475224   (97969) от 29.03.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (30.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E215071817712B9356EE36D50AA8EBCBEC8ECCE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474782   (97971) от 29.03.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 13
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97971.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers Pack 13 
-Название:  Girls Desktop Wallpapers Pack 13 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1900х1200 - 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49CD339A5A47823560372EAC900492AEEF1447F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475129   (97972) от 29.03.2012
-
-Захват / Угон / Carjacked (2011) [1080p] BDRemux
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_97972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодую женщину с ребёнком в её же собственной машине берёт в заложницы грабитель банка.Жанр: триллерРежиссер: Джон БонитоВ ролях: Мария Белло, Стивен Дорфф, Джоанна Кэссиди, Катрин Дент, Гэри Граббс, Кристен Керр, Тим Гриффин, Дэвид Дженсен, Молли МакКуин, Анджелл БруксПеревод: многоголосый закадровыйПродолжительность: 01:29:26
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474726   (97974) от 29.03.2012
-
-[EN] В бездну / Into the Abyss (2011) BDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм Вернера Херцога о заключенных, ожидающих смертной казни.Жанр: ДокументальныйРежиссер: Вернер ХерцогАктеры: Вернер ХерцогПеревод: ОтсутствуетПродолжительность: 01:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1705D7FE271DA7CF12B501515A4F9CC63CA2791A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475234   (97980) от 29.03.2012
-
-[Wallpapers] Sexy Women Wallpaper (30.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_97980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A78DFDD898D41A98E74FDEFA9E22D58ADEE1A26
 ```
 
 

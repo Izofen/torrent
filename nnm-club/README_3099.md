@@ -1,3 +1,196 @@
+###  Публикация: 477531   (98673) от 05.04.2012
+
+VA - Master Plan 2011 (2012) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neelix - Call Me 08:05
+02. Vertical Mode - Deep Vibration 07:17
+03. Generic - Big Bad 07:06
+04. Durs - Refresh 06:32
+05. Pick - Darkness 07:49
+06. Twisted Reaction - New Generation Of Science 07:20
+07. Aqualize - Land of 2 Suns (Inner State remix) 07:25
+08. E-Clip - Chandra (Red And Blue remix) 06:48
+09. Mirikina - Revolution (Etienne Am remix) 07:57
+10. Cabal - Back Breaker 07:15(   Читать дальше...   )2012Жанр: Psychedelic / Full On, Psy-ProgПродолжительность: 03:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445554B12A6938B3B1A0C8F08777544942B7DE2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478746   (98674) от 05.04.2012
+
+[Wallpapers] Nature Pictures №37
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98674.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №37
+Название: Nature Pictures №37
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0333DC5491E6BBD0E6E1993541A7EA3A466320
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478271   (98675) от 05.04.2012
+
+[Wallpapers] HD Wallpapers №2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98675.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers №2
+Название: HD Wallpapers №2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640FFE617127CCA5E7252E7BB64BF837D9CA41BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478743   (98676) от 05.04.2012
+
+[Wallpapers] HD Wallpapers №6
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98676.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers №6
+Название: HD Wallpapers №6
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BBE441D85932FCE8BC08FEB9F04A3682A5C927B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478707   (98677) от 05.04.2012
+
+[Wallpapers] Best HD Wallpapers Pack (06.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9EA97D0100D54E609057980959D5B0F122F5F5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478668   (98678) от 05.04.2012
+
+[Wallpapers] Best HD Wallpapers Pack (05.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D203FFAC266941C94B84A4964A9424433F1F33AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478744   (98680) от 05.04.2012
+
+[Wallpapers] Desktop Wallpapers №3
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98680.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №3
+Название: Desktop Wallpapers №3
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1620x1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6641E1CE65B50E0800D2A823F3D0FFD6DD65289
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478267   (98681) от 05.04.2012
 
 VA - Best-Of-Ka Высшая Лига 50x50 №45 (2012) [MP3|256 кб/с]<Pop>
@@ -554,208 +747,6 @@ magnet:?xt=urn:btih:AB8CE0831575645A2EB32A20C765072E33C79573
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB52E88ED8A32983BF5449BA8D9E540E113BBB5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478083   (98705) от 05.04.2012
-
-Psycraft - Art Of Work (2008) [FLAC|Lossless]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98705.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. New Dance 06:10
- 2. Memories Inside (with Dali) 07:42
- 3. Take Control (Remake) (with X-NoiZe) 06:50
- 4. Follow The Line (feat. Michele Adamson) 06:12
- 5. Electromance (feat. Mikela) 04:05
- 6. Frozen (feat. Efrat Darky) 03:46
- 7. Electromance (Club Mix) (Bonus Track) 06:542008Жанр: Psychedelic / ProgressiveПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478588   (98706) от 05.04.2012
-
-[Wallpapers] Nature HD Wallpapers Pack 13
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98706.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature HD Wallpapers Pack 13 
-Название:  Nature HD Wallpapers Pack 13 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 4320х3240
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B421A45D44DA87FFF31AC9FAC1F3D4A537D41E8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478364   (98707) от 05.04.2012
-
-VA - Made In The 90s (2012) [MP3|224-283 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Des'ree - Life
-02. Lisa Stansfield - Never, Never Gonna Give You Up
-03. Swv - Right Herehuman Nature
-04. Backstreet Boys - Everybody (Backstreet's Back)
-05. Britney Spears - ...Baby One More Time
-06. Anastacia - I'm Outta Love (Radio Edit)
-07. Jimmy Cliff - Reggae Night
-08. Dr. Alban - It's My Life (Radio Edit)
-09. Alcazar - Crying at the Discoteque (Radio Edit)
-10. Kylie Minogue - Confide in Me (Radio Mix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 02:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E539371B52F56136F879BD997DAD657753BFA10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478582   (98709) от 05.04.2012
-
-Ночная посылка / Overnight Delivery (1998) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_98709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто из нас не совершал опрометчивые поступки, будучи всецело поглощенным жгучим чувством ревности? Услышав по телефону, что его девушка «ушла гулять с Рике-ром», Уайт первым делом напился. А так как она учится в другом колледже, он по совету случайной знакомой отправил прощальное письмо.
-
-В конверт срочной доставки он также вложил использованный презерватив и пару соответствующих фотографий. Утреннее сообщение на автоответчике гласило, что «Рикер» — это собака. Попробуй догони теперь эту ночную посылку.Жанр: Комедия, МелодрамаРежиссер: Джейсон БлумАктеры: Пол Радд , Кристин Тейлор , Риз Уизерспун, Сара Силверман , Баффи Седлачек , Ричард Коуди , Гари Вульф , Карл Энтони Пэйн II , Тим Макнифф , Гэйл ПлевацкиПеревод: Двуголосый закадровыйЯзык субтитров: русский, английскийПродолжительность: 01:27:57
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478208   (98711) от 05.04.2012
-
-Каникулы в Мексике - 2. Ночь на вилле. Выпуск №23 (2012.04.04) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98711.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAAE2DB0CBF08D75B9A7C894073A3E1CE98927B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478221   (98716) от 05.04.2012
-
-VA - Русский Best от DFM (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Горячий Шоколад - Без Ума (Dj Vengerov Remix)
-02. Сергей Жуков - Девочка Из Прошлого (Alex Valenso Remix)
-03. Пицца - Надя (Cj Slick Gaspromo Remix)
-04. Dj Gold Sky Feat. Ассорти - Неземное Притяжение
-05. Юрий Шатунов - Розовый Вечер (Ural Djs Dance Mix Rework)
-06. Инфинити - Ну И Пусть (Radio Mix)
-07. Шахзода Feat. Dj Kirill Clash - Нереально Без Тебя
-08. Стас Пьеха - Мы Расстались С Тобой (Dj Kirill Clash Radio Remix)
-09. Градусы - Голая (Andrey S.P.L.A.S.H. Radio Remix)
-10. Dj Vengerov Pres. Dj Dwords Feat. Артур Пирожков - Пэрэдайз (Full Version)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B26F91EE15CBAACF4B47D5FEF0D423BA0108369D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478556   (98717) от 05.04.2012
-
-[Wallpapers] Full HD Wallpapers Pack 7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_98717.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Full HD Wallpapers Pack 7 
-Название:  Full HD Wallpapers Pack 7 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E08D4EF4D9B3705377841953B79C325DFE977D2
 ```
 
 

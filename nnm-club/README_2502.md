@@ -1,3 +1,51 @@
+###  Публикация: 1803705   (65800) от 25.06.2025
+
+Warhammer 40.000: Dawn of War - Soulstorm (2008) [Ru] (1.2.0) Repack EXROW
+
+>>Win Старые Игры
+>>Strategy Tactical (RTS/TBS/Wargame)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Warhammer 40,000: Dawn of War - Soulstorm - самостоятельное дополнение для популярной космической стратегии Warhammer 40,000: Dawn of War. Вместе с дополнением вам откроются две новые расы: Сестры Битвы и Темные Эльдары, а общее количество доступных армий увеличиться до девяти. Теперь вы сможете полностью окунуться в увлекательные сражения межпланетного масштаба (   Читать дальше...   )Тип издания: RepackРазработчик: Relic EntertainmentЖанр: Стратегии в реальном времениЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF4CA4D223ACBE10A6DFB1E38676340BE599A9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803845   (65801) от 25.06.2025
+
+MobiOffice: Word, Sheets, PDF Premium v15.5.56413 Extra Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65801.jpg" />
+</div>
+
+
+###  Подробнее
+
+MobiOffice - это полнофункциональный офисный пакет для Android. Данное приложение позволит Вам создавать, редактировать и просматривать файлы в формате MS Word и Excel, а также просматривать документы PDF и презентации PowerPoint. При помощи MobiOffice Вы сможете просмотреть вложения к письмам в таком же виде, как и на ПК. Или даже создать собственный текстовый документ (   Читать дальше...   )Тип издания: Premium / Extra ModРелиз состоялся: 25.06.2025Разработчик: MobiSystemsПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF92C17D856DD727952DC707B81B7CF7BAA027C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803658   (65802) от 25.06.2025
 
 Очередное достижение: 1000 релизов от kulemin
@@ -612,60 +660,6 @@ Yungblud - Idols (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90938923AA0284C8043EA6692473ABD820614456
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803683   (65826) от 24.06.2025
-
-Ds Dream Band Stillminati - Electro Swing Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hit the road (4:00)
-02.  All Night (4:00)
-03.  Cinnamon Swing (2:18)
-04.  Honey has spice (4:00)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6341D511EC4B3D21C02BBF48BDFFF540E500D46F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803701   (65827) от 24.06.2025
-
-VA - Winter Anthems 2016 (2016) CD, Compilation, Mixed [FLAC|Lossless|tracks + .cue] <Electronic, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheat Codes X Kris Kross Amsterdam / Sex    [0:04:16.22]
-02. Sigala Feat. John Newman & Nile Rodgers / Give Me Your Love    [0:03:11.73]
-03. Sia Feat. Sean Pau / Cheap Thrills (Le Youth Remix)    [0:02:42.06]
-04. Imany / Don't Be So Shy (Filatov & Karas Remix)wn Title    [0:03:06.00](   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CDA0A4B19EB6A28705BE90EBDC5939A610D00F0
 ```
 
 

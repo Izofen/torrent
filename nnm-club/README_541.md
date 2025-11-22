@@ -1,3 +1,27 @@
+###  Публикация: 1463073   (14374) от 17.06.2025
+
+Diablo 2 Resurrected / Diablo 2 Remaster (2021) [Ru/Multi] (1.6.84219) Repack West4it
+
+>>3
+>>47
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Diablo 2 Resurrected - это переиздание Diablo 2 для современных платформ, созданное с применением современного графического движка. Resurrected предлагает игрокам контент как из оригинальной игры, так и из аддона Lord of Destruction, обновленную графику и анимации, возможность переключаться между современным и "классическим" видом игры, а также кроссплеем (   Читать дальше...   )Тип издания: RepackРазработчик: Blizzard Entertainment, Vicarious VisionsЖанр: RPG, Quest, 3D, ActionЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2213CFB1A862810D94AE8A6F69F9682ABDFA679E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 871950   (14375) от 17.06.2025
 
 Lynda.com | CSS с LESS и SASS (2012) PCRec
@@ -610,33 +634,6 @@ The Blue Stones - METRO (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFFC9E5DFFC23A1526E7D651A0A4A6A8A0D6B8EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802365   (14400) от 16.06.2025
-
-Kris Cayden - Stranger Than Fiction (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dubstep>
-
->>Electronic
->>Dubstep, Future Garage, Bass Music, UK Garage (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Paranormal Summer [1:07]
-02 - Love Is On Fire [4:39]
-03 - Wake [3:59]
-04 - Ghost [3:39](   Читать дальше...   )Жанр: Electronic, DubstepПродолжительность: 01:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD03E61DD9C470987F30293922A9B964E82A1221
 ```
 
 

@@ -242,6 +242,100 @@ magnet:?xt=urn:btih:27C638445EF08A0A7FDA009E34EA872B95260198
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593563   (134804) от 24.12.2012
+
+Bob James & Hilary James - Christmas Eyes (2008) [FLAC|Lossless]<Vocal Jazz, Smooth Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christmas Eyes [03:58]
+02. Winter Wonderland [03:34]
+03. Bells Of Paradise [03:22]
+04. Silent Night [02:57]
+05. Mercy [05:37]
+06. A Star Was His Nightlight [03:56]
+07. On This Day (Personent Hodie) [04:50]
+08. The Little Drummer Boy [02:59]
+09. Ye Shepherds [03:22]
+10. Ballulalow [04:14](   Читать дальше...   )Жанр: Vocal Jazz, Smooth Jazz, ChristmasПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593938   (134815) от 24.12.2012
+
+Freddie & The Screamers - Death Letter Blues (1992) [WavPack|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tough As Nails [04:07]
+02. The Eyes Don't Lie [03:27]
+03. I Got Wise [03:15]
+04. Check Out Her Mama [03:16]
+05. Love And Tenderness [06:33]
+06. Death Letter Blues [05:49]
+07. I Can't Get Enough [03:39]
+08. I Get My Fun Where I Find It [03:18]
+09. Life Is Hard [06:16]
+10. I Like Women [03:33]Жанр: BluesПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593385   (134828) от 24.12.2012
+
+Sandra Hall - 2 альбома (1997, 2001) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+
+1997 - One Drop Will Do You
+
+2001 - Miss Red Riding HoodЖанр: BluesПродолжительность: 01:28:46
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593498   (134862) от 24.12.2012
 
 Robin Rogers - 2 альбома (2008, 2010) [MP3|320 кб/с]<Blues>
@@ -346,6 +440,73 @@ VA - Sunday Morning Happy Jazz Vibes Playlist (2023) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6761AB6B02260F42355D9B7A890382BB5F0F29E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584034   (135201) от 23.12.2012
+
+Fourplay - 10 Альбомов (1991-2012) [FLAC|Lossless]<Smooth Jazz, Crossover Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Квартет всех звёзд Fourplay образовался в 1991 году, после совместного участия музыкантов в записи альбома Боба Джеймса Grand Piano Canyon, и с тех пор всегда находился на вершине джазовых чатов, заработав репутацию “современной джазовой супергруппы из Америки”.
+На текущий момент в активе группы тринадцать студийных альбомов - двенадцать титульных и один сборник.Список альбомов:
+Fourplay (1991)
+Between The Sheets (1993)
+Elixir (1995)
+The Best Of Fourplay (1997)
+4 (1998)
+Snowbound (1999)
+Heartfelt (2002)
+Journey (2004)
+X (2006)(   Читать дальше...   )Жанр: Smooth Jazz, Crossover Jazz, Jazz-PopПродолжительность: 12:46:27
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593100   (135217) от 23.12.2012
+
+Shelly - Snow Rose eXcel (2002) [FLAC|Lossless]<Jazz, Audiophile Female Voices>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Swear  [04:24]
+02. Every Breath You Take  [03:57]
+03. I'd Like to Teach the World to Sing  [02:56]
+04. Reality  [05:10]
+05. Especially for You  [04:03]
+06. Have I Told You Lately  [04:54]
+07. Memory  [04:42]
+08. Eternal Flame  [03:22]
+09. Somewhere Out There  [04:32]
+10. All I Ask of You  [04:25](   Читать дальше...   )Жанр: Jazz, Audiophile Female VoicesФормат: XRCD2Продолжительность: 01:00:05
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -562,147 +723,6 @@ Jorg (Jörg) Danielsen - Foolin’ Around (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B69FDE73416C8C77040A96F08E2DAF4CB3131EC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679688   (135357) от 26.11.2023
-
-Pat Martino - Consciousness (1974) 1999, Sony Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Impressions [4:38]
-02. Consciousness [11:56]
-03. Passata on Guitar [2:52]
-04. Along Came Betty [5:24](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369AE7301F921E6A0A277A5E764B68003B48B713
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590183   (136397) от 19.12.2012
-
-Gary Moore - All The Best (2012) [MP3|320 кб/с]<Blues-Rock, Hard Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out in the Fields (4:18)
-02. Still Got The Blues (single version) (4:11)
-03. Wishing Well (4:07)
-04. Woke Up This Morning (3:51)
-05. Separate Ways (4:54)
-06. Walking By Myself (2:57)
-07. Empty Rooms (Short Version) (4:17)
-08. Since I Met You Baby (2:52)
-09. I Loved Another Woman (3:08)
-10. Wild Frontier (4:17)(   Читать дальше...   )Жанр: Blues-Rock, Hard RockПродолжительность: 02:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC93CCC0B220CAA08B3247DC656DD553944B304
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825325   (136704) от 16.10.2025
-
-Connie Francis - The Italian Collection: Vol. 1 & 2 (1997) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Pop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jealous Of You (Tango Della Gelosia) [00:02:26]
-02. Mama (Single Version) [00:03:57]
-03. Chitarra Romana [00:03:22]
-04. Terra Straniera [00:03:07](   Читать дальше...   )Жанр: Jazz-Pop, SwingПродолжительность: 01:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:182ED5F97AEE5B79C98C219206953990E3965D5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825055   (136838) от 16.10.2025
-
-Renato Rocchinotti - Black Shadows in the Dark (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Two of Us (4:08)
-02.  Place to Be (4:40)
-03.  Frozen Champagne (5:05)
-04.  Night Dreams (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:318910858839D1F8D66F5D232D230BC9EBE134D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825045   (136839) от 16.10.2025
-
-Mississippi Heat - Don't Look Back (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_136839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  You Ain't The Only One (3:09)
-02.  Third Wheel (3:28)
-03.  Quarter To Three (3:42)
-04.  Stepped Out Of Line (4:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A92CD575F75AF320620D08AA1CA7702B273D78E
 ```
 
 

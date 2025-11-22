@@ -1,3 +1,55 @@
+###  Публикация: 1789133   (68400) от 02.04.2025
+
+Шрифты - Maxim Raikov - Behance - AROUNDER - FREE DISPLAY FONT - 117044293 [TTF, OTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт c кириллицей.
+Разработчик: Maxim Raikov
+Материал раздаётся с официальной документацией.
+В добавленных файлах "Aronder By He Rez AD" от "He Rez AD" расширенная кириллица (Украинская, Белорусская, Молдавская), им же добавлены файлы форматов WOFF, WOFF2.Формат: TTF, OTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34038087D159921C3C4DE4E81EB7B24D36BE1BCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789106   (68401) от 02.04.2025
+
+Шрифты - Максим Мавряшин - Nuqun [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей.
+Разработчик: Максим МавряшинФормат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FD6996B0DA0F1641B859C5C1020DBB72FD5673
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789067   (68402) от 02.04.2025
 
 Растровый клипарт - PhotoWhoa - 12 Free Water Overlays Bundle [PNG]
@@ -621,58 +673,6 @@ magnet:?xt=urn:btih:7063D32F468D38A841CD05CA764B2A0BD25E485A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45955894A27025F90F90F8CB8C52072223272DA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788953   (68426) от 01.04.2025
-
-Blut Reaktor - Plastic Bitch (2025) [MP3|320 Kbps] <Dark Electro, Electro-Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blut Reaktor; Cruxx - Dead Inside [00:03:50]
-02 - Blut Reaktor; Cruxx - Demise [00:03:34]
-03 - Blut Reaktor; Cruxx - Fear Campaign [00:03:50]
-04 - Blut Reaktor; Those Things Silver - Femme Fatale [00:03:50](   Читать дальше...   )Жанр: Dark Electro, Electro-IndustrialПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677C4C5BCD58933236C54FF8AEBCF3AD8CD89542
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788759   (68427) от 01.04.2025
-
-VA - 25 Years Of Anjuna Mixed By Nourey (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_68427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 (01:08:27)
-01. Nourey – Intro (25 Years Of Anjunabeats)Жанр: Trance, Progressive, ElectronicПродолжительность: 03:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517831B7439EAE7965AD24335D6D9CFBC8E84FAC
 ```
 
 

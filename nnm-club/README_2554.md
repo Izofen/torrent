@@ -1,3 +1,54 @@
+###  Публикация: 1794805   (67152) от 03.05.2025
+
+Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Dusty Roses Flowers Watercolor [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с розами.Формат: PNGРазрешение файлов: 4000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520D55DAD1A65D1D7B648617C5F590F7470A5E7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795182   (67153) от 03.05.2025
+
+VA - Alternative Route (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rochus Rocky Hobi - Where I Belong (3:43)
+02.  Simon Zawila - Further & Further (2:46)
+03.  Clarissa Höbel - Take My Hand (2:59)
+04.  Thomas Kehl It's Me - It's so Nice (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA1CD59EFA7530BD89F367190ADA83DEDF92246
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795293   (67154) от 03.05.2025
 
 Военная тайна с Игорем Прокопенко (03.05.2025) WEBRip [H.264]
@@ -594,57 +645,6 @@ magnet:?xt=urn:btih:3AEF99241314341D3C087B30631E62FB801EFC9A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A20F869EF6A94D88826FD125B577E6406FB8DE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795241   (67178) от 03.05.2025
-
-Формула 1. Сезон 2025. Этап 6. Гран-при Майами. Спринт-квалификация (02.05.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67178.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 мая 2025, пятница. 23:30 МСК. Этап 6 США, Гран-при Майами. Спринт-квалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E497902489EBE06195F0A87501CC731BD31BDD5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795185   (67179) от 03.05.2025
-
-VA - Jus' Blues 25th Anniversary Legends Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_67179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Diunna Greenleaf - Sunny Day Friends  (3:37)
-02.  Jimmy Burns - Stranded in Clarksdale  (4:02)
-03.  Zakiya Hooker - Bluesman's Journey  (3:52)
-04.  Benny Turner - Who Sang It First  (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6D4A09ABC7636FB0FDAF698B725DA861468B7F
 ```
 
 

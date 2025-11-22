@@ -1,3 +1,186 @@
+###  Публикация: 1723952   (109385) от 17.05.2024
+
+VA - Danse d'ete 2024: la meilleure musique Dance pour votre ete par Hoop Records (2024) [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Titanz - Like An Echo (2:11)
+02. ASKAIØ - Paradise (2:44)
+03. Kin - Can't Help Myself (2:47)
+04. Jineo - Not Coming Home (2:41)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:19:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EDA3A4B6D8E6389C7828CE48F288EE0170B5A77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723931   (109386) от 17.05.2024
+
+Soul Browser 1.4.20 Mod by derrin [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soul Browser - добротный браузер, что несмотря на своё минималистичное визуальное исполнение весьма функционален. И ко всему прочему прилагает максимум усилий для того, чтобы пользователи не сталкивались с различными трудностями и ненужными им факторами. Автоматическая борьба с рекламой, встроенная качалка, видеоплеер, тонкая настройка управления (есть поддержка (   Читать дальше...   )Тип издания: ModРелиз состоялся: 17.05.2024Разработчик: SoulSoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD8AD3C257588FA462FFE34714187E5D66221DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723786   (109387) от 17.05.2024
+
+Niel De One - People Are People (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109387.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Niel De One - People Are People (Dub Mix) [4:00]
+2. Niel De One - People Are People (Old Bass System Dub Mix) [4:04]
+3. Niel De One - People Are People (Deepbass Dub Mix) [4:15]Жанр: House, Speed GarageПродолжительность: 00:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A283DBC1622EAF92D0525579AE32CE20D46B8BE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723847   (109388) от 17.05.2024
+
+НХЛ. Кубок Стэнли 2024 (Плей офф. 2-й раунд. 6-й матч) Нью-Йорк Рейнджерс - Каролина Харрикейнз (16.05.2024) WEB-DLRip [H.264/1080p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109388.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 мая 2024, пятница. 02:00 МСК. 1/2 финала - Восток. 6-й матч. Стадион: Пи-Эн-Си-Арена (Роли, США), 19 124 зрителя (100% при вместимости 19 041)
+Главный судья: Франсис Шаррон (Оттава, Канада); Главный судья: Стив Козари (Пентиктон, Канада); Линейный: Райан Дейзи (Мансфилд, США); Линейный: Девин Берг (Китченер, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8ADC9D358057A34F57422D3B3ED6AB39FE3A371
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723856   (109389) от 17.05.2024
+
+Hiroyuki Kubota - launch vehicle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valentine Drive (5:36)
+02. Close your eyes (5:55)
+03. Garakuta to Alice (5:06)
+04. 5AM (7:11)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3791E7EA23C50E982C9338F12D0BD9094388BAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723911   (109390) от 17.05.2024
+
+Bat - Under The Crooked Claw (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Una Torcia Illumina Il Cielo
+02. Vampyre Lore
+03. Rite For Exorcism
+04. Streetbanger(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E1FE26637F71D7139BD674309F91B7A79FFA2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723778   (109391) от 17.05.2024
+
+VA - Metal Massacre 04 (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109391.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Sacred Blade - The Alien
+A2 - Death Dealer - Cross My Way
+A3 - Trouble - The Last Judgement
+A4 - Sceptre - Taken By Force(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C34EB4B8465C25CC130A4CDA22EC5CC6AAC9B1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723772   (109392) от 17.05.2024
 
 Elvellon - Ascending in Synergy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal>
@@ -494,195 +677,6 @@ Sun Moon Holy Cult - Sun Moon Holy Cult (2024) [FLAC|Lossless|WEB-DL|tracks] <st
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A393BC93A4E40B9228A9175014AB147E630D707
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723518   (109411) от 16.05.2024
-
-Zelenaya - Folk Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <doom metal, fusion, folk metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Majka budi Radu [00:03:20]
-02. (reprise) [00:00:37]
-03. Oy Letilo Kupailo [00:03:51]
-04. Urodyla Mene Mate [00:06:15](   Читать дальше...   )Жанр: doom metal, fusion, folk metalПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95AACB1D62E05A5076982E062442E8D30C9B270A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723367   (109412) от 16.05.2024
-
-Ricky Ford - Saxotic Stomp (1988) Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saxotic Stomp [3:27]
-02. For Mary Lou [5:31]
-03. Musradres [5:21]
-04. Major Love [6:32](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52145172E85AC936FF9992C17107B68501CE844C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723577   (109413) от 16.05.2024
-
-Cardiac Arrest - Cadaverous Presence (2008) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Inevitable
-02. Cadaverous Presence
-03. You Beg For Mercy... I Beg For More
-04. The Process Of Self-Mutilation(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FED00AC9CC2B7260FFC9B4239B7635719ECE3D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723372   (109414) от 16.05.2024
-
-Wycliffe Gordon - Somebody New (2015) Blues Back Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Herkie Jerkie [6:01]
-02. I Got Rhythm [3:37]
-03. What You Dealin' With [6:03]
-04. Somebody New [4:16](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0619951B6BA4C923866084F31B28930C8774E16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723452   (109415) от 16.05.2024
-
-Cardiac Arrest - Morgue Mutilations (2006) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I See Red
-02. Into The Woodchipper
-03. Forbidden Passage
-04. Carnage Your Fate(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F17EE5DE910303595C0D4B03B081B77B9247AFF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723205   (109416) от 16.05.2024
-
-VA - Silent Shore Trance - Essential Classics Vol. 4 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miroslav Vrlik - Still In Love (Original Mix) [7:39]
-02. Manuel Rocca - Open Sea (Running Man Remix) [8:56]
-03. Dave Deen - Killer Worms (Original Mix) [8:39]
-04. Norland - Cloudwalking (Original Mix) [7:04](   Читать дальше...   )Жанр: TranceПродолжительность: 01:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95F482EB6A5F4F3C6F3A8021C26305167F3957C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723615   (109417) от 16.05.2024
-
-Seb Zito - Dialled In LP (2024) [FLAC|Lossless|WEB-DL|tracks] <deep house, progressive house, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_109417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Again (Extended Mix) [00:05:53]
-02. Take It Easy (Extended Mix) [00:05:12]
-03. Magic Arp (Extended Mix) [00:06:29]
-04. Who Created House (Extended Mix) [00:07:41](   Читать дальше...   )Жанр: deep house, progressive house, DanceПродолжительность: 2 CD, 01:29:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3445CED25C6A50E8BADC3AB31B7089FD7C3112E3
 ```
 
 

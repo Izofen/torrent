@@ -1,3 +1,186 @@
+###  Публикация: 1708496   (112999) от 21.03.2024
+
+Samson - Head On (1980) Reissue, 2004, Earmark [FLAC|24/96|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_112999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Times
+02. Take It Like A Man
+03. Vice Versa
+04. Manwatcher(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A064CE7859AD6D760B950A268A1699C2EA4C3DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708582   (113000) от 21.03.2024
+
+Samson - Shock Tactics (1981) Reissue, 1989, Repertoire Records [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113000.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Riding With The Angels
+A2 Earth Mother
+A3 Nice Girl
+A4 Blood Lust(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F05F6041EB18C64CD76CD47F8D8CCAC34CBB837
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708625   (113001) от 21.03.2024
+
+Архелая Романова | Подвал для моего сердца (2023) [MP3, Елена Трошкина]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алиса отличается любовью к старомодным платьям и книгам, работает в библиотеке и не проходит мимо людей, нуждающихся в помощи. Когда ей в руки попадает загадочная записка, в которой рассказывается о похищении, она ввязывается в поиски пропавшей, не подозревая, что это угрожает ее жизни. Но, к счастью для Алисы, у нее есть аж три помощника: безбашенная школьная подруга (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 05:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44FDC2F6DAC0A94C1216C00F55C937A7A930E100
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708608   (113002) от 21.03.2024
+
+Схоластика - На Абордаж (2013) Reissue, 2018, Narcoleptica Prod; More Hate Productions; United By Chaos [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На абордаж 03:26
+02. Самоволка 05:23
+03. Рокенрол, В.М. 04:20
+04. Я не устал 04:38(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FE918F54092368419075F0BAE1FC992E427C29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708553   (113003) от 21.03.2024
+
+Марина Серова | Частный детектив Татьяна Иванова. Тридцать минут под прицелом (2023) [MP3, Юлия Живило]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тридцать минут под прицелом Частного детектива Татьяну Иванову приглашает к себе важный чиновник, у которого совсем недавно зверски убили молодую жену. Что ж, таких дел Таня расследовала не один десяток. Вот только отношение к ней клиента весьма своеобразно: сыщице за минутное опоздание на встречу достался нагоняй, да и беседа прошла как-то скомкано – деловой человек (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 05:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:669B6445436C108629B53AF8E2056307BE017F01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708719   (113004) от 21.03.2024
+
+Cruzh - The Jungle Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jungle Revolution (3:55)
+02. Angel Dust (4:14)
+03. FL89 (4:09)
+04. Killing In The Name of Love (4:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7636DDC3AAC9B0604B41C7FB9AD7F57D5CB07B23
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708506   (113005) от 21.03.2024
+
+Misanthrope - ΑXΩ (Le Magistère De L'Abnégation) (2017) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Fabrique Du Fataliste
+02. Noyade Abyssale
+03. Une Cantilène Pour Célimène
+04. Mélissa Et Darvulia(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD9FE3FF0EA01EDB863D0E08AAAF1725B155EFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708593   (113006) от 21.03.2024
 
 Morta Skuld - Creation Undone (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
@@ -488,195 +671,6 @@ magnet:?xt=urn:btih:24D6018266A739AD92F4EA79DE2E2FE8E84E8243
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9ED4BFA37253198F684F748B3B362E7D01287A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708710   (113025) от 21.03.2024
-
-Neon Rider - Destination Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destination unknown (0:51)
-02. Neon rider (5:04)
-03. Feel the magic (5:22)
-04. Unleash your fire (4:32)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B005292263ADDF6489D47FB132BFEEC322B7CCDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708727   (113026) от 21.03.2024
-
-T Bear - The Way Of The World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way Of The World (4:17)
-02. Sign On The Dotted Line (3:36)
-03. Before The Fall (5:02)
-04. Jewel (4:46)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E0B631D25234DFB924CEBCBDEFA67A31284830D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708682   (113027) от 21.03.2024
-
-Gary Clark Jr. - JPEG Raw (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Soul, R&B>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maktub (4:13)
-02. JPEG RAW (4:26)
-03. Don't Start (feat. Valerie June) (3:04)
-04. This Is Who We Are (feat. Naala) (5:32)(   Читать дальше...   )Жанр: Blues, Soul, R&BПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F125B89A3DCA89CFFFF3EFDBCE2B9F501B16039
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708615   (113028) от 21.03.2024
-
-Trust X - Перевёрнутые Сны (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Очнись ото сна 04:45
-02. Верни свою жизнь 04:37
-03. Перевёрнутые сны 07:01
-04. Мы ещё вернёмся 06:19(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6778DDEBCE4BE5049F2F590101F9CD368FE96A19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708656   (113029) от 21.03.2024
-
-Hammer King - König und Kaiser (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hailed By The Hammer (4:58)
-02. The Devil Will I Do (4:15)
-03. König und Kaiser (feat. The Tribune) (4:02)
-04. Future King (4:41)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B24800DD94E4E5E10066A00F0E1C02360A16DBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708584   (113030) от 21.03.2024
-
-Jimmy Synthetic - Heat Seeker (2024) [FLAC|Lossless|WEB-DL|tracks] <synthwave, newretrowave, retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air Supremacy [00:03:21]
-02. F14 Tomcat [00:04:31]
-03. Heat Seeker (feat. Jay Diggs) [00:05:08]
-04. Peak Performance [00:03:10](   Читать дальше...   )Жанр: synthwave, newretrowave, retrowaveПродолжительность: 00:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552BD8EF710458BB9684CDD8CFCEAA258927E150
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708572   (113031) от 21.03.2024
-
-Digimortal - Белое знамя (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_113031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Новый мир настанет [00:01:50]
-02. Пророк [00:03:40]
-03. Миражи [00:03:58]
-04. Новый человек [00:03:58](   Читать дальше...   )Жанр: Modern Metal, Industrial MetalПродолжительность: 01:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7318C999868ED24FCD614128E3F4E86A94181EE1
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1807404   (65150) от 19.07.2025
+
+Recorruptor - Sorrow Will Drown Us All (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Deathcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bathe in the Ashes of Heaven [00:01:46]
+02. Sorrow Will Drown Us All [00:04:26]
+03. Bearing the Befouled Spawn [00:04:39]
+04. Within the Vault [00:03:56](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDCEC224E6DA35F8A49BB41CDA82E6AD79A8A50D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807439   (65151) от 19.07.2025
+
+VA - Latin Jazz House Summer Mix (Poolside Cocktails & Sunset Grooves) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tito Valdez - Tumbe (Alessio Collina Hill Paradise Mix) (7:20)
+02.  Ana Flora - Mas Que Nada (4:16)
+03.  Café Safado - Māo Pra Cima (3:34)
+04.  Black & Brown - Cool Affair (Eric Kupper Remix) (7:36)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E2BE443A4A9F18C16BE2F561415787C4F43878
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807506   (65152) от 19.07.2025
 
 Лисса Мия Смит | Ревелль (2024) [MP3, Алиса Поздняк, Александр Степной]
@@ -623,57 +677,6 @@ magnet:?xt=urn:btih:DE0DAA377D28922F6E6BEE93943150636ABCAF8B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6D74B24E3E352BA31802C892145D6777278EDB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807442   (65176) от 19.07.2025
-
-VA - Nu Jazz Electronica (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tallulah Rose - Friends (4:16)
-02.  Alessandro Meroli - Running Errands (2:51)
-03.  Kolosso - Ghost  Dogs (3:41)
-04.  Joe Allotta - James Joint (1:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74133E024E2B1E729B91DC150BD55FBC79A9F582
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807579   (65177) от 19.07.2025
-
-Военная тайна с Игорем Прокопенко (19.07.2025) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65177.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94AF979E1F78AEF9C7124EB14CD1110C3EA8CB4E
 ```
 
 

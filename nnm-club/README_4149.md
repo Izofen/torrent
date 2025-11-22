@@ -1,3 +1,186 @@
+###  Публикация: 1684321   (127564) от 16.12.2023
+
+VA - Armin van Buuren - A State Of Trance 1151 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Nils Hoffmann & Kasbo feat. Vancouver Sleep Clinic - Running In A Dream
+02.	Hyperbits - Satisfaction
+03.	Andrew Rayel - Rescue Me (Den Kayo Remix)
+04.	AndyG - Infected(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26478145C2566786240BAA527CCA533933EBC2CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684500   (127565) от 16.12.2023
+
+VA - Interplay 2023 (Selected By Alexander Popov) - Extended Versions (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DaWTone - I Still Want More (Extended Mix) [4:14]
+02. ANASTASiiA - Swan (Extended Mix) [6:36]
+03. Alexander Popov & Fedo - Lost In Space (Extended Mix) [4:25]
+04. Alexander Popov & Chester Young & Whiteout - Overtaking (VIP Extended Mix) [3:56](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0761F6D6FD6C0B33E95AEFAB3EF2E9133D0A6DCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684714   (127566) от 16.12.2023
+
+Asia - Live at the Pabst Theatre, Milwaukee, Wi, USA, 23 April 2008 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Daylight (00:03:54)
+02 - Only Time Will Tell (00:05:03)
+03 - Wildest Dreams (00:05:50)
+04 - Never Again (00:05:12)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4434C58362B67A564428044391651939092FA688
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684653   (127567) от 16.12.2023
+
+YouCut - Video Editor v1.603.1181 Mod by maxi123444 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127567.jpg" />
+</div>
+
+
+###  Подробнее
+
+YouCut - один из самых удобных и оптимальных по качеству видеоредакторов, что идеально подойдёт для работы с короткими роликами для YouTube и прочих площадок. Набор функций и инструментов в купе с интуитивным управлением обеспечивают быстрый и впечатляющий результат. Ну а эффекты, что можно накладывать на имеющиеся материалы так же оставляют только положительные (   Читать дальше...   )Тип издания: ProРелиз состоялся: 13.12.2023Разработчик: InShot Video EditorПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4959BC2C8FD4F0347EAAE81274E344F2453F6CD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684754   (127568) от 16.12.2023
+
+Casual - #Не_Умру_По_Утру (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127568.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вниз
+2. Все дороги ведут...
+3. Ничего не жаль (feat. Оркестр «Градский Hall»)
+4. Прощай(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE5F9C88FE58C026AE9088A11A5E444C4E8F282
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684616   (127569) от 16.12.2023
+
+Smerdead - Мёртвый лес (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Погасший маяк	04:16
+02.	Злые колдуны	04:37
+03.	Мёртвый лес	04:09
+04.	Отравленный ром	04:49(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95852CF71B279C17184BEE994A1F3C758915E923
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684715   (127570) от 16.12.2023
+
+Своя игра (16.12.2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47FD9A5856C5E3CEC485859599030EC642C5B467
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684686   (127571) от 16.12.2023
 
 Благовест | Акафист святой блаженной Матроне Московской (2012) [PDF, FB2, EPUB, MOBI, TXT]
@@ -493,189 +676,6 @@ VA - Black Hole House Music 12-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B35804A03BFC4AF86CDFB52506052F3585182A25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684600   (127590) от 16.12.2023
-
-PhotoRoom v4.7.8 Mod by Mixroot [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 15.12.2023Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB60191E83BF1C289849668A4A914EB69867D960
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684794   (127591) от 16.12.2023
-
-Bernie Marsden - Working Man (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Being Famous
-02. Midtown
-03. Longtime
-04. Invisible(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78CC915DA577C17EE177E181D85B991D0BBE8B34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684659   (127592) от 16.12.2023
-
-Живая еда с Сергеем Малозёмовым (16.12.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компоты: лучше ли они для здоровья, чем соки и газировки? Кто и зачем добавляет в них манку и превращает в соус? Чем могут быть опасны компотные смеси из сухофруктов и сколько сахара в домашнем компоте от бабушки?
- Что готовят из кокосов на Шри-Ланке? Почему в России так часто встречаются негодные орехи? Как легко их расколоть и так ли все кокосовое хорошо для здоровья? (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50182F3AE426A1B0FC1C24A69A36FE9D4601533F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684719   (127593) от 16.12.2023
-
-David Bowie - Live USA (1990) [FLAC|Lossless|tracks + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Station To Station (11:29)
-02. Suffragette City (03:23)
-03. Fame (04:55)
-04. Stay (06:50)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7503F1B31EB3110EDED312EE820732528D9CC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684778   (127594) от 16.12.2023
-
-Moon Safari - Himlabacken Vol. 1-2 (2012-2023) [FLAC|Lossless|WEB-DL|tracks] <Art Rock, Progressive Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2012 - Himlabacken Vol. 1
-2023 - Himlabacken Vol. 2Жанр: Art Rock, Progressive Rock, Symphonic RockПродолжительность: 2 CD, 01:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA9CBCEC84C69DEBE132192075CC7484EB25EB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684649   (127595) от 16.12.2023
-
-Placebo - Collapse Into Never - Live In Europe (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever Chemicals (5:09)
-02. Beautiful James (4:01)
-03. Scene of the Crime (3:28)
-04. Hugz (4:54)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18D80364644D87BE572597BF4BC74F699D00FFFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684603   (127596) от 16.12.2023
-
-Diviner - Avaton (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_127596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avaton (Instrumental) (1:22)
-02. Mountains High (5:35)
-03. Dancing In The Fire (5:00)
-04. Cyberwar (4:02)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0203258322D108976124705F90CD8FADE18D43E1
 ```
 
 

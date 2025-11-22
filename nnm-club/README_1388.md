@@ -1,3 +1,55 @@
+###  Публикация: 1599787   (36441) от 23.11.2024
+
+Милен Фармер / Mylene Farmer. Music Videos (1997) DVDRip [H.264/1080p] [50fps, AI Upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Апскейл клипов Mylene Farmer из сборника  Music Videos Vol.1
+(студия Toutankhamon Polydor Universal):01. Maman a tort 00:03:58
+02. Plus grandir  00:07:32
+03. Libertine  00:10:52
+04. Pourvu qu'elles soient douces (Libertine II) 00:17:51(   Читать дальше...   )Производство: ФранцияЖанр: popРежиссер: Laurent BoutonnatПродолжительность: 01:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265BF2BC8893C2219528F894CD4297EB1CCAFF6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718826   (36442) от 23.11.2024
+
+Огненная тайна / Riddle of Fire (2023) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Братьям Хэйзел и Джоди и их подруге Элис нужно испечь ежевичный пирог, который должен исцелить заболевшую маму мальчишек. Согласно волшебному рецепту, им нужно особенное яйцо — в крапинку. Но последнюю коробку таких яиц покупает таинственный незнакомец, в погоню за которым отправляются друзья. По пути они знакомятся с Элис, феей огня, которая знает много лесных тайн (   Читать дальше...   )Производство: США / ANAXIA, FullDawa FilmsЖанр: боевик, комедия, приключенияРежиссер: Уэстон РазулиАктеры: Анали Типтон, Чарлз Халфорд, Уэстон Разули, Чарли Стовер, Фиби Ферро, Лорелея Оливия Моут, Скайлер Питерс, Даниэль Хетмер, Остин АрчерПеревод: Дублированный (Paragraph Media)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (forced-hardsub, full, SDH)Продолжительность: 01:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712601DE741A87D1797DC7ACFE88E399329A4B8C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762022   (36443) от 23.11.2024
 
 Office 2013-2024 C2R Install + Lite 7.7.7.7 ++ r25 Portable by Ratiborus [Multi/Ru]
@@ -631,60 +683,6 @@ Luminare Christmas! - Mistletoe Madness (2024) [FLAC 24/48|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8E81EBA33F3D52E6308FAB24C27DFE56B836905
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761831   (36467) от 22.11.2024
-
-Mystery Moon - Shine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36467.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Now's The Time (7:16)
-• 02. Shine (4:09)
-• 03. The Hidden Magic (4:23)
-• 04. The Mystery (4:44)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC13C4FC7F1F3044C30CC6EF5F0481662C92EAB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761222   (36468) от 22.11.2024
-
-Power Tale - Огненный Бог Марранов (2019) [FLAC|Lossless|image + .cue] <Heavy, Power Metal Opera>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_36468.jpg" />
-</div>
-
-
-###  Подробнее
-
-2-1 Испытание
-2-2 Придёт Час
-2-3 Ведомый Зарёй
-2-4 Ястреб Взлетает(   Читать дальше...   )Жанр: Heavy, Power Metal OperaПродолжительность: 01:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F28065F7250CEE59F44506B3A6474642294CE92
 ```
 
 

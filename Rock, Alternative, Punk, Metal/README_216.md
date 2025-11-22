@@ -1,3 +1,121 @@
+###  Публикация: 593460   (134944) от 24.12.2012
+
+Inherit Disease - Visceral Transcendence (2010) [FLAC|Lossless]<Technical Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vessel Of Inhumanity 02:45
+02. Sentient Horror 03:03
+03. Beyond The Tyranny Of Entropy 02:39
+04. Hivemind 02:25
+05. Birth Of The Artilect 02:33
+06. Digital Rapture 03:38
+07. Dark Facets Of Self Indulgence 02:44
+08. Prolific Dominance 03:26
+09. Nanoscourge 03:20
+10. Maelstrom of Vindictive Torment 03:53(   Читать дальше...   )Жанр: Technical Brutal Death MetalПродолжительность: 00:30:26
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680067   (134949) от 27.11.2023
+
+Enigmatic Entrance - Becoming Daylight (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Raven Wings (album master) 04:44
+02. Becoming Daylight 06:07
+03. Space Drifter (album master) 05:08
+04. Infomaniac! 04:01(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65DB3063C226D5D0B06FC4E51E9CE716E2E59ABB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592852   (134960) от 24.12.2012
+
+The Hedons - Tomb Of Stars (2012) [MP3|320 кб/с]<Stoner Rock / Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astrosaurus 03:18
+ 02. Parasomnia 05:09
+ 03. Hampstead 05:27
+ 04. Alien Sun 04:50
+ 05. At the Mountains 06:49
+ 06. Hollow Man 03:53
+ 07. Sludgeflower 08:55
+ 08. Ragnarok 07:41Жанр: Stoner Rock / MetalПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8088709267195760F5BC8C461993AD9B89F6A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680074   (134969) от 27.11.2023
+
+Deaf Dealer - Keeper Of the Flame (1986) Reissue, 2023, Cult Metal Classics [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Get in My Way [00:03:34]
+02. Deaf Dealer [00:03:56]
+03. On the Wings of a Russian Foxbat [00:03:16]
+04. The Fugitive [00:03:17](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A493D6A14C50A19B464D543E13B01794028FBCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679897   (134972) от 27.11.2023
 
 Ecocide - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
@@ -74,6 +192,39 @@ Steel Rath - Prayers of War (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F59671BEA5FEEA697D30565C4174CD7B11ED3AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593132   (135137) от 23.12.2012
+
+VA - Легенды Русского Рока I (1996) 6CDs Box-Set [FLAC|Lossless] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_135137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 199601. Разлука (02:18)
+02. Эта Музыка Будет Вечной (04:35)
+03. Летучий Фрегат (03:42)
+04. Алчи - Алчи (01:45)
+05. Казанова (04:18)
+06. Взгяд С Экрана (04:30)
+07. Скованные Одной Цепью (04:16)
+08. Князь Тишины (03:33)
+09. Я Хочу Быть С Тобой (04:21)
+10. Шар Цвета Хаки (02:41)(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -560,141 +711,6 @@ Memorial Day - Embark Hades (1995) [MP3|320 Kbps] <Gothic, Doom, Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93A047AD106AA08F0F2156DCB685DFE436BF57C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679494   (135335) от 26.11.2023
-
-Just Before Dawn - On the History of Destruction (2017) Compilation [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghosts Of The Eastern Front
-02. Lower Dnieper Offensive
-03. Ordered Eastward (Hail Of Bullets Cover)
-04. Fortress At Lorient(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3C703F89EF93AB4AFB6CDEB2D147B78D627A55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679829   (135341) от 26.11.2023
-
-Planethard - Equilibrium (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Judge Me [00:04:10]
-02. Hikikomori [00:04:16]
-03. Fading Away [00:03:23]
-04. A King [00:04:17](   Читать дальше...   )Жанр: Hard-Glam-Rock, Post-GrungeПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228C6B731EC6ED7162688391FA601D8AC9DAA1AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679573   (135342) от 26.11.2023
-
-Jetboy - Crate Diggin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Since You Been Gone (3:21)
-02. Rich Girl (2:29)
-03. Before You Go (3:32)
-04. Dancing In The Moonlight (3:19)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94BA306B72C7103891CDBBA62CFB0204683654F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679780   (135345) от 26.11.2023
-
-Don't Drop the Sword - Age of Heroes (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demon Divine [00:06:53]
-02. Of Love and Loss [00:05:57]
-03. Where the Old Gods Dwell [00:05:03]
-04. Twelve Steps (to Hell) [00:08:48](   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0D3EE5834B26C576FEE16E883A9161051FF291
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679714   (135351) от 26.11.2023
-
-Wet Cactus - Magma Tres (2023) [FLAC|Lossless|WEB-DL|tracks] <Desert Rock, Heavy Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_135351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barren Landscape [00:03:21]
-02. Profound Dream [00:04:17]
-03. Mirage [00:06:14]
-04. My Gaze Is Fixed Ahead [00:05:04](   Читать дальше...   )Жанр: Desert-Rock, Heavy-Rock, StonerПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDE417D7DB11FAAC1056D621346DEAC2E9D14618
 ```
 
 

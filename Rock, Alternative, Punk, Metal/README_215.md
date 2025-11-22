@@ -112,6 +112,39 @@ magnet:?xt=urn:btih:8EA8661304052237DB8E52E24D39F95567CFF090
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593734   (134520) от 24.12.2012
+
+Joe Cocker - Greatest Hits (1998) [FLAC|Lossless]<Blues Rock / Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer In The City (3:48)
+02. Could You Be Loved (4:12)
+03. The Simple Things (4:47)
+04. N'oubliez Jamais (4:40)
+05. Have A Little Faith In Me (4:15)
+06. What Becomes Of The Broken Hearted (4:10)
+07. Don't Let Me Be Misunderstood (3:53)
+08. Delta Lady (3:17)
+09. You Are So Beautiful (2:44)
+10. That's All I Need To Know (Live) Duet with Eros Ramazotti (4:01)(   Читать дальше...   )Жанр: Blues Rock / Pop RockПродолжительность: 01:17:22
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680186   (134522) от 28.11.2023
 
 The Dwarves - Concept Album (2023) [MP3|320 Kbps] <Punk Rock>
@@ -517,6 +550,38 @@ magnet:?xt=urn:btih:88D120F6EAFA001EF298C19D509A69B915963F8F
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593480   (134720) от 24.12.2012
+
+Destinity - Resolve In Crimson (2012) [FLAC|Lossless]<Melodic Death / Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134720.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Black Sun Rising 05:46
+2. Reap My Scars 05:47
+3. Aiming a Fist in Enmity 04:16
+4. Can’t Stand the Sight 07:34
+5. A Scent of Scorn 04:13
+6. Redshift 03:55
+7. Only Way 03:55
+8. Break into His Heart 04:24
+9. The Hatred 04:45Жанр: Melodic Death / Thrash MetalПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592565   (134756) от 24.12.2012
 
 Metric - Synthetica [Deluxe Edition] (2012) [MP3|320 кб/с]<Indie / Pop-Rock>
@@ -608,6 +673,39 @@ magnet:?xt=urn:btih:7AE7D58D1422D159186C0519992583844445F336
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593617   (134838) от 24.12.2012
+
+Slice The Cake - The Man With No Face (2012) [FLAC|Lossless]<Progressive Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture/005/save_picture_134838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:36)
+02. Rational Thinking, Logical Future (02:23)
+03. City Of Ghosts (04:05)
+04. Time Unwinding (05:38)
+05. Of Gallows (07:55)
+06. As Written In Pnakotus (05:58)
+07. Promethean (05:56)
+08. Equilibrium (06:16)
+09. The Chasm (05:32)
+10. The Man With No Face (21:08)Жанр: Progressive DeathcoreПродолжительность: 01:06:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593454   (134857) от 24.12.2012
 
 Pride Of Lions - Immortal (2012) [MP3|320 кб/с]<Melodic Rock | AOR>
@@ -636,91 +734,6 @@ Pride Of Lions - Immortal (2012) [MP3|320 кб/с]<Melodic Rock | AOR>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:083A02A423E832B3B6591BE8FF027D23255C48C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680067   (134949) от 27.11.2023
-
-Enigmatic Entrance - Becoming Daylight (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under Raven Wings (album master) 04:44
-02. Becoming Daylight 06:07
-03. Space Drifter (album master) 05:08
-04. Infomaniac! 04:01(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65DB3063C226D5D0B06FC4E51E9CE716E2E59ABB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592852   (134960) от 24.12.2012
-
-The Hedons - Tomb Of Stars (2012) [MP3|320 кб/с]<Stoner Rock / Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astrosaurus 03:18
- 02. Parasomnia 05:09
- 03. Hampstead 05:27
- 04. Alien Sun 04:50
- 05. At the Mountains 06:49
- 06. Hollow Man 03:53
- 07. Sludgeflower 08:55
- 08. Ragnarok 07:41Жанр: Stoner Rock / MetalПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8088709267195760F5BC8C461993AD9B89F6A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680074   (134969) от 27.11.2023
-
-Deaf Dealer - Keeper Of the Flame (1986) Reissue, 2023, Cult Metal Classics [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_134969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Get in My Way [00:03:34]
-02. Deaf Dealer [00:03:56]
-03. On the Wings of a Russian Foxbat [00:03:16]
-04. The Fugitive [00:03:17](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A493D6A14C50A19B464D543E13B01794028FBCB
 ```
 
 

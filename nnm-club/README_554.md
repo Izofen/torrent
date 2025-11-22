@@ -1,3 +1,57 @@
+###  Публикация: 1801801   (14713) от 13.06.2025
+
+Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Live [MP3|320 Kbps] <Blues Rock, Folk Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - My Sunday Feeling (Live) [3:59]
+02 - Living in the Past (Live) [5:36]
+03 - Serenade to a Cuckoo (Live) [4:22]
+04 - So Much Trouble (Live) [3:48](   Читать дальше...   )Жанр: Blues Rock, Folk Rock, Progressive RockПродолжительность: 01:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFBB0871E67DBDEB3213813A991B4D588FA1F0BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801835   (14714) от 13.06.2025
+
+The Knocks & Dragonette - Revelation (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revelation [00:04:13]
+02. Love Me Alive [00:03:25]
+03. Foolish Pleasure [00:02:41]
+04. The Hero [00:03:47](   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D897B35CE14A6C84A3BECE75FA115FB025B8441D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801662   (14715) от 13.06.2025
 
 Charlie McCoy - Two Albums (1973, 1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
@@ -623,54 +677,6 @@ magnet:?xt=urn:btih:4D258BDFDA66C678A5198F5CF11BF0B802CD910B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:182057F8544E75A11AFC79F16ED0F47B88EC6C9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801828   (14739) от 13.06.2025
-
-Шрифты - Liubov Volkova - Behance - Dispater - 224982027 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт с кириллицей, вдохновленный мрачной средневековой эстетикой и ломбардскими заглавными буквами. Его длинные, похожие на хвост заглавные буквы и характерные удлиненные элементы в виде букв T, F, L и G, заканчивающиеся крупными каплевидными формами, создают извилистый, причудливый и сюрреалистичный узор.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B4ED65489C1642FDD95153BB09CF8725E6D88D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801836   (14740) от 13.06.2025
-
-AirBrush: ИИ Фоторедактор v7.9.0 Mod by PieMods [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_14740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Овладейте искусством селфи с AirBrush — мощным редактором фото и видео! Благодаря простым в использовании функциям вы можете обрабатывать свои селфи и фото с помощью инструментов, созданных, чтобы усиливать естественную красоту, сохраняя при этом природное очарование.Тип издания: Premium / ModРелиз состоялся: 13.06.2025Разработчик: PPIXOCIAL LABS PTE. LTD.Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA2417FE63A1D36BA8454CD10893A55AD84D8F5
 ```
 
 

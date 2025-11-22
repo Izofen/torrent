@@ -1,3 +1,191 @@
+###  Публикация: 1721156   (110061) от 06.05.2024
+
+Blaze of Perdition - 418 - ATh IAV (2013) Split [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devathorn - The Venomous Advent
+02. Devathorn - Diadema MMXII
+03.Жанр: Black MetalПродолжительность: 00:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C2506AE088E7C5B0DE1F81BD4F6BE35EBE3CE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720857   (110062) от 06.05.2024
+
+UniverMag - Дети дождя (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дети дождя (3:22)
+02. Опять дожди (4:16)
+03. Легко быть (3:07)
+04. Чудеса (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CFD7DA0FE4225C3B34809BFB7BC89A0BD3EDBD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721271   (110063) от 06.05.2024
+
+VA - Autumn Flight, Vol. 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Melodic House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rico Boni - Stars (Compilation Edit) (4:31)
+02. LentoLEXX - Voci Di Primavera (DLR Edit) (3:47)
+03. Rico Boni - In Your Head (4:31)
+04. PPK;Klipsa - Это я (Toporkov Slow Remix) (3:44)(   Читать дальше...   )Жанр: House, Melodic HouseПродолжительность: 01:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCDF5F6D51B5BE9FA8E027FC2179912A14814EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720896   (110064) от 06.05.2024
+
+Trippelganger - Possessor (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incantation [00:00:38]
+02. Possessor [00:05:35]
+03. Sacrifice [00:04:42]
+04. Lucifer's Book [00:02:34](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, DoomПродолжительность: 00:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A79EEDA7DC4D84A2ADC1E7E28245CF38A6D2C9C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717075   (110065) от 06.05.2024
+
+English Teacher - This Could Be Texas (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albatross [00:03:14]
+02. The World’s Biggest Paving Slab [00:03:06]
+03. Broken Biscuits [00:04:07]
+04. I’m Not Crying, You’re Crying [00:03:48](   Читать дальше...   )Жанр: Post-PunkПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D02D65402374632349994EBCE93E29D57E26C3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720855   (110066) от 06.05.2024
+
+The Riotous Brothers - The Riotous Brothers (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deja Voodoo (5:47)
+02. Real Mother For Ya (4:22)
+03. Strange Face Of Love (3:50)
+04. Honey Pot (2:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E29CA0F7EF9B426305B70137FA23DBF10DA5ED3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721064   (110067) от 06.05.2024
+
+Монти Механик - Дурная кровь (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кусто [00:02:22]
+02. Бумажная бабочка [00:02:07]
+03. Мёртвые дочери [00:03:51]
+04. Все мои женщины [00:03:12](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:787000989606512CA5B58C4EC1AB21634F2442E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721264   (110068) от 06.05.2024
 
 VA - Autumn Flight (2020) [FLAC|Lossless|WEB-DL|tracks] <House, Melodic House>
@@ -503,193 +691,6 @@ magnet:?xt=urn:btih:A477D34603BCBC17E2DC4B5FBE46D5D870974CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD6B5CAEE138EF4FF83341389F8CA0C428D332C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720843   (110087) от 06.05.2024
-
-Big Wolf Band - Rebel's Journey (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empire and a Prayer (3:59)
-02. Valley of the Fallen Kings (5:59)
-03. Lay It on the Line (3:48)
-04. Rise Together (4:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76F05E39DBA8991FE3F201BB848199A18748247D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721383   (110088) от 06.05.2024
-
-МузЛофт-подкаст / МузLoft. Ираклий Пирцхалава (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ираклий Пирцхалава. Разговор о Боге, грузинах и Кобзоне.
-На этот раз в студии Музлофт оказался фабрикант, чьи хиты до сих пор поют в караоке, а сам он их петь не может. Об этом и многом другом вы узнаете, посмотрев выпуск с Ираклием Пирцхалавой.Производство: Россия | Y-GenerationУчастники: Ираклий ПирцхалаваПродолжительность: 01:10:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6122D6C9323F2FFE0D9E82EF386EB6AE90115D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720860   (110089) от 06.05.2024
-
-Val Starr & the Blues Rocket - To the Blues and Back Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Been To The Blues And Back Again (3:31)
-02. Bitter Pill (5:18)
-03. Take A Stand (4:36)
-04. If You Don't Blues It, You'll Lose It (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C9166B2F0552FA40368DDB72ED0E9B6C702390
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721023   (110090) от 06.05.2024
-
-Dug Masters - Fantastic Stories (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacewave, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UFO (4:06)
-02. Moon Lover (4:33)
-03. Companion Trip (3:34)
-04. Nautilus (4:03)(   Читать дальше...   )Жанр: Spacewave, SynthwaveПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24158B711073107AD5D8D2A641C0962A06B24782
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720591   (110091) от 06.05.2024
-
-The Milk Men - Holy Cow! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Man Band (3:27)
-02. Hungover (2:56)
-03. Give a Little Love (3:05)
-04. Wild Girls (2:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D82824A3198B51C2B140B4728EC38BCD41E3C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720890   (110092) от 06.05.2024
-
-Willow - empathogen (2024) [FLAC|Lossless|WEB-DL|tracks] <alternative pop, Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. home [00:03:03]
-02. ancient girl [00:01:30]
-03. symptom of life [00:03:09]
-04. the fear is not real [00:03:38](   Читать дальше...   )Жанр: alternative pop, Jazz RockПродолжительность: 00:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962D5F2305CBBFADE4CE0F7ED33D34F4E8FD1DF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720886   (110093) от 06.05.2024
-
-Keith Wallen - Infinity Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_110093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infinity [00:03:18]
-02. Strings [00:02:34]
-03. Headspace Holiday [00:03:13]
-04. The Wolf [00:03:43](   Читать дальше...   )Жанр: Alt. RockПродолжительность: 00:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1543DAC5D82D664BEA715EBB4BFAC7E8277C1B4F
 ```
 
 

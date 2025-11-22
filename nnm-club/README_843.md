@@ -1,3 +1,57 @@
+###  Публикация: 1789970   (22255) от 06.04.2025
+
+VA - Новые хитовые песни 2025, Часть 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансон, Поп, Русская Эстрада>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Артур Руденко - Беги не беги (3:15)
+02.  Дана Лахова - Тает белый снег (2:15)
+03.  Аркадиас - И зажигаются огни (4:48)
+04.  Фати Царикаева - Я люблю тебя, это здорово (3:15)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C9F80F29CEBB054C37F4198C40FFE526F5F380C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789801   (22256) от 06.04.2025
+
+State Azure - The Light That Remains (2025) [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Ambient, Berlin School>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vortices (05:53)
+02. Error in the Code (03:53)
+03. A Memory That Wasn't Mine (07:48)
+04. Arkveld (11:23)(   Читать дальше...   )Жанр: Psybient, Downtempo, Ambient, Berlin SchoolПродолжительность: 04:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC243E4D3C42A0A3529840296FDFDC53FA10FED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789877   (22257) от 06.04.2025
 
 Шрифты - MyFonts - Solomon Sans [OTF]
@@ -587,57 +641,6 @@ magnet:?xt=urn:btih:CCF9CC2E8E2A691948737112FB881EAE726D7177
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26A82A1236EEB42FD7B6B5583893C0990845ACC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571447   (22281) от 06.04.2025
-
-Allegaeon - Studio Albums (8 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_22281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Allegaeon — американская экстремальная метал-группа из Форт-Коллинза, штат Колорадо, образованная в 2008 году.2010 - Fragments of Form and Function
-2012 - Formshifter
-2014 - Elements of the Infinite
-2016 - Proponent for SentienceЖанр: Technical Melodic Death MetalПродолжительность: 07:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A0A48FCC57FDA4CC2F8E7D7EEF055B54C040C5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789999   (22282) от 06.04.2025
-
-O&O DiskImage Professional 20.2 Build 358 RePack by elchupacabra [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/001/save_picture_22282.jpg" />
-</div>
-
-
-###  Подробнее
-
-O&O DiskImage Professional позволяет создавать резервные копии всего компьютера или отдельных файлов в любое время - даже когда компьютер используется. В случае утери персональных данных, они могут быть легко восстановлены с помощью всего нескольких кликов - даже когда система Windows не запускается. Программа поддерживает работу с SSD-дисками и новейшими системами (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD8733E14F2CE66767EF7D440D92E4D092DDC0F
 ```
 
 

@@ -1,3 +1,52 @@
+###  Публикация: 1806480   (65358) от 13.07.2025
+
+Шрифты - Authentype - Gothema - A Modern Geometric Sans [OTF, WOFF, WOFF2, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современное семейство геометрических шрифтов с кириллицей, без засечек. Идеален для получения впечатляющих результатов как в цифровой, так и в печатной форме.
+Материал раздаётся с официальной документацией.Формат: OTF, WOFF, WOFF2, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C339DDDE4536E4CBFB6F50468B084900275178
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806501   (65359) от 13.07.2025
+
+Иконки - Envato - Matcha Food and Drink 3D Illustration - 2XT8KQA [PNG]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поднимите на новый уровень свои проекты по дизайну мобильных приложений, UI/UX и веб-дизайну с помощью набора иконок Matcha Food and Drink 3D Illustration, добавив уникальный и привлекательный элемент в свои проекты.Формат: PNGРазрешение файлов: 3000x3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D259383AEEE1020E210663C9882A0CFBC7846798
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806560   (65360) от 13.07.2025
 
 Честь (1938) WEBRip [H.264/720p]
@@ -610,60 +659,6 @@ magnet:?xt=urn:btih:64EEB3139ABD1D96517405DD24814A6522EB3654
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5593BABD2DE3A8217CF6BB0E9AC0B8A5E7E496E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806283   (65384) от 12.07.2025
-
-Markus Schulz - Global DJ Broadcast World Tour (Ciné Saigon, Vietnam) (2025-07-10) [MP3|320 Kbps] <Trance, Techno, Melodic House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kay D. Smith & Marc Tall - Hoipolloi (Ben Gold Remix)
-02. Zhu - Faded (HNTR Edit)
-03. Joy Orbinson - Flight FM (Danny Avila Remix)
-04. Anyma & Argy & Son Of Son - Voices In My Head(   Читать дальше...   )Жанр: Trance, Techno, Melodic HouseПродолжительность: 01:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C4F45AA86DDB67DE7895D7F58A2D044FCD0A8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806438   (65385) от 12.07.2025
-
-Black Rose - The Mirror (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/public/picture/002/save_picture_65385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dualities
-02. Farewell, Misery
-03. Heavy Metal Angel
-04. Shine(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:728A80FBBB324B78EF13DBEB91D1CD14EA9B3629
 ```
 
 
